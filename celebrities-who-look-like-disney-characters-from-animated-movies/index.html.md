@@ -3,7 +3,7 @@ title: "7 Celebrities Who Look like Disney Characters from Animated Movies ..."
 description: "Megan Fox as the Evil Queen in \"Snow White and the Seven Dwarfs\"; Jake Gyllenhaal as Flynn Rider in \"Tangled\"; Dove Cameron as Rapunzel in \"Tangled\"; Ashley Benson as Tinkerbell in \"Peter Pan\"; Michael Ealy as Prince Naveen from \"the Princess and the Frog\"; More ..."
 url: "https://celebs.allwomenstalk.com/celebrities-who-look-like-disney-characters-from-animated-movies/"
 category: "celebs"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 7 Celebrities Who Look like Disney Characters from Animated Movies ...
@@ -56,16 +56,16 @@ These celebrities who look like Disney characters don't just resemble the cartoo
 
 ## Related Posts
 
-- [celebrities with the best hair](https://celebs.allwomenstalk.com/gorgeous-celebrities-with-the-best-hair/)
-- [j law face](https://celebs.allwomenstalk.com/j-law-moments-that-left-us-in-total-awe/)
+- [movies actors regret](https://movies.allwomenstalk.com/actors-who-regret-their-roles/)
 - [one tree hill kenzie dalton](https://movies.allwomenstalk.com/one-tree-hill-stars-and-where-they-are-now/)
-- [harry potter cast where are they now](https://movies.allwomenstalk.com/harry-potter-cast-members-and-where-they-are-now/)
+- [celebrities with the best hair](https://celebs.allwomenstalk.com/gorgeous-celebrities-with-the-best-hair/)
 - [celebrity ad campaigns](https://fashion.allwomenstalk.com/amazing-celebrity-ad-campaigns-that-we-love/)
-- [celebrities who are also artists](https://celebs.allwomenstalk.com/celebrities-who-are-also-artists/)
-- [prom queen the homecoming](https://celebs.allwomenstalk.com/celebrities-who-were-homecoming-queens/)
 - [celebrities then and now how theyve changed](https://celebs.allwomenstalk.com/celebrities-who-changed-their-lives-drastically/)
 - [jessica lucas body](https://celebs.allwomenstalk.com/ridiculously-talented-canadian-stars-to-watch-out-for/)
-- [movies actors regret](https://movies.allwomenstalk.com/actors-who-regret-their-roles/)
+- [j law face](https://celebs.allwomenstalk.com/j-law-moments-that-left-us-in-total-awe/)
+- [prom queen the homecoming](https://celebs.allwomenstalk.com/celebrities-who-were-homecoming-queens/)
+- [celebrities who are also artists](https://celebs.allwomenstalk.com/celebrities-who-are-also-artists/)
+- [harry potter cast where are they now](https://movies.allwomenstalk.com/harry-potter-cast-members-and-where-they-are-now/)
 - [7 Popular Animals in the Movies ...](https://movies.allwomenstalk.com/7-popular-animals-in-the-movies/)
 - [7 Strong and Inspiring Female Characters from Movi...](https://movies.allwomenstalk.com/7-strong-and-inspiring-female-characters-from-movies/)
 

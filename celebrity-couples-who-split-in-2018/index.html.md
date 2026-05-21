@@ -3,7 +3,7 @@ title: "21 Celebrity Couples Who Split in 2018 ..."
 description: "Jennifer Aniston and Justin Theroux; Michael Sheen and Sarah Silverman; Monica Potter and Daniel Christopher Allison; Elon Musk and Amber Heard; Julie Bowen and Scott Phillips; More ..."
 url: "https://celebs.allwomenstalk.com/celebrity-couples-who-split-in-2018/"
 category: "celebs"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 21 Celebrity Couples Who Split in 2018 ...
@@ -140,16 +140,16 @@ For a while it seemed as though these two were set to become the newest sports/a
 
 ## Related Posts
 
-- [best mym models](https://inspiration.allwomenstalk.com/meet-your-model-exclusive-content-from-your-favourite-personalities/)
-- [riche le stylo eye primped and](https://allwomenstalk.com/stars-w-deadly-eating-disorders-popbytes/)
-- [Stars W Deadly Eating Disorders](https://allwomenstalk.com/stars-w-deadly-eating-disorders/)
-- [brazilian asian baby](https://celebs.allwomenstalk.com/dont-hate-me-cause-im-cute-adorable-celeb-kids-we-love/)
-- [gal gadot brother](https://celebs.allwomenstalk.com/yaron-versano/)
 - [robert downey jr oscar winner](https://movies.allwomenstalk.com/incredible-actors-who-are-yet-to-win-an-oscar/)
-- [greasy bear davis](https://allwomenstalk.com/hollywood-march-madness-nicole-v-paris-jacko-v-greasy-bear/)
+- [brazilian asian baby](https://celebs.allwomenstalk.com/dont-hate-me-cause-im-cute-adorable-celeb-kids-we-love/)
+- [best mym models](https://inspiration.allwomenstalk.com/meet-your-model-exclusive-content-from-your-favourite-personalities/)
 - [Anyone Want to Pick up a Celebrity](https://allwomenstalk.com/anyone-want-to-pick-up-a-celebrity/)
+- [Stars W Deadly Eating Disorders](https://allwomenstalk.com/stars-w-deadly-eating-disorders/)
 - [celebrities with assault charges](https://allwomenstalk.com/celebs-accused-with-charges-of-sexual-assault/)
+- [riche le stylo eye primped and](https://allwomenstalk.com/stars-w-deadly-eating-disorders-popbytes/)
 - [More on Celebs amp Their Weight ...](https://allwomenstalk.com/more-on-celebs-their-weight/)
+- [gal gadot brother](https://celebs.allwomenstalk.com/yaron-versano/)
+- [greasy bear davis](https://allwomenstalk.com/hollywood-march-madness-nicole-v-paris-jacko-v-greasy-bear/)
 - [8 Famous Hollywood Divorces ...](https://celebs.allwomenstalk.com/famous-hollywood-divorces/)
 - [20 Shortest Celebrity Marriages ...](https://allwomenstalk.com/20-shortest-celebrity-marriages/)
 

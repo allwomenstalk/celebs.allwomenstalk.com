@@ -3,7 +3,7 @@ title: "Get a Little Edgy or Glam by Borrowing Some of Scarlett Johanssons Style
 description: "Leather Pants, Cropped Blazer; A Little Fringe; Overalls & a Tee; Red Carpet Ready; What to Wear when You Get Your Star; More ..."
 url: "https://celebs.allwomenstalk.com/get-a-little-edgy-or-glam-by-borrowing-some-of-scarlett-johanssons-style/"
 category: "celebs"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # Get a Little Edgy or Glam by Borrowing Some of Scarlett Johanssons Style ...
@@ -138,16 +138,16 @@ Source: [Scarlett Johansson in Stella McCartney](https://fashionsizzle.com/2015/
 
 ## Related Posts
 
-- [female hispanic celebrities](https://celebs.allwomenstalk.com/amazing-latina-celebrities-thatll-be-your-fashion-inspiration/)
-- [celebs in leggings](https://celebs.allwomenstalk.com/pins-on-parade-celebs-giving-lessons-in-leggings/)
-- [mindy kaling fashion](https://celebs.allwomenstalk.com/get-a-little-fashion-inspo-from-mindy-kalings-lookbook/)
-- [nina dobrev eye surgery](https://fashion.allwomenstalk.com/steal-nina-dobrevs-stunning-style/)
 - [zoe kravitz y penn badgley](https://celebs.allwomenstalk.com/zoe-kravitz-street-style-petite-girls-will-love/)
-- [tattoos that look like bracelets](https://beauty.allwomenstalk.com/fashion-tattoos-even-vogue-editors-would-love/)
-- [fashion designers in africa](https://fashion.allwomenstalk.com/african-fashion-designers-making-waves/)
 - [fashion inspos](https://streetstyle.allwomenstalk.com/kate-middletons-street-style-inspos-you-can-copy/)
-- [victoria justice](https://celebs.allwomenstalk.com/steal-the-style-of-victoria-justice/)
 - [erika linder age](https://fashion.allwomenstalk.com/models-who-are-redefining-the-fashion-industry/)
+- [tattoos that look like bracelets](https://beauty.allwomenstalk.com/fashion-tattoos-even-vogue-editors-would-love/)
+- [female hispanic celebrities](https://celebs.allwomenstalk.com/amazing-latina-celebrities-thatll-be-your-fashion-inspiration/)
+- [nina dobrev eye surgery](https://fashion.allwomenstalk.com/steal-nina-dobrevs-stunning-style/)
+- [fashion designers in africa](https://fashion.allwomenstalk.com/african-fashion-designers-making-waves/)
+- [celebs in leggings](https://celebs.allwomenstalk.com/pins-on-parade-celebs-giving-lessons-in-leggings/)
+- [victoria justice](https://celebs.allwomenstalk.com/steal-the-style-of-victoria-justice/)
+- [mindy kaling fashion](https://celebs.allwomenstalk.com/get-a-little-fashion-inspo-from-mindy-kalings-lookbook/)
 - [Steal Her Look: the Sultry Lipsticks All the Stars...](https://makeup.allwomenstalk.com/steal-her-look-the-sultry-lipsticks-all-the-stars-are-wearing/)
 - [Get Ready to Add Some Serious Glamour to Your Hair...](https://hair.allwomenstalk.com/ways-to-add-some-glamour-to-your-hair/)
 

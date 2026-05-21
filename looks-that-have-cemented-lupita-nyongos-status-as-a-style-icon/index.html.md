@@ -3,7 +3,7 @@ title: "42 Looks That Have Cemented Lupita Nyongos Status as a Style Icon ..."
 description: "Prada Gown Oscars 2014; In Prada at the Toronto Film Festival; PEOPLE's Most Beautiful Person; A Bright Teal Gucci Gown at the SAG Awards; At the 2014 Golden Globe Awards. in Ralph Lauren; More ..."
 url: "https://celebs.allwomenstalk.com/looks-that-have-cemented-lupita-nyongos-status-as-a-style-icon/"
 category: "celebs"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 42 Looks That Have Cemented Lupita Nyongos Status as a Style Icon ...
@@ -236,16 +236,16 @@ Crazy beautiful - right?
 
 ## Related Posts
 
-- [Stripes for Spring 30 Street Style Inspirations .....](https://fashion.allwomenstalk.com/stripes-for-spring-street-style-inspirations/)
-- [7 Entrepreneurial Women to Look up to if You Want ...](https://fashion.allwomenstalk.com/entrepreneurial-women-to-look-up-to-if-you-want-a-career-in-fashion/)
-- [7 Flawless Outfits Inspired by Kendall Jenner ...](https://fashion.allwomenstalk.com/flawless-outfits-inspired-by-kendall-jenner/)
 - [Fabulous Street Style Photos from New York Fashion...](https://fashion.allwomenstalk.com/fabulous-street-style-photos-from-new-york-fashion-week-fall/)
-- [madeline becker](https://fashion.allwomenstalk.com/instagrammers-with-lust-worthy-fashion-sense/)
-- [These Hilariously Fashionable Dads Are Taking the ...](https://fashion.allwomenstalk.com/these-hilariously-fashionable-dads-are-taking-the-fashion-world-by-storm/)
 - [We Love These Looks from the London Fashion Week A...](https://fashion.allwomenstalk.com/we-love-these-looks-from-the-london-fashion-week-aw/)
-- [You Need to See These Street Style Photos from the...](https://fashion.allwomenstalk.com/you-need-to-see-these-street-style-photos-from-the-far-away-land-of-india/)
+- [These Hilariously Fashionable Dads Are Taking the ...](https://fashion.allwomenstalk.com/these-hilariously-fashionable-dads-are-taking-the-fashion-world-by-storm/)
+- [7 Flawless Outfits Inspired by Kendall Jenner ...](https://fashion.allwomenstalk.com/flawless-outfits-inspired-by-kendall-jenner/)
 - [fashionable way to raid](https://fashion.allwomenstalk.com/looks-from-fashion-bloggers-that-make-us-want-to-raid-their-closets/)
+- [You Need to See These Street Style Photos from the...](https://fashion.allwomenstalk.com/you-need-to-see-these-street-style-photos-from-the-far-away-land-of-india/)
+- [madeline becker](https://fashion.allwomenstalk.com/instagrammers-with-lust-worthy-fashion-sense/)
 - [30 Girls Rocking the Menswear Trend](https://fashion.allwomenstalk.com/girls-rocking-the-menswear-trend/)
+- [7 Entrepreneurial Women to Look up to if You Want ...](https://fashion.allwomenstalk.com/entrepreneurial-women-to-look-up-to-if-you-want-a-career-in-fashion/)
+- [Stripes for Spring 30 Street Style Inspirations .....](https://fashion.allwomenstalk.com/stripes-for-spring-street-style-inspirations/)
 - [7 Successful Celebrity Fashion Lines ...](https://fashion.allwomenstalk.com/successful-celebrity-fashion-lines/)
 - [29 Celebrities Wearing Chanel ...](https://allwomenstalk.com/29-celebrities-wearing-chanel/)
 

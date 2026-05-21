@@ -3,7 +3,7 @@ title: "7 Celebrity Best Friends We Should Aspire to Be like ..."
 description: "Tina Fey and Amy Poehler; Lennon Parham and Jessica St. Clair; Mindy Kaling and B.J. Novak; Taylor Swift and Ed Sheeran; Matt Damon and Ben Affleck; More ..."
 url: "https://celebs.allwomenstalk.com/celebrity-best-friends-we-should-aspire-to-be-like/"
 category: "celebs"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 7 Celebrity Best Friends We Should Aspire to Be like ...
@@ -57,15 +57,15 @@ What’s your favorite celebrity friendship? Let me know your favorite in the co
 ## Related Posts
 
 - [celebrity astrology signs](https://celebs.allwomenstalk.com/celebrities-and-their-astrological-signs/)
-- [pauly d child](https://celebs.allwomenstalk.com/celebrity-babies-who-seem-more-famous-than-their-parents/)
 - [amy winehouse swimsuit](https://celebs.allwomenstalk.com/celebrity-faces-destroyed-by-drugs/)
-- [famous celebrities as kids](https://celebs.allwomenstalk.com/child-celebrities-who-are-no-longer-famous/)
 - [miley cyrus scandal video](https://celebs.allwomenstalk.com/of-the-biggest-miley-cyrus-scandals/)
-- [why should celebrities be role models](https://celebs.allwomenstalk.com/reasons-why-some-celebrities-are-bad-role-models/)
-- [fit blonde actresses](https://celebs.allwomenstalk.com/hottest-blonde-celebrities-from-yesterday-and-today/)
-- [james blunt net worth](https://celebs.allwomenstalk.com/celebrities-who-have-praised-ed-sheerans-new-album/)
-- [hollywood homewreckers](https://celebs.allwomenstalk.com/most-notorious-home-wreckers-in-hollywood/)
 - [fit celeb](https://celebs.allwomenstalk.com/fit-celebrities-wholl-inspire-you-this-summer/)
+- [famous celebrities as kids](https://celebs.allwomenstalk.com/child-celebrities-who-are-no-longer-famous/)
+- [james blunt net worth](https://celebs.allwomenstalk.com/celebrities-who-have-praised-ed-sheerans-new-album/)
+- [fit blonde actresses](https://celebs.allwomenstalk.com/hottest-blonde-celebrities-from-yesterday-and-today/)
+- [hollywood homewreckers](https://celebs.allwomenstalk.com/most-notorious-home-wreckers-in-hollywood/)
+- [pauly d child](https://celebs.allwomenstalk.com/celebrity-babies-who-seem-more-famous-than-their-parents/)
+- [why should celebrities be role models](https://celebs.allwomenstalk.com/reasons-why-some-celebrities-are-bad-role-models/)
 - [8 Reasons You Need a Best Friend ...](https://allwomenstalk.com/8-reasons-you-need-a-best-friend/)
 - [7 Athletes Who Make Great Role Models ...](https://allwomenstalk.com/7-athletes-who-make-great-role-models/)
 

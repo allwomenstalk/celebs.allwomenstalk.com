@@ -3,7 +3,7 @@ title: "Michael Brea Was Doing Gods Bidding ..."
 description: "Stay ahead, stay chic. Trusted guides on beauty, wellness, fashion, and everything that defines today's empowered woman."
 url: "https://celebs.allwomenstalk.com/michael-brea-was-doing-gods-bidding/"
 category: "celebs"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # Michael Brea Was Doing Gods Bidding ...
@@ -24,16 +24,16 @@ Brea is being held on charges of 2nd degree murder and criminal possession of a 
 
 ## Related Posts
 
-- [best rags to riches stories](https://celebs.allwomenstalk.com/best-from-rags-to-riches-stories/)
-- [dadt pink](https://celebs.allwomenstalk.com/stars-come-out-in-support-of-dadt-repeal/)
-- [mythbusters obama](https://celebs.allwomenstalk.com/obama-on-mythbusters/)
 - [daniello carting](https://celebs.allwomenstalk.com/ramsays-trash-talk/)
+- [New Year Bash Wrap-up: Part 1 ...](https://celebs.allwomenstalk.com/new-year-bash-wrap-up-part-1/)
 - [The Hobbit Shooting in Jeopardy Once Again...](https://celebs.allwomenstalk.com/the-hobbit-shooting-in-jeopardy-once-again/)
 - [New Year Bash Wrap-up: Part 2 ...](https://celebs.allwomenstalk.com/new-year-bash-wrap-up-part-2/)
-- [cool butterflies](https://gardening.allwomenstalk.com/5-cool-butterflies/)
 - [favorite vines](https://gardening.allwomenstalk.com/5-of-my-favorite-vines/)
-- [New Year Bash Wrap-up: Part 1 ...](https://celebs.allwomenstalk.com/new-year-bash-wrap-up-part-1/)
+- [cool butterflies](https://gardening.allwomenstalk.com/5-cool-butterflies/)
+- [best rags to riches stories](https://celebs.allwomenstalk.com/best-from-rags-to-riches-stories/)
+- [mythbusters obama](https://celebs.allwomenstalk.com/obama-on-mythbusters/)
 - [Cooks Love for Mother Earth Revealed...](https://celebs.allwomenstalk.com/cooks-love-for-mother-earth-revealed/)
+- [dadt pink](https://celebs.allwomenstalk.com/stars-come-out-in-support-of-dadt-repeal/)
 - [George Michael Ready to Start Again ...](https://celebs.allwomenstalk.com/george-michael-ready-to-start-again/)
 - [Michael Lohan Doesnt Mind Lindsay Movie...](https://celebs.allwomenstalk.com/michael-lohan-doesnt-mind-lindsay-movie/)
 

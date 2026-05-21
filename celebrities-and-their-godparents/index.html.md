@@ -3,7 +3,7 @@ title: "7 Celebrities and Their Godparents ..."
 description: "Nicole Richie and Michael Jackson; Gwyneth Paltrow and Steven Spielberg; Drew Barrymore and Sophia Loren; Jake Gyllenhaal and Jamie Lee Curtis; Miley Cyrus and Dolly Parton; More ..."
 url: "https://celebs.allwomenstalk.com/celebrities-and-their-godparents/"
 category: "celebs"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 7 Celebrities and Their Godparents ...
@@ -58,16 +58,16 @@ Working in the same business really brings people together, which is why most of
 
 ## Related Posts
 
+- [his three daughters cast](https://celebs.allwomenstalk.com/celebrities-with-more-than-3-children/)
+- [sean faris and robbie amell](https://celebs.allwomenstalk.com/celebs-from-cws-arrow-that-are-social-on-twitter/)
+- [does will smith have dyslexia](https://celebs.allwomenstalk.com/famous-people-with-dyslexia/)
 - [miley cyrus coachella outfit](https://celebs.allwomenstalk.com/celebrities-who-looked-fab-at-coachella/)
 - [toby regbo shirtless](https://celebs.allwomenstalk.com/teen-celebrities-worth-fangirling-over/)
-- [anna chlumsky swimsuit](https://celebs.allwomenstalk.com/child-stars-and-where-they-are-now/)
+- [celebrities who started from the bottom](https://celebs.allwomenstalk.com/celebrities-who-started-from-the-bottom-and-rose-to-the-top/)
+- [mean girls anniversary](https://celebs.allwomenstalk.com/celebs-who-celebrated-mean-girls-10-year-anniversary/)
 - [tattoo celebrity male](https://celebs.allwomenstalk.com/hot-celebs-with-tattoos-who-look-great-shirtless/)
 - [brunette actress with big eyes](https://celebs.allwomenstalk.com/actresses-with-beautiful-eyes-that-mesmerize/)
-- [celebrities who started from the bottom](https://celebs.allwomenstalk.com/celebrities-who-started-from-the-bottom-and-rose-to-the-top/)
-- [sean faris and robbie amell](https://celebs.allwomenstalk.com/celebs-from-cws-arrow-that-are-social-on-twitter/)
-- [mean girls anniversary](https://celebs.allwomenstalk.com/celebs-who-celebrated-mean-girls-10-year-anniversary/)
-- [his three daughters cast](https://celebs.allwomenstalk.com/celebrities-with-more-than-3-children/)
-- [does will smith have dyslexia](https://celebs.allwomenstalk.com/famous-people-with-dyslexia/)
+- [anna chlumsky swimsuit](https://celebs.allwomenstalk.com/child-stars-and-where-they-are-now/)
 - [7 of My Favorite Celebrities ...](https://celebs.allwomenstalk.com/7-of-my-favorite-celebrities/)
 - [7 Most Recent Celebrity Moms ...](https://celebs.allwomenstalk.com/most-recent-celebrity-moms/)
 

@@ -3,7 +3,7 @@ title: "7 Talented People Who Died Too Soon in the Last Decade ..."
 description: "Paul Walker; Amy Winehouse; Michael Jackson; Christopher Reeve; Patrick Swayze; More ..."
 url: "https://celebs.allwomenstalk.com/talented-people-who-died-too-soon-in-the-last-decade/"
 category: "celebs"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 7 Talented People Who Died Too Soon in the Last Decade ...
@@ -56,16 +56,16 @@ So this is my list of people who I think made a difference in many ways: on the 
 
 ## Related Posts
 
-- [celebrities with binge eating](https://celebs.allwomenstalk.com/celebrities-who-have-battled-eating-disorders/)
-- [lara spencer beach](https://celebs.allwomenstalk.com/celebs-who-have-dressed-up-as-miley-cyrus/)
-- [celebrities who currently live in kentucky](https://celebs.allwomenstalk.com/celebrities-who-are-originally-from-kentucky/)
-- [josh peck aging](https://celebs.allwomenstalk.com/hysterical-nickelodeon-actors-who-grew-up-to-be-hot/)
-- [why did danny leave the mindy project](https://hair.allwomenstalk.com/celebrities-who-tried-a-pixie-cut/)
-- [beyonce reaction](https://celebs.allwomenstalk.com/celeb-reactions-to-beyonces-new-album/)
-- [2014 rock and roll hall of fame](https://music.allwomenstalk.com/new-members-of-the-rock-and-roll-hall-of-fame-for/)
 - [roman josi hair](https://celebs.allwomenstalk.com/gorgeous-athletes-to-watch-for-at-the-olympics/)
-- [environmentally friendly celebrities](https://celebs.allwomenstalk.com/celebrities-and-the-environmental-causes-they-support/)
 - [always trending](https://celebs.allwomenstalk.com/popular-celebrities-who-are-always-trending/)
+- [celebrities with binge eating](https://celebs.allwomenstalk.com/celebrities-who-have-battled-eating-disorders/)
+- [celebrities who currently live in kentucky](https://celebs.allwomenstalk.com/celebrities-who-are-originally-from-kentucky/)
+- [2014 rock and roll hall of fame](https://music.allwomenstalk.com/new-members-of-the-rock-and-roll-hall-of-fame-for/)
+- [environmentally friendly celebrities](https://celebs.allwomenstalk.com/celebrities-and-the-environmental-causes-they-support/)
+- [josh peck aging](https://celebs.allwomenstalk.com/hysterical-nickelodeon-actors-who-grew-up-to-be-hot/)
+- [beyonce reaction](https://celebs.allwomenstalk.com/celeb-reactions-to-beyonces-new-album/)
+- [lara spencer beach](https://celebs.allwomenstalk.com/celebs-who-have-dressed-up-as-miley-cyrus/)
+- [why did danny leave the mindy project](https://hair.allwomenstalk.com/celebrities-who-tried-a-pixie-cut/)
 - [7 of My Favorite Celebrities ...](https://celebs.allwomenstalk.com/7-of-my-favorite-celebrities/)
 - [7 Celebrities Who Got Married Far Too Young ...](https://allwomenstalk.com/7-celebrities-who-got-married-far-too-young/)
 

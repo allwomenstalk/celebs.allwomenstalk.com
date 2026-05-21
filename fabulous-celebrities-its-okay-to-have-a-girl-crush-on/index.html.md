@@ -3,7 +3,7 @@ title: "8 Fabulous Celebrities Its Okay to Have a Girl Crush on ..."
 description: "Selena Gomez; Angelina Jolie; Lana Del Rey; Chelsea Handler; Taylor Swift; More ..."
 url: "https://celebs.allwomenstalk.com/fabulous-celebrities-its-okay-to-have-a-girl-crush-on/"
 category: "celebs"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 8 Fabulous Celebrities Its Okay to Have a Girl Crush on ...
@@ -62,16 +62,16 @@ Do you have girl crushes on these girls? Who is your ideal girl crush? What are 
 
 ## Related Posts
 
-- [ed begley jnr](https://celebs.allwomenstalk.com/celebrities-who-care-about-the-environment/)
 - [glitter bodysuits](https://celebs.allwomenstalk.com/best-sparkly-bodysuits-on-celebrities/)
-- [celebrities in trouble with the law](https://celebs.allwomenstalk.com/celebrities-who-have-been-in-trouble-with-the-law/)
-- [famous celebrity haircuts](https://celebs.allwomenstalk.com/shocking-celebrity-haircuts/)
-- [famous eccentric person](https://celebs.allwomenstalk.com/most-eccentric-pop-stars/)
-- [zoe perry smoking](https://beauty.allwomenstalk.com/chic-celebrities-to-get-beauty-inspiration-from/)
-- [big easy baddies](https://movies.allwomenstalk.com/top-tv-baddies-we-love/)
 - [long haired british comedian](https://celebs.allwomenstalk.com/hottest-famous-guys-brits-vs-americans/)
+- [big easy baddies](https://movies.allwomenstalk.com/top-tv-baddies-we-love/)
+- [famous eccentric person](https://celebs.allwomenstalk.com/most-eccentric-pop-stars/)
 - [sexiest comedian](https://celebs.allwomenstalk.com/hottest-comedians/)
+- [zoe perry smoking](https://beauty.allwomenstalk.com/chic-celebrities-to-get-beauty-inspiration-from/)
+- [celebrities in trouble with the law](https://celebs.allwomenstalk.com/celebrities-who-have-been-in-trouble-with-the-law/)
+- [ed begley jnr](https://celebs.allwomenstalk.com/celebrities-who-care-about-the-environment/)
 - [bezos wife](https://celebs.allwomenstalk.com/famous-people-who-are-beautiful-on-the-inside/)
+- [famous celebrity haircuts](https://celebs.allwomenstalk.com/shocking-celebrity-haircuts/)
 - [8 Celebrities Who Have Aged Beautifully ...](https://celebs.allwomenstalk.com/celebrities-who-have-aged-beautifully/)
 - [8 Random Celeb News to Check out ...](https://allwomenstalk.com/8-random-celeb-news-to-check-out/)
 

@@ -3,7 +3,7 @@ title: "7 Things No One Told You about Taylor Swift ..."
 description: "Swift's Sort of Blind; She's No Tattoo Fan; She Was the First SNL Host to Write Her Own Monologue; Swift's Pre-Fame Job Wasn't Glamorous; It Runs in the Family; More ..."
 url: "https://celebs.allwomenstalk.com/things-no-one-told-you-about-taylor-swift/"
 category: "celebs"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 7 Things No One Told You about Taylor Swift ...
@@ -42,16 +42,16 @@ Time to fess up! How many of these things about Taylor Swift did you already kno
 
 ## Related Posts
 
-- [where was the mighty quinn filmed](https://movies.allwomenstalk.com/surprising-things-you-didnt-know-about-pretty-woman/)
-- [watch the fault in our stars movie](https://movies.allwomenstalk.com/fun-facts-from-the-fault-in-our-stars-movie/)
-- [new orleans facts](https://lifestyle.allwomenstalk.com/facts-about-the-history-of-the-new-orleans-mardi-gras-celebrations/)
-- [simon cowell style](https://celebs.allwomenstalk.com/things-to-know-about-simon-cowell/)
-- [fun facts about eczema](https://skincare.allwomenstalk.com/facts-about-eczema-that-might-surprise-you/)
-- [weirdest cheese](https://food.allwomenstalk.com/weird-and-wonderful-facts-about-british-cheese/)
-- [how many hairs are in your eyebrows](https://beauty.allwomenstalk.com/interesting-things-about-your-eyebrows/)
 - [movies for film buffs](https://movies.allwomenstalk.com/interesting-movie-facts-that-movie-buffs-dont-know/)
-- [amazing facts about hair](https://hair.allwomenstalk.com/fun-facts-and-bits-of-trivia-about-hair/)
 - [pitch perfect titanium scene](https://movies.allwomenstalk.com/awesome-little-known-facts-about-pitch-perfect/)
+- [how many hairs are in your eyebrows](https://beauty.allwomenstalk.com/interesting-things-about-your-eyebrows/)
+- [where was the mighty quinn filmed](https://movies.allwomenstalk.com/surprising-things-you-didnt-know-about-pretty-woman/)
+- [simon cowell style](https://celebs.allwomenstalk.com/things-to-know-about-simon-cowell/)
+- [new orleans facts](https://lifestyle.allwomenstalk.com/facts-about-the-history-of-the-new-orleans-mardi-gras-celebrations/)
+- [amazing facts about hair](https://hair.allwomenstalk.com/fun-facts-and-bits-of-trivia-about-hair/)
+- [weirdest cheese](https://food.allwomenstalk.com/weird-and-wonderful-facts-about-british-cheese/)
+- [watch the fault in our stars movie](https://movies.allwomenstalk.com/fun-facts-from-the-fault-in-our-stars-movie/)
+- [fun facts about eczema](https://skincare.allwomenstalk.com/facts-about-eczema-that-might-surprise-you/)
 - [5 Things about Stephanie Meyer You Should Know ...](https://twilight.allwomenstalk.com/5-things-about-stephanie-meyer-you-should-know/)
 - [5 Facts on Bella Swan ...](https://twilight.allwomenstalk.com/5-facts-on-bella-swan/)
 

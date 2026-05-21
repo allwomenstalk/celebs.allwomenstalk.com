@@ -3,7 +3,7 @@ title: "15 Most Stupid Quotes by Politicians ..."
 description: "Barack Obama on Bowling; Sarah Palin on the Koreas; Joe Biden on Hillary Clinton; More from Joe Biden; Donald Rumsfeld on Intelligence; More ..."
 url: "https://celebs.allwomenstalk.com/most-stupid-quotes-by-politicians/"
 category: "celebs"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 15 Most Stupid Quotes by Politicians ...
@@ -74,16 +74,16 @@ Well, this is just a very small selection of many – after having read this, yo
 
 ## Related Posts
 
-- [random expressions](https://lifestyle.allwomenstalk.com/commonly-misused-words-and-expressions/)
-- [the ball is in your court relationship](https://love.allwomenstalk.com/things-to-say-or-not-to-say-when-texting-boys/)
-- [sayings like awesome sauce](https://lifestyle.allwomenstalk.com/phrases-and-words-people-need-to-stop-using/)
-- [paris color primped previous](https://lifestyle.allwomenstalk.com/more-idioms-you-should-know/)
-- [cute apology](https://love.allwomenstalk.com/cute-ways-to-say-sorry/)
-- [gheegle in a sentence](https://travel.allwomenstalk.com/fantastic-untranslatable-words/)
 - [wet blanket expression](https://lifestyle.allwomenstalk.com/idioms-you-need-to-know/)
-- [absquatulate sentence](https://lifestyle.allwomenstalk.com/new-words-to-use-this-week/)
+- [gheegle in a sentence](https://travel.allwomenstalk.com/fantastic-untranslatable-words/)
 - [english words that come from other languages](https://books.allwomenstalk.com/common-english-words-adopted-from-other-languages/)
+- [cute apology](https://love.allwomenstalk.com/cute-ways-to-say-sorry/)
+- [random expressions](https://lifestyle.allwomenstalk.com/commonly-misused-words-and-expressions/)
+- [paris color primped previous](https://lifestyle.allwomenstalk.com/more-idioms-you-should-know/)
+- [sayings like awesome sauce](https://lifestyle.allwomenstalk.com/phrases-and-words-people-need-to-stop-using/)
 - [j adore meaning](https://parenting.allwomenstalk.com/unusual-baby-names/)
+- [the ball is in your court relationship](https://love.allwomenstalk.com/things-to-say-or-not-to-say-when-texting-boys/)
+- [absquatulate sentence](https://lifestyle.allwomenstalk.com/new-words-to-use-this-week/)
 - [8 Worst Books Written by Celebs ...](https://celebs.allwomenstalk.com/8-worst-books-written-by-celebs/)
 - [The Kaiser of Quotable Quotes ...](https://allwomenstalk.com/the-kaiser-of-quotable-quotes/)
 

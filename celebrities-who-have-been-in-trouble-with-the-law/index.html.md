@@ -3,7 +3,7 @@ title: "8 Celebrities Who Have Been in Trouble with the Law ..."
 description: "Lindsay Lohan; Charlie Sheen; Johnny Cash; Amanda Bynes; Mattthew Fox; More ..."
 url: "https://celebs.allwomenstalk.com/celebrities-who-have-been-in-trouble-with-the-law/"
 category: "celebs"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 8 Celebrities Who Have Been in Trouble with the Law ...
@@ -48,16 +48,16 @@ Top Image Source: _sengook.com_
 
 ## Related Posts
 
-- [big easy baddies](https://movies.allwomenstalk.com/top-tv-baddies-we-love/)
 - [long haired british comedian](https://celebs.allwomenstalk.com/hottest-famous-guys-brits-vs-americans/)
+- [ed begley jnr](https://celebs.allwomenstalk.com/celebrities-who-care-about-the-environment/)
+- [famous celebrity haircuts](https://celebs.allwomenstalk.com/shocking-celebrity-haircuts/)
 - [famous eccentric person](https://celebs.allwomenstalk.com/most-eccentric-pop-stars/)
-- [sexiest comedian](https://celebs.allwomenstalk.com/hottest-comedians/)
+- [bezos wife](https://celebs.allwomenstalk.com/famous-people-who-are-beautiful-on-the-inside/)
+- [zoe perry smoking](https://beauty.allwomenstalk.com/chic-celebrities-to-get-beauty-inspiration-from/)
 - [famous person who learned from their mistakes](https://celebs.allwomenstalk.com/celebrities-who-blew-it-and-how-not-to-repeat-their-mistakes/)
 - [glitter bodysuits](https://celebs.allwomenstalk.com/best-sparkly-bodysuits-on-celebrities/)
-- [famous celebrity haircuts](https://celebs.allwomenstalk.com/shocking-celebrity-haircuts/)
-- [zoe perry smoking](https://beauty.allwomenstalk.com/chic-celebrities-to-get-beauty-inspiration-from/)
-- [ed begley jnr](https://celebs.allwomenstalk.com/celebrities-who-care-about-the-environment/)
-- [bezos wife](https://celebs.allwomenstalk.com/famous-people-who-are-beautiful-on-the-inside/)
+- [sexiest comedian](https://celebs.allwomenstalk.com/hottest-comedians/)
+- [big easy baddies](https://movies.allwomenstalk.com/top-tv-baddies-we-love/)
 - [7 Celebrities Who Smoke Weed ...](https://celebs.allwomenstalk.com/celebrities-who-smoke-weed/)
 - [8 Celebrities Who Live in NYC ...](https://celebs.allwomenstalk.com/celebrities-who-live-in-nyc/)
 

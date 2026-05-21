@@ -3,7 +3,7 @@ title: "7 Celebrities Who Were Homecoming Queens ..."
 description: "Dakota Fanning; Jessica Simpson; Rosie O’Donnell; Katharine McPhee; Halle Berry; More ..."
 url: "https://celebs.allwomenstalk.com/celebrities-who-were-homecoming-queens/"
 category: "celebs"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 7 Celebrities Who Were Homecoming Queens ...
@@ -56,15 +56,15 @@ It is interesting to take a look at what celebrities were like before the stardo
 
 ## Related Posts
 
-- [kijjimb](https://celebs.allwomenstalk.com/of-the-cutest-celeb-throwback-photos/)
-- [celebrities who are also artists](https://celebs.allwomenstalk.com/celebrities-who-are-also-artists/)
-- [celebrities with the best hair](https://celebs.allwomenstalk.com/gorgeous-celebrities-with-the-best-hair/)
 - [celebrity ad campaigns](https://fashion.allwomenstalk.com/amazing-celebrity-ad-campaigns-that-we-love/)
-- [harry potter cast where are they now](https://movies.allwomenstalk.com/harry-potter-cast-members-and-where-they-are-now/)
+- [celebrities who are also artists](https://celebs.allwomenstalk.com/celebrities-who-are-also-artists/)
 - [jessica lucas body](https://celebs.allwomenstalk.com/ridiculously-talented-canadian-stars-to-watch-out-for/)
-- [one tree hill kenzie dalton](https://movies.allwomenstalk.com/one-tree-hill-stars-and-where-they-are-now/)
-- [j law face](https://celebs.allwomenstalk.com/j-law-moments-that-left-us-in-total-awe/)
 - [movies actors regret](https://movies.allwomenstalk.com/actors-who-regret-their-roles/)
+- [j law face](https://celebs.allwomenstalk.com/j-law-moments-that-left-us-in-total-awe/)
+- [harry potter cast where are they now](https://movies.allwomenstalk.com/harry-potter-cast-members-and-where-they-are-now/)
+- [celebrities with the best hair](https://celebs.allwomenstalk.com/gorgeous-celebrities-with-the-best-hair/)
+- [one tree hill kenzie dalton](https://movies.allwomenstalk.com/one-tree-hill-stars-and-where-they-are-now/)
+- [kijjimb](https://celebs.allwomenstalk.com/of-the-cutest-celeb-throwback-photos/)
 - [what instruments can taylor swift play](https://music.allwomenstalk.com/pop-stars-who-can-also-play-an-instrument/)
 - [10 Stunning Leading Ladies ...](https://movies.allwomenstalk.com/stunning-leading-ladies/)
 - [7 of My Favorite Celebrities ...](https://celebs.allwomenstalk.com/7-of-my-favorite-celebrities/)

@@ -3,7 +3,7 @@ title: "7 Female Celebrities Who Were My Role Models when I Was Younger ..."
 description: "Oprah...; Princess Diana...; Joey Potter...; Natalie Portman...; Michelle Kwan....; More ..."
 url: "https://celebs.allwomenstalk.com/female-celebrities-who-were-my-role-models-when-i-was-younger/"
 category: "celebs"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 7 Female Celebrities Who Were My Role Models when I Was Younger ...
@@ -56,16 +56,16 @@ What female celebrity role models inspired you and influenced you as a young wom
 
 ## Related Posts
 
-- [janet esteves mickey mouse](https://lifestyle.allwomenstalk.com/women-with-huge-collections/)
 - [lena dunham marilyn monroe](https://celebs.allwomenstalk.com/influential-women-from-tv-film/)
-- [oscar mbo child](https://celebs.allwomenstalk.com/female-watch-brand-ambassadors/)
-- [wear it to flaunt it.](https://fashion.allwomenstalk.com/women-who-wear-what-they-want-and-flaunt-it/)
-- [black woman inspirational](https://inspiration.allwomenstalk.com/inspirational-black-women-who-changed-history/)
 - [misty copeland feet](https://celebs.allwomenstalk.com/famous-ballerinas-you-should-know/)
+- [black woman inspirational](https://inspiration.allwomenstalk.com/inspirational-black-women-who-changed-history/)
+- [wear it to flaunt it.](https://fashion.allwomenstalk.com/women-who-wear-what-they-want-and-flaunt-it/)
 - [girl role models](https://parenting.allwomenstalk.com/female-role-models-for-your-daughter/)
 - [punk rock singers female](https://music.allwomenstalk.com/rocking-female-fronted-bands/)
-- [inspirational fictional characters](https://inspiration.allwomenstalk.com/amazing-fictional-women-who-are-inspirational-in-my-life/)
+- [oscar mbo child](https://celebs.allwomenstalk.com/female-watch-brand-ambassadors/)
 - [carrie bradshaw 80s outfit](https://fashion.allwomenstalk.com/fashionable-female-characters-on-tv-today/)
+- [janet esteves mickey mouse](https://lifestyle.allwomenstalk.com/women-with-huge-collections/)
+- [inspirational fictional characters](https://inspiration.allwomenstalk.com/amazing-fictional-women-who-are-inspirational-in-my-life/)
 - [7 Strong and Inspiring Female Characters from Movi...](https://movies.allwomenstalk.com/7-strong-and-inspiring-female-characters-from-movies/)
 - [7 of My Favorite Celebrities ...](https://celebs.allwomenstalk.com/7-of-my-favorite-celebrities/)
 

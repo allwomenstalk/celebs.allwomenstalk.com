@@ -3,7 +3,7 @@ title: "Fan-Favorite Fictional Couples Who Dated off-Screen Too ..."
 description: "Alexis Bledel and Milo Ventimiglia; Mindy Kaling and BJ Novak; Ryan Reynolds and Blake Lively; Ashton Kutcher and Mila Kunis; Andrew Garfield and Emma Stone; More ..."
 url: "https://celebs.allwomenstalk.com/of-your-favorite-fictional-couples-who-dated-off-screen-too/"
 category: "celebs"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # Fan\-Favorite Fictional Couples Who Dated off\-Screen Too ...
@@ -56,16 +56,16 @@ Who’s your favorite on screen and off-screen couple? Let me know in the commen
 
 ## Related Posts
 
-- [you are beautiful inside and out](https://celebs.allwomenstalk.com/celebrities-who-are-beautiful-inside-and-out/)
-- [reese witherspoon as june carter](https://celebs.allwomenstalk.com/celebrities-who-look-exactly-like-who-they-portrayed-in-a-biopic/)
 - [jack falahee weight gain](https://celebs.allwomenstalk.com/breakout-celebrities-of/)
-- [carrie underwood prego](https://fashion.allwomenstalk.com/stars-with-the-best-baby-bump-style-of-all-time/)
+- [reese witherspoon as june carter](https://celebs.allwomenstalk.com/celebrities-who-look-exactly-like-who-they-portrayed-in-a-biopic/)
 - [famous people on twitter](https://celebs.allwomenstalk.com/of-the-most-followed-celebrities-on-twitter/)
 - [victoria justice and katharine mcphee](https://celebs.allwomenstalk.com/underrated-celebrities-that-should-be-more-famous/)
-- [kelly osbourne skinny](https://celebs.allwomenstalk.com/celebrities-that-had-a-major-weight-loss-transformation/)
-- [hemsworth brothers shirtless](https://celebs.allwomenstalk.com/photos-of-the-hemsworth-brothers-to-make-your-ovaries-explode/)
+- [you are beautiful inside and out](https://celebs.allwomenstalk.com/celebrities-who-are-beautiful-inside-and-out/)
 - [man in tight leather pants](https://celebs.allwomenstalk.com/our-favorite-male-celebrities-looking-good-in-leather/)
+- [carrie underwood prego](https://fashion.allwomenstalk.com/stars-with-the-best-baby-bump-style-of-all-time/)
+- [kelly osbourne skinny](https://celebs.allwomenstalk.com/celebrities-that-had-a-major-weight-loss-transformation/)
 - [richard madden hairstyle](https://celebs.allwomenstalk.com/male-actors-to-swoon-over-this-year/)
+- [hemsworth brothers shirtless](https://celebs.allwomenstalk.com/photos-of-the-hemsworth-brothers-to-make-your-ovaries-explode/)
 - [10 Celebrity Couples Who Raced up the Aisle ...](https://allwomenstalk.com/10-celebrity-couples-who-raced-up-the-aisle/)
 - [Top 10 Most Adorable Movie Couples ...](https://allwomenstalk.com/top-10-most-adorable-movie-couples/)
 

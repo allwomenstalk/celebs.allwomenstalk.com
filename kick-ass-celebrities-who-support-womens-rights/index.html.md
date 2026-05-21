@@ -3,7 +3,7 @@ title: "7 Kick-Ass Celebrities Who Support Womens Rights ..."
 description: "Patrick Stewart; Angelina Jolie; Rob Delaney; Lily Allen; Natalie Portman; More ..."
 url: "https://celebs.allwomenstalk.com/kick-ass-celebrities-who-support-womens-rights/"
 category: "celebs"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 7 Kick\-Ass Celebrities Who Support Womens Rights ...
@@ -56,15 +56,15 @@ All of these individuals don't just campaign for causes that benefit women. Take
 
 ## Related Posts
 
+- [50s models](https://celebs.allwomenstalk.com/most-beautiful-and-inspiring-over-50s-models/)
+- [margareta av anjou](https://celebs.allwomenstalk.com/controversial-queens-we-still-talk-about-today/)
+- [supermodels on trampoline](https://celebs.allwomenstalk.com/amazing-supermodels-i-want-to-be-friends-with/)
+- [is geena davis nice](https://celebs.allwomenstalk.com/actresses-that-speak-their-minds/)
+- [on wednesdays we wear pink date](https://teen.allwomenstalk.com/mean-girls-references-you-need-to-be-aware-of-for-any-conversation/)
 - [glamorous jobs that pay well](https://lifestyle.allwomenstalk.com/glamorous-careers-wed-all-kill-to-have/)
 - [princess movie characters](https://movies.allwomenstalk.com/unofficial-disney-princesses-that-you-might-not-know-about/)
-- [50s models](https://celebs.allwomenstalk.com/most-beautiful-and-inspiring-over-50s-models/)
-- [on wednesdays we wear pink date](https://teen.allwomenstalk.com/mean-girls-references-you-need-to-be-aware-of-for-any-conversation/)
 - [best tv moms of all time](https://movies.allwomenstalk.com/of-the-best-tv-moms-that-you-wish-were-yours/)
 - [tv shows with strong female leads](https://movies.allwomenstalk.com/strong-female-characters-on-tv-who-are-truly-inspiring/)
-- [margareta av anjou](https://celebs.allwomenstalk.com/controversial-queens-we-still-talk-about-today/)
-- [is geena davis nice](https://celebs.allwomenstalk.com/actresses-that-speak-their-minds/)
-- [supermodels on trampoline](https://celebs.allwomenstalk.com/amazing-supermodels-i-want-to-be-friends-with/)
 - [vera farmiga sister actress](https://celebs.allwomenstalk.com/underrated-actresses-who-deserve-more-attention/)
 - [10 Stunning Leading Ladies ...](https://movies.allwomenstalk.com/stunning-leading-ladies/)
 - [7 Wonderful Black Actresses ...](https://celebs.allwomenstalk.com/7-wonderful-black-actresses/)

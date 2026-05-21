@@ -3,7 +3,7 @@ title: "Beauty & Brains! 9 Celebrities That Went Back to School ..."
 description: "Tyra Banks; Emma Watson; Eva Longoria; Jodie Foster; Shakira; More ..."
 url: "https://celebs.allwomenstalk.com/beauty-brains-celebrities-that-went-back-to-school/"
 category: "celebs"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # Beauty & Brains! 9 Celebrities That Went Back to School ...
@@ -69,16 +69,16 @@ Let these awesome women inspire you! If you took some time off of school, know t
 
 ## Related Posts
 
-- [celebs in open marriages](https://celebs.allwomenstalk.com/inspiring-celeb-marriages-that-are-actually-long-lasting/)
+- [cute celebrity couples](https://celebs.allwomenstalk.com/the-cutest-new-celebrity-couples-of/)
 - [fame vs celebrity](https://celebs.allwomenstalk.com/why-we-all-need-to-stop-envying-celebrities/)
+- [celebs in open marriages](https://celebs.allwomenstalk.com/inspiring-celeb-marriages-that-are-actually-long-lasting/)
 - [big bang top hair](https://music.allwomenstalk.com/kpop-stars-who-rocked-their-hair-color/)
+- [ariana grande workout clothes](https://fitness.allwomenstalk.com/sweat-in-style-check-out-these-celebs-in-workout-gear/)
+- [affleck and garner having a cozy moment](https://celebs.allwomenstalk.com/ben-affleck-and-jennifer-garners-cutest-moments/)
+- [sensational beginnings](https://movies.allwomenstalk.com/actors-with-terrible-tv-beginnings/)
 - [whoopi goldberg avpd](https://celebs.allwomenstalk.com/successful-stars-with-mental-disorders/)
 - [gay love stories movie](https://movies.allwomenstalk.com/times-hollywood-got-gay-love-right/)
-- [sensational beginnings](https://movies.allwomenstalk.com/actors-with-terrible-tv-beginnings/)
-- [affleck and garner having a cozy moment](https://celebs.allwomenstalk.com/ben-affleck-and-jennifer-garners-cutest-moments/)
-- [ariana grande workout clothes](https://fitness.allwomenstalk.com/sweat-in-style-check-out-these-celebs-in-workout-gear/)
 - [ariana grande doughnut drama](https://celebs.allwomenstalk.com/arianas-not-alone-here-are-some-other-celebs-eating-donuts/)
-- [cute celebrity couples](https://celebs.allwomenstalk.com/the-cutest-new-celebrity-couples-of/)
 - [25 Smartest Celebrities ...](https://celebs.allwomenstalk.com/25-smartest-celebrities/)
 - [7 Celebrities Proving That Bangs Are Back ...](https://celebs.allwomenstalk.com/celebrities-proving-that-bangs-are-back/)
 

@@ -3,7 +3,7 @@ title: "7 ABC Celebrities Who Are Totally Crush-Worthy ..."
 description: "Tony Goldwyn; Joshua Bowman; Sam Palladio; Patrick Dempsey; Avan Jogia; More ..."
 url: "https://celebs.allwomenstalk.com/abc-celebrities-who-are-totally-crush-worthy/"
 category: "celebs"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 7 ABC Celebrities Who Are Totally Crush\-Worthy ...
@@ -56,15 +56,15 @@ Well, there you have it! These are just seven out of many ABC celebrities who'll
 
 ## Related Posts
 
-- [who did scooter braun manage](https://celebs.allwomenstalk.com/celebs-who-have-scooter-braun-as-a-manager/)
-- [celebs in nashville](https://movies.allwomenstalk.com/celebs-from-nashville-who-love-to-live-tweet-during-the-show/)
-- [christian bale and rowan atkinson](https://movies.allwomenstalk.com/potential-actors-for-james-bonds-role-that-will-probably-never-happen/)
-- [jane kaczmarek husband](https://celebs.allwomenstalk.com/celebrity-mothers-who-had-their-first-baby-after-40/)
 - [that wish would go away](https://celebs.allwomenstalk.com/celebrities-we-wish-would-go-away/)
-- [how did tori kelly get famous](https://celebs.allwomenstalk.com/celebrities-who-have-praised-tori-kellys-talents/)
-- [kristin davis adopted child](https://celebs.allwomenstalk.com/celebrities-who-have-adopted-kids/)
-- [blake lively sobriety](https://celebs.allwomenstalk.com/celebs-who-live-a-sober-lifestyle/)
+- [celebs in nashville](https://movies.allwomenstalk.com/celebs-from-nashville-who-love-to-live-tweet-during-the-show/)
+- [jane kaczmarek husband](https://celebs.allwomenstalk.com/celebrity-mothers-who-had-their-first-baby-after-40/)
 - [who is ariana grande husband](https://celebs.allwomenstalk.com/celebs-who-have-praised-ariana-grandes-talent/)
+- [christian bale and rowan atkinson](https://movies.allwomenstalk.com/potential-actors-for-james-bonds-role-that-will-probably-never-happen/)
+- [kristin davis adopted child](https://celebs.allwomenstalk.com/celebrities-who-have-adopted-kids/)
+- [who did scooter braun manage](https://celebs.allwomenstalk.com/celebs-who-have-scooter-braun-as-a-manager/)
+- [blake lively sobriety](https://celebs.allwomenstalk.com/celebs-who-live-a-sober-lifestyle/)
+- [how did tori kelly get famous](https://celebs.allwomenstalk.com/celebrities-who-have-praised-tori-kellys-talents/)
 - [comedian with red hat](https://celebs.allwomenstalk.com/stars-who-died-whilst-doing-what-they-loved/)
 - [7 of My Favorite Celebrities ...](https://celebs.allwomenstalk.com/7-of-my-favorite-celebrities/)
 - [6 Cute Celeb News to Gush over ...](https://allwomenstalk.com/6-cute-celeb-news-to-gush-over/)

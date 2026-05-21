@@ -3,7 +3,7 @@ title: "24 Celebs We Said a Sad Farewell to in 2015 ..."
 description: "Leonard Nimoy; Donna Douglas; Ellen Albertini Dow; James Best; Christopher Lee; More ..."
 url: "https://celebs.allwomenstalk.com/the-celebs-we-said-a-sad-farewell-to-in/"
 category: "celebs"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 24 Celebs We Said a Sad Farewell to in 2015 ...
@@ -158,16 +158,16 @@ I know this list isn't complete... who would you add?
 
 ## Related Posts
 
-- [rowan blanchard pixie](https://fashion.allwomenstalk.com/these-teen-stars-have-some-serious-style/)
-- [famous women who wear glasses](https://celebs.allwomenstalk.com/how-to-wear-glasses-as-told-by-celebrities/)
-- [light skin actors in their 20s](https://celebs.allwomenstalk.com/dont-feel-bad-what-successful-celebs-were-doing-in-their-20s/)
-- [new artists 2016](https://music.allwomenstalk.com/artists-that-are-going-to-hit-it-big-in/)
-- [celebrities imitating other celebrities](https://celebs.allwomenstalk.com/youve-got-to-see-these-celebrities-imitating-other-celebrities/)
-- [high school musical audition](https://movies.allwomenstalk.com/high-school-musical-reunion-see-the-actors-audition-tapes/)
-- [who is the most hated celebrity in the world](https://celebs.allwomenstalk.com/haters-gonna-hate-of-the-most-controversial-celebrities/)
-- [emma stone lip filler](https://celebs.allwomenstalk.com/see-how-celebs-responded-perfectly-to-sexism/)
-- [disney recognize now](https://celebs.allwomenstalk.com/female-disney-stars-who-you-wont-even-recognize-now/)
 - [sexiest celebrities](https://celebs.allwomenstalk.com/sexy-male-celebrities-who-arent-white/)
+- [famous women who wear glasses](https://celebs.allwomenstalk.com/how-to-wear-glasses-as-told-by-celebrities/)
+- [rowan blanchard pixie](https://fashion.allwomenstalk.com/these-teen-stars-have-some-serious-style/)
+- [who is the most hated celebrity in the world](https://celebs.allwomenstalk.com/haters-gonna-hate-of-the-most-controversial-celebrities/)
+- [celebrities imitating other celebrities](https://celebs.allwomenstalk.com/youve-got-to-see-these-celebrities-imitating-other-celebrities/)
+- [new artists 2016](https://music.allwomenstalk.com/artists-that-are-going-to-hit-it-big-in/)
+- [disney recognize now](https://celebs.allwomenstalk.com/female-disney-stars-who-you-wont-even-recognize-now/)
+- [high school musical audition](https://movies.allwomenstalk.com/high-school-musical-reunion-see-the-actors-audition-tapes/)
+- [light skin actors in their 20s](https://celebs.allwomenstalk.com/dont-feel-bad-what-successful-celebs-were-doing-in-their-20s/)
+- [emma stone lip filler](https://celebs.allwomenstalk.com/see-how-celebs-responded-perfectly-to-sexism/)
 - [25 Most Messed up Celebrities ...](https://celebs.allwomenstalk.com/25-most-messed-up-celebrities/)
 - [14 Juiciest Celebrity Breakups ...](https://allwomenstalk.com/14-juiciest-celebrity-breakups/)
 

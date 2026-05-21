@@ -3,7 +3,7 @@ title: "7 Gorgeous WAGS at the World Cup ..."
 description: "Irina Shayk; Shakira; Jourdan Dunn; Laia Grassi; Evangelina Anderson; More ..."
 url: "https://celebs.allwomenstalk.com/gorgeous-wags-at-the-world-cup/"
 category: "celebs"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 7 Gorgeous WAGS at the World Cup ...
@@ -56,16 +56,16 @@ These are just a few of the WAGS at the World Cup who will capture the eye of ph
 
 ## Related Posts
 
-- [jonah hill jimmy kimmel](https://funny.allwomenstalk.com/hilarious-jonah-hill-interviews-thatll-keep-you-laughing/)
 - [disney voice over](https://movies.allwomenstalk.com/best-disney-voice-over-performances/)
+- [love jade teen](https://lifestyle.allwomenstalk.com/mysterious-creatures-that-only-exist-in-urban-legends/)
+- [unexpected nudity in movies](https://celebs.allwomenstalk.com/cases-of-embarrassing-accidental-nudity-caught-on-camera/)
+- [renfaire characters](https://funny.allwomenstalk.com/interesting-people-youll-see-at-a-renaissance-fair/)
 - [down east music festival](https://movies.allwomenstalk.com/things-we-learned-from-historys-down-east-dickering/)
-- [anime for all ages](https://movies.allwomenstalk.com/anime-shows-to-enjoy-at-any-age/)
 - [fictional businesses](https://money.allwomenstalk.com/fictional-companies-we-wish-were-real/)
 - [easiest directors to work with](https://movies.allwomenstalk.com/of-the-worst-directors-to-work-with/)
-- [love jade teen](https://lifestyle.allwomenstalk.com/mysterious-creatures-that-only-exist-in-urban-legends/)
 - [career in dancing](https://lifestyle.allwomenstalk.com/highs-and-lows-of-a-career-in-dancing/)
-- [renfaire characters](https://funny.allwomenstalk.com/interesting-people-youll-see-at-a-renaissance-fair/)
-- [unexpected nudity in movies](https://celebs.allwomenstalk.com/cases-of-embarrassing-accidental-nudity-caught-on-camera/)
+- [jonah hill jimmy kimmel](https://funny.allwomenstalk.com/hilarious-jonah-hill-interviews-thatll-keep-you-laughing/)
+- [anime for all ages](https://movies.allwomenstalk.com/anime-shows-to-enjoy-at-any-age/)
 - [8 World Famous Sports Teams ...](https://celebs.allwomenstalk.com/8-world-famous-sports-teams/)
 - [7 World Famous Sporting Trophies ...](https://lifestyle.allwomenstalk.com/world-famous-sporting-trophies/)
 

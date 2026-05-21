@@ -3,7 +3,7 @@ title: "What do These Celebrities Look like without Makeup?"
 description: "Emma Watson; Iggy Azalea; Olivia Wilde; Jennifer Lopez; Jada Pinkett Smith; More ..."
 url: "https://celebs.allwomenstalk.com/what-do-these-celebrities-look-like-without-makeup/"
 category: "celebs"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # What do These Celebrities Look like without Makeup?
@@ -56,16 +56,16 @@ Do you go makeup-free every now and then?
 
 ## Related Posts
 
-- [rumer willis wardrobe](https://celebs.allwomenstalk.com/yikes-celebs-their-wardrobe-malfunctions/)
-- [celebrities with cat](https://celebs.allwomenstalk.com/celebrities-who-are-major-cat-ladies/)
-- [most freckles in the world](https://celebs.allwomenstalk.com/celebrities-with-freckles-thatll-make-you-embrace-your-own/)
 - [ian somerhalder niece](https://celebs.allwomenstalk.com/celebrity-posts-you-mightve-missed-this-weekend-3/)
-- [la maximalist eyeshadow primped previous](https://celebs.allwomenstalk.com/whoa-who-knew-these-celebs-are-the-same-age/)
+- [rumer willis wardrobe](https://celebs.allwomenstalk.com/yikes-celebs-their-wardrobe-malfunctions/)
+- [most freckles in the world](https://celebs.allwomenstalk.com/celebrities-with-freckles-thatll-make-you-embrace-your-own/)
 - [shakira guinness world records](https://celebs.allwomenstalk.com/celebrities-with-guinness-world-records/)
 - [what would you do if you meet your favourite celeb...](https://celebs.allwomenstalk.com/tricks-that-might-help-you-meet-your-favorite-celebrity/)
+- [celebrities with cat](https://celebs.allwomenstalk.com/celebrities-who-are-major-cat-ladies/)
+- [florence welch natural hair color](https://hair.allwomenstalk.com/these-fiery-celeb-redheads-will-finally-convince-you-to-take-the-plunge/)
 - [barrie james oneill height](https://celebs.allwomenstalk.com/celebrity-couples-who-split-in/)
 - [celebrities just like us](https://celebs.allwomenstalk.com/just-like-us-celebrity-couples-who-love-a-little-pda/)
-- [florence welch natural hair color](https://hair.allwomenstalk.com/these-fiery-celeb-redheads-will-finally-convince-you-to-take-the-plunge/)
+- [la maximalist eyeshadow primped previous](https://celebs.allwomenstalk.com/whoa-who-knew-these-celebs-are-the-same-age/)
 - [4 Celebs That Shot to Fame after Cosmetic Surgery....](https://celebs.allwomenstalk.com/celebs-that-shot-to-fame-after-cosmetic-surgery/)
 - [Smile like a Celebrity](https://allwomenstalk.com/smile-like-a-celebrity/)
 

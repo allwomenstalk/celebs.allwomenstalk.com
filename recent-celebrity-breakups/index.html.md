@@ -3,7 +3,7 @@ title: "7 Recent Celebrity Breakups ..."
 description: "Arnold Schwarzenegger and Maria Shriver; Scarlett Johansson and Sean Penn; Cameron Diaz and Alex Rodriguez; Ryan Phillippe and Amanda Seyfried; Adrianne Curry and Christopher Knight; More ..."
 url: "https://celebs.allwomenstalk.com/recent-celebrity-breakups/"
 category: "celebs"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 7 Recent Celebrity Breakups ...
@@ -64,16 +64,16 @@ Top Photo Credit: [beastandbean](https://www.flickr.com/photos/12861589@N03/3930
 
 ## Related Posts
 
-- [female celebrities with dimples](https://celebs.allwomenstalk.com/cool-celebrities-with-dimples/)
+- [bubbly personality celebrities](https://celebs.allwomenstalk.com/7-of-my-favorite-celebrities/)
+- [katharine hepburn height weight](https://celebs.allwomenstalk.com/enduring-celebrity-myths/)
 - [beta male drawing](https://celebs.allwomenstalk.com/sweetly-sexy-hollywood-beta-males/)
 - [fashionable celebrities](https://celebs.allwomenstalk.com/fashionable-celebrities-to-watch-in/)
-- [renee zellweger kenny chesney wedding](https://celebs.allwomenstalk.com/famous-hollywood-divorces/)
-- [katharine hepburn height weight](https://celebs.allwomenstalk.com/enduring-celebrity-myths/)
-- [celebrities to follow on twitter](https://celebs.allwomenstalk.com/celebs-to-follow-on-twitter/)
-- [worst table manners](https://celebs.allwomenstalk.com/celebrities-with-awful-table-manners/)
-- [child stars who aged badly](https://celebs.allwomenstalk.com/celebrities-that-look-older-than-their-true-age/)
-- [bubbly personality celebrities](https://celebs.allwomenstalk.com/7-of-my-favorite-celebrities/)
 - [celebs who live in nyc](https://celebs.allwomenstalk.com/celebrities-who-live-in-nyc/)
+- [celebrities to follow on twitter](https://celebs.allwomenstalk.com/celebs-to-follow-on-twitter/)
+- [child stars who aged badly](https://celebs.allwomenstalk.com/celebrities-that-look-older-than-their-true-age/)
+- [worst table manners](https://celebs.allwomenstalk.com/celebrities-with-awful-table-manners/)
+- [female celebrities with dimples](https://celebs.allwomenstalk.com/cool-celebrities-with-dimples/)
+- [renee zellweger kenny chesney wedding](https://celebs.allwomenstalk.com/famous-hollywood-divorces/)
 - [7 Biggest Celebrity Weddings ...](https://wedding.allwomenstalk.com/biggest-celebrity-weddings/)
 - [7 Greatly Astonishing Celebrity Scandals ...](https://celebs.allwomenstalk.com/greatly-astonishing-celebrity-scandals/)
 

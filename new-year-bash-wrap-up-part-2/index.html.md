@@ -3,7 +3,7 @@ title: "New Year Bash Wrap-up: Part 2 ..."
 description: "Stay ahead, stay chic. Trusted guides on beauty, wellness, fashion, and everything that defines today's empowered woman."
 url: "https://celebs.allwomenstalk.com/new-year-bash-wrap-up-part-2/"
 category: "celebs"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # New Year Bash Wrap\-up: Part 2 ...
@@ -37,14 +37,14 @@ So what did you do on the 31st??
 ## Related Posts
 
 - [7 People Who Shouldnt Have Been Assassinated ...](https://celebs.allwomenstalk.com/7-people-who-shouldnt-have-been-assassinated/)
-- [favorite vines](https://gardening.allwomenstalk.com/5-of-my-favorite-vines/)
-- [dadt pink](https://celebs.allwomenstalk.com/stars-come-out-in-support-of-dadt-repeal/)
-- [best rags to riches stories](https://celebs.allwomenstalk.com/best-from-rags-to-riches-stories/)
 - [cool butterflies](https://gardening.allwomenstalk.com/5-cool-butterflies/)
-- [New Year Bash Wrap-up: Part 1 ...](https://celebs.allwomenstalk.com/new-year-bash-wrap-up-part-1/)
+- [best rags to riches stories](https://celebs.allwomenstalk.com/best-from-rags-to-riches-stories/)
 - [awesome birds](https://gardening.allwomenstalk.com/5-awesome-birds/)
-- [Cooks Love for Mother Earth Revealed...](https://celebs.allwomenstalk.com/cooks-love-for-mother-earth-revealed/)
 - [mythbusters obama](https://celebs.allwomenstalk.com/obama-on-mythbusters/)
+- [New Year Bash Wrap-up: Part 1 ...](https://celebs.allwomenstalk.com/new-year-bash-wrap-up-part-1/)
+- [dadt pink](https://celebs.allwomenstalk.com/stars-come-out-in-support-of-dadt-repeal/)
+- [favorite vines](https://gardening.allwomenstalk.com/5-of-my-favorite-vines/)
+- [Cooks Love for Mother Earth Revealed...](https://celebs.allwomenstalk.com/cooks-love-for-mother-earth-revealed/)
 - [amazing butterflies](https://gardening.allwomenstalk.com/5-amazing-butterflies/)
 - [5 Ways to Celebrate Your New Years Eve Wedding ...](https://wedding.allwomenstalk.com/5-ways-to-celebrate-your-new-years-eve-wedding/)
 - [Some Fun Stuff....](https://allwomenstalk.com/some-fun-stuff/)

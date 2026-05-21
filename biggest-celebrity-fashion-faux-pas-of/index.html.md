@@ -3,7 +3,7 @@ title: "7 Biggest Celebrity Fashion Faux Pas of 2011 ..."
 description: "Nicki Minaj – Whacky Outfit Choices; Katy Perry – Cube Hat; Miley Cyrus –VMA Awards; Kim Kardashian – Head to Toe Animal Print; Princess Eugenie of York – Royal Wedding Outfit; More ..."
 url: "https://celebs.allwomenstalk.com/biggest-celebrity-fashion-faux-pas-of/"
 category: "celebs"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 7 Biggest Celebrity Fashion Faux Pas of 2011 ...
@@ -63,16 +63,16 @@ Top Image Source: [weheartit.com](https://goo.gl/DIvJvq)
 
 ## Related Posts
 
-- [katy perry smurfette dress](https://celebs.allwomenstalk.com/ugliest-celebrity-fashion-faux-pas-of/)
-- [25 Oscar Nominees Who Should Win This Year ...](https://bilbr.com/25-oscar-nominees-who-should-win-this-year/)
-- [The Oscar Race is on...](https://celebs.allwomenstalk.com/the-oscar-race-is-on/)
-- [iconic red carpet outfits](https://celebs.allwomenstalk.com/iconic-red-carpet-celebrity-looks/)
-- [golden globes 2011](https://celebs.allwomenstalk.com/golden-globe-nominations/)
-- [most stylish actresses](https://celebs.allwomenstalk.com/most-stylish-female-celebrities-of/)
 - [The Kings Speech Leads the SAG Nominations...](https://celebs.allwomenstalk.com/the-kings-speech-leads-the-sag-nominations/)
-- [nf face makeup](https://celebs.allwomenstalk.com/celebrity-fashion-face-off-pick-your-winners/)
-- [Grammy 2011 Nominations: Eminems Leads the Way ...](https://celebs.allwomenstalk.com/grammy-nominations-eminems-leads-the-way/)
+- [25 Oscar Nominees Who Should Win This Year ...](https://bilbr.com/25-oscar-nominees-who-should-win-this-year/)
+- [golden globes 2011](https://celebs.allwomenstalk.com/golden-globe-nominations/)
 - [emma watson harry potter premiere outfits](https://celebs.allwomenstalk.com/emma-watsons-red-carpet-looks-for-harry-potter/)
+- [katy perry smurfette dress](https://celebs.allwomenstalk.com/ugliest-celebrity-fashion-faux-pas-of/)
+- [nf face makeup](https://celebs.allwomenstalk.com/celebrity-fashion-face-off-pick-your-winners/)
+- [The Oscar Race is on...](https://celebs.allwomenstalk.com/the-oscar-race-is-on/)
+- [most stylish actresses](https://celebs.allwomenstalk.com/most-stylish-female-celebrities-of/)
+- [Grammy 2011 Nominations: Eminems Leads the Way ...](https://celebs.allwomenstalk.com/grammy-nominations-eminems-leads-the-way/)
+- [iconic red carpet outfits](https://celebs.allwomenstalk.com/iconic-red-carpet-celebrity-looks/)
 - [7 Fashionable Celebrities to Watch in 2012 ...](https://celebs.allwomenstalk.com/fashionable-celebrities-to-watch-in/)
 - [7 Hot Fall Fashion Trend for Fall 2011 ...](https://fashion.allwomenstalk.com/hot-fall-fashion-trend-for-fall/)
 

@@ -3,7 +3,7 @@ title: "4 Photos of SJP Heads to School ..."
 description: "Stay ahead, stay chic. Trusted guides on beauty, wellness, fashion, and everything that defines today's empowered woman."
 url: "https://celebs.allwomenstalk.com/sjp-heads-to-school/"
 category: "celebs"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 4 Photos of SJP Heads to School ...
@@ -21,16 +21,16 @@ City: [New York](https://celebs.allwomenstalk.com/tag/new-york/)
 
 ## Related Posts
 
-- [4 Photos of Lilly Allens Growing Belly ...](https://celebs.allwomenstalk.com/lilly-allens-growing-belly/)
-- [christina aguilera kids](https://celebs.allwomenstalk.com/christina-takes-max-shopping/)
-- [katy naughty](https://celebs.allwomenstalk.com/katy-perry-to-get-naughty-with-ted-mosby/)
+- [mtv hot](https://celebs.allwomenstalk.com/mtv-emas-hot-hostess-eva-longoria/)
+- [hayden panettiere alpha and omega](https://celebs.allwomenstalk.com/hayden-panettiere-smiley-at-radio-1/)
+- [penn badgely height](https://celebs.allwomenstalk.com/blake-and-penn-still-friends/)
 - [katy perry snow white](https://celebs.allwomenstalk.com/katy-perry-channels-the-roaring-20s-for-ghd/)
 - [kanye and kim music video](https://celebs.allwomenstalk.com/kim-kardashian-makes-a-video-with-kanye-west/)
-- [rihanna toned](https://celebs.allwomenstalk.com/rihannas-toned-legs/)
-- [hayden panettiere alpha and omega](https://celebs.allwomenstalk.com/hayden-panettiere-smiley-at-radio-1/)
-- [mtv hot](https://celebs.allwomenstalk.com/mtv-emas-hot-hostess-eva-longoria/)
-- [penn badgely height](https://celebs.allwomenstalk.com/blake-and-penn-still-friends/)
+- [4 Photos of Lilly Allens Growing Belly ...](https://celebs.allwomenstalk.com/lilly-allens-growing-belly/)
 - [colleen locklear](https://celebs.allwomenstalk.com/heather-locklear-takes-sis-shopping/)
+- [rihanna toned](https://celebs.allwomenstalk.com/rihannas-toned-legs/)
+- [christina aguilera kids](https://celebs.allwomenstalk.com/christina-takes-max-shopping/)
+- [katy naughty](https://celebs.allwomenstalk.com/katy-perry-to-get-naughty-with-ted-mosby/)
 - [6 Beautiful Bridal Shoes for Kate Middleton ...](https://wedding.allwomenstalk.com/beautiful-bridal-shoes-for-kate-middleton/)
 - [6 Beautiful Green Givenchy High Heels ...](https://shoes.allwomenstalk.com/beautiful-green-givenchy-high-heels/)
 

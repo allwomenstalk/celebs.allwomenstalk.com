@@ -3,7 +3,7 @@ title: "Celebrities Share Makeup-free Selfies for New UNICEF Campaign ..."
 description: "Cindy Crawford; Lisa Rinna; Rosie Huntington-whiteley; Anna Kendrick; Alexa Chung; More ..."
 url: "https://celebs.allwomenstalk.com/celebrities-share-makeup-free-selfies-for-new-unicef-campaign/"
 category: "celebs"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # Celebrities Share Makeup\-free Selfies for New UNICEF Campaign ...
@@ -44,16 +44,16 @@ Have you done the #WakeUpCall challenge?
 
 ## Related Posts
 
+- [10 Celebrity TBT Photos You May Have Missed This W...](https://celebs.allwomenstalk.com/celebrity-tbt-photos-you-may-have-missed-this-week-3/)
 - [10 Celebrity TBT Photos You May Have Missed This W...](https://celebs.allwomenstalk.com/celebrity-tbt-photos-you-may-have-missed-this-week-2/)
-- [10 Celebrity Posts You Mightve Missed This Weekend...](https://celebs.allwomenstalk.com/celebrity-posts-you-mightve-missed-this-weekend-4/)
+- [10 Celebrity Posts You Mightve Missed This Weekend...](https://celebs.allwomenstalk.com/celebrity-posts-you-mightve-missed-this-weekend/)
 - [10 Celebrity Posts You Mightve Missed This Weekend...](https://celebs.allwomenstalk.com/celebrity-posts-you-mightve-missed-this-weekend-6/)
 - [Find out How You Can Join the Worlds Largest Sing-...](https://music.allwomenstalk.com/find-out-how-you-can-join-the-worlds-largest-sing-along-with-your-fave-celebs/)
-- [Celebs Share Voting Day Selfies to Encourage Fans ...](https://celebs.allwomenstalk.com/celebs-share-voting-day-selfies-to-encourage-fans-to-vote/)
-- [10 Celebrity Posts You Mightve Missed This Weekend...](https://celebs.allwomenstalk.com/celebrity-posts-you-mightve-missed-this-weekend/)
-- [tbt posts](https://celebs.allwomenstalk.com/celebrity-tbt-posts-you-mightve-missed-this-week-3/)
-- [10 Celebrity Posts You Mightve Missed This Weekend...](https://celebs.allwomenstalk.com/celebrity-posts-you-mightve-missed-this-weekend-5/)
 - [10 Celebrity Posts You Mightve Missed This Weekend...](https://celebs.allwomenstalk.com/celebrity-posts-you-mightve-missed-this-weekend-2/)
-- [10 Celebrity TBT Photos You May Have Missed This W...](https://celebs.allwomenstalk.com/celebrity-tbt-photos-you-may-have-missed-this-week-3/)
+- [10 Celebrity Posts You Mightve Missed This Weekend...](https://celebs.allwomenstalk.com/celebrity-posts-you-mightve-missed-this-weekend-5/)
+- [Celebs Share Voting Day Selfies to Encourage Fans ...](https://celebs.allwomenstalk.com/celebs-share-voting-day-selfies-to-encourage-fans-to-vote/)
+- [tbt posts](https://celebs.allwomenstalk.com/celebrity-tbt-posts-you-mightve-missed-this-week-3/)
+- [10 Celebrity Posts You Mightve Missed This Weekend...](https://celebs.allwomenstalk.com/celebrity-posts-you-mightve-missed-this-weekend-4/)
 - [Top Celebrity Philantrophists ...](https://celebs.allwomenstalk.com/top-celebrity-philantrophists/)
 - [4 Celebs That Shot to Fame after Cosmetic Surgery....](https://celebs.allwomenstalk.com/celebs-that-shot-to-fame-after-cosmetic-surgery/)
 

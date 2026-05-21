@@ -3,7 +3,7 @@ title: "10 Big Celebrity News of 2011 ..."
 description: "William + Kate = Forever; Amy Winehouse Dies; The Kardashian Fiasco; Beyonce Announces Her Bump; Justin Bieber is a Babydaddy; More ..."
 url: "https://celebs.allwomenstalk.com/big-celebrity-news-of/"
 category: "celebs"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 10 Big Celebrity News of 2011 ...
@@ -56,16 +56,16 @@ Top Image Source: [weheartit.com](https://weheartit.com/entry/20513258)
 
 ## Related Posts
 
-- [celebrity cancer survivors](https://celebs.allwomenstalk.com/wonderfully-remarkable-celebrity-cancer-survivor-stories/)
-- [Publicists Publicizing Themselves ...](https://allwomenstalk.com/publicists-publicizing-themselves/)
-- [popbyes](https://allwomenstalk.com/kate-winslets-hollywood-life/)
 - [Most Fashionable Celebrity Parents](https://allwomenstalk.com/most-fashionable-celebrity-parents/)
-- [Play Catch-up with Your Favorite Reality Stars](https://allwomenstalk.com/play-catch-up-with-your-favorite-reality-stars/)
-- [5 Pieces to a Celeb Look for Less ...](https://fashion.allwomenstalk.com/pieces-to-a-celeb-look-for-less-2/)
-- [most famous affairs](https://love.allwomenstalk.com/extraordinary-famous-love-affairs/)
 - [Lepaparazzi News Update: the 10 List: Hollywoods W...](https://allwomenstalk.com/lepaparazzi-news-update-the-10-list-hollywoods-weekly-buzz/)
-- [bob hope chrysler classic](https://allwomenstalk.com/celebrity-stalking-at-the-bob-hope-chrysler-classic/)
+- [celebrity cancer survivors](https://celebs.allwomenstalk.com/wonderfully-remarkable-celebrity-cancer-survivor-stories/)
+- [Play Catch-up with Your Favorite Reality Stars](https://allwomenstalk.com/play-catch-up-with-your-favorite-reality-stars/)
+- [most famous affairs](https://love.allwomenstalk.com/extraordinary-famous-love-affairs/)
+- [5 Pieces to a Celeb Look for Less ...](https://fashion.allwomenstalk.com/pieces-to-a-celeb-look-for-less-2/)
 - [sundance film festival outfits](https://allwomenstalk.com/star-sightings-at-the-sundance-film-festival-january-18-22/)
+- [bob hope chrysler classic](https://allwomenstalk.com/celebrity-stalking-at-the-bob-hope-chrysler-classic/)
+- [popbyes](https://allwomenstalk.com/kate-winslets-hollywood-life/)
+- [Publicists Publicizing Themselves ...](https://allwomenstalk.com/publicists-publicizing-themselves/)
 - [Highest Earning Celebrities of 2010...](https://celebs.allwomenstalk.com/highest-earning-celebrities-of/)
 - [7 Inspiring Celebrities of 2011 ...](https://celebs.allwomenstalk.com/inspiring-celebrities-of/)
 

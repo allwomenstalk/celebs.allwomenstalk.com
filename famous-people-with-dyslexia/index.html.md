@@ -3,7 +3,7 @@ title: "7 Famous People with Dyslexia ..."
 description: "Tom Cruise; Orlando Bloom; Cher; Keira Knightley; Prince Harry; More ..."
 url: "https://celebs.allwomenstalk.com/famous-people-with-dyslexia/"
 category: "celebs"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 7 Famous People with Dyslexia ...
@@ -56,16 +56,16 @@ There are probably more celebrities than you think that suffer from dyslexia, an
 
 ## Related Posts
 
-- [tattoo celebrity male](https://celebs.allwomenstalk.com/hot-celebs-with-tattoos-who-look-great-shirtless/)
-- [celebrities who started from the bottom](https://celebs.allwomenstalk.com/celebrities-who-started-from-the-bottom-and-rose-to-the-top/)
-- [his three daughters cast](https://celebs.allwomenstalk.com/celebrities-with-more-than-3-children/)
-- [brunette actress with big eyes](https://celebs.allwomenstalk.com/actresses-with-beautiful-eyes-that-mesmerize/)
-- [miley cyrus coachella outfit](https://celebs.allwomenstalk.com/celebrities-who-looked-fab-at-coachella/)
-- [anna chlumsky swimsuit](https://celebs.allwomenstalk.com/child-stars-and-where-they-are-now/)
-- [toby regbo shirtless](https://celebs.allwomenstalk.com/teen-celebrities-worth-fangirling-over/)
-- [cute famous couples](https://celebs.allwomenstalk.com/adorable-celebrity-couples-we-wish-were-more-public/)
 - [sean faris and robbie amell](https://celebs.allwomenstalk.com/celebs-from-cws-arrow-that-are-social-on-twitter/)
+- [cute famous couples](https://celebs.allwomenstalk.com/adorable-celebrity-couples-we-wish-were-more-public/)
+- [tattoo celebrity male](https://celebs.allwomenstalk.com/hot-celebs-with-tattoos-who-look-great-shirtless/)
+- [anna chlumsky swimsuit](https://celebs.allwomenstalk.com/child-stars-and-where-they-are-now/)
+- [celebrities who started from the bottom](https://celebs.allwomenstalk.com/celebrities-who-started-from-the-bottom-and-rose-to-the-top/)
+- [brunette actress with big eyes](https://celebs.allwomenstalk.com/actresses-with-beautiful-eyes-that-mesmerize/)
 - [mean girls anniversary](https://celebs.allwomenstalk.com/celebs-who-celebrated-mean-girls-10-year-anniversary/)
+- [toby regbo shirtless](https://celebs.allwomenstalk.com/teen-celebrities-worth-fangirling-over/)
+- [miley cyrus coachella outfit](https://celebs.allwomenstalk.com/celebrities-who-looked-fab-at-coachella/)
+- [his three daughters cast](https://celebs.allwomenstalk.com/celebrities-with-more-than-3-children/)
 - [7 Celebrities Who Smoke Weed ...](https://celebs.allwomenstalk.com/celebrities-who-smoke-weed/)
 - [7 Celebrities with Addictions ...](https://celebs.allwomenstalk.com/celebrities-with-addictions/)
 

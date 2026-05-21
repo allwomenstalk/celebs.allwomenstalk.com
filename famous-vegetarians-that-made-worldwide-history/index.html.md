@@ -3,7 +3,7 @@ title: "9 Famous Vegetarians That Made Worldwide History ..."
 description: "Plato; Albert Einstein; Gandhi; Benjamin Franklin; Leonardo Da Vinci; More ..."
 url: "https://celebs.allwomenstalk.com/famous-vegetarians-that-made-worldwide-history/"
 category: "celebs"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 9 Famous Vegetarians That Made Worldwide History ...
@@ -53,15 +53,15 @@ Though I believe everyone is entitled to their own choice of what they eat, I al
 ## Related Posts
 
 - [does cottage cheese help acid reflux](https://health.allwomenstalk.com/foods-to-eat-to-help-with-acid-reflux/)
-- [cost of fruits and veggies vitamins](https://food.allwomenstalk.com/superfoods-that-cost-less-than-1-to-add-to-your-diet/)
-- [pre workout vegan](https://fitness.allwomenstalk.com/vegan-pre-workout-snacks-that-will-fuel-your-workout-and-increase-endurance/)
-- [uses of coconut milk](https://food.allwomenstalk.com/foods-that-could-cause-digestion-problems/)
-- [rush breakfast](https://food.allwomenstalk.com/breakfast-foods-you-should-be-eating-when-you-are-in-a-rush/)
 - [foods to try in germany](https://food.allwomenstalk.com/foods-you-should-try-while-in-germany/)
 - [sides for sliders](https://food.allwomenstalk.com/healthy-fast-food-sides-that-you-can-feel-good-about-eating/)
 - [what food has the most energy](https://food.allwomenstalk.com/scary-ingredients-found-in-most-energy-bars/)
-- [trader joes spices](https://health.allwomenstalk.com/herbs-and-spices-to-help-curb-a-sweet-tooth/)
+- [uses of coconut milk](https://food.allwomenstalk.com/foods-that-could-cause-digestion-problems/)
 - [can coconut increase weight](https://food.allwomenstalk.com/fattening-foods-that-you-should-eat-to-stay-slim-and-healthy-for-life/)
+- [rush breakfast](https://food.allwomenstalk.com/breakfast-foods-you-should-be-eating-when-you-are-in-a-rush/)
+- [cost of fruits and veggies vitamins](https://food.allwomenstalk.com/superfoods-that-cost-less-than-1-to-add-to-your-diet/)
+- [trader joes spices](https://health.allwomenstalk.com/herbs-and-spices-to-help-curb-a-sweet-tooth/)
+- [pre workout vegan](https://fitness.allwomenstalk.com/vegan-pre-workout-snacks-that-will-fuel-your-workout-and-increase-endurance/)
 - [10 Famous People Who Were Adopted ...](https://celebs.allwomenstalk.com/10-famous-people-who-were-adopted/)
 - [10 Insane Celebrity Fad Diets ...](https://celebs.allwomenstalk.com/insane-celebrity-fad-diets/)
 

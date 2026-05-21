@@ -3,7 +3,7 @@ title: "8 of My Favorite Classic Actresses ..."
 description: "Rita Hayworth; Natalie Wood; Mae West; Greta Garbo; Bette Davis; More ..."
 url: "https://celebs.allwomenstalk.com/8-of-my-favorite-classic-actresses/"
 category: "celebs"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 8 of My Favorite Classic Actresses ...
@@ -62,16 +62,16 @@ Out of this list of 8 of my favorite classic actresses, which one do you think s
 
 ## Related Posts
 
-- [notorious women](https://celebs.allwomenstalk.com/8-notorious-women/)
-- [7 Most Influential Women of the Last Decade ...](https://celebs.allwomenstalk.com/7-most-influential-women-of-the-last-decade/)
-- [most beautiful royal princess](https://celebs.allwomenstalk.com/famous-princesses-throughout-history/)
-- [good shows for girls](https://lifestyle.allwomenstalk.com/great-tv-shows-for-women/)
-- [most notable women in history](https://lifestyle.allwomenstalk.com/influential-women-throughout-history/)
-- [color riche stylo eye emerald conquest](https://allwomenstalk.com/cmon-ladiesbe-pigs/)
 - [7 Best Multivitamins for Women ...](https://health.allwomenstalk.com/best-multivitamins-for-women/)
 - [well known black actresses](https://celebs.allwomenstalk.com/7-wonderful-black-actresses/)
-- [debbi fields bikini](https://lifestyle.allwomenstalk.com/brilliant-female-entrepreneurs/)
 - [what did marion donovan invent](https://lifestyle.allwomenstalk.com/things-women-invented-first/)
+- [7 Most Influential Women of the Last Decade ...](https://celebs.allwomenstalk.com/7-most-influential-women-of-the-last-decade/)
+- [good shows for girls](https://lifestyle.allwomenstalk.com/great-tv-shows-for-women/)
+- [color riche stylo eye emerald conquest](https://allwomenstalk.com/cmon-ladiesbe-pigs/)
+- [notorious women](https://celebs.allwomenstalk.com/8-notorious-women/)
+- [most notable women in history](https://lifestyle.allwomenstalk.com/influential-women-throughout-history/)
+- [most beautiful royal princess](https://celebs.allwomenstalk.com/famous-princesses-throughout-history/)
+- [debbi fields bikini](https://lifestyle.allwomenstalk.com/brilliant-female-entrepreneurs/)
 - [8 of My Favourite Movie Characters ...](https://movies.allwomenstalk.com/8-of-my-favourite-movie-characters/)
 - [8 Most Memorable Silent Movie Stars ...](https://movies.allwomenstalk.com/8-most-memorable-silent-movie-stars/)
 
