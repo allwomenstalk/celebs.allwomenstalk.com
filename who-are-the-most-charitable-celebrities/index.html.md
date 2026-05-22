@@ -3,7 +3,7 @@ title: "Who Are Some of the Wokest Celebrities ?"
 description: "Bionic Yarn; Social Works; Serena Williams Foundation; Naja; The Diva Foundation; More ..."
 url: "https://celebs.allwomenstalk.com/who-are-the-most-charitable-celebrities/"
 category: "celebs"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # Who Are  Some of the Wokest Celebrities ?
@@ -32,16 +32,16 @@ Sheryl Lee Ralph, a Tony award-winning singer/actress, started The Diva Foundati
 
 ## Related Posts
 
+- [what toothpaste do celebrities use](https://beauty.allwomenstalk.com/perfect-ways-to-get-a-celebrity-smile/)
+- [celebrities with assault charges](https://allwomenstalk.com/celebs-accused-with-charges-of-sexual-assault/)
+- [riche le stylo eye primped and](https://allwomenstalk.com/stars-w-deadly-eating-disorders-popbytes/)
+- [greasy bear davis](https://allwomenstalk.com/hollywood-march-madness-nicole-v-paris-jacko-v-greasy-bear/)
+- [gal gadot brother](https://celebs.allwomenstalk.com/yaron-versano/)
 - [Stars W Deadly Eating Disorders](https://allwomenstalk.com/stars-w-deadly-eating-disorders/)
 - [best mym models](https://inspiration.allwomenstalk.com/meet-your-model-exclusive-content-from-your-favourite-personalities/)
 - [brazilian asian baby](https://celebs.allwomenstalk.com/dont-hate-me-cause-im-cute-adorable-celeb-kids-we-love/)
-- [greasy bear davis](https://allwomenstalk.com/hollywood-march-madness-nicole-v-paris-jacko-v-greasy-bear/)
-- [robert downey jr oscar winner](https://movies.allwomenstalk.com/incredible-actors-who-are-yet-to-win-an-oscar/)
-- [riche le stylo eye primped and](https://allwomenstalk.com/stars-w-deadly-eating-disorders-popbytes/)
-- [gal gadot brother](https://celebs.allwomenstalk.com/yaron-versano/)
-- [celebrities with assault charges](https://allwomenstalk.com/celebs-accused-with-charges-of-sexual-assault/)
-- [what toothpaste do celebrities use](https://beauty.allwomenstalk.com/perfect-ways-to-get-a-celebrity-smile/)
 - [laurence fishburne ex-wife](https://celebs.allwomenstalk.com/celebrity-couples-who-split-in-2018/)
+- [robert downey jr oscar winner](https://movies.allwomenstalk.com/incredible-actors-who-are-yet-to-win-an-oscar/)
 - [Top Celebrity Philantrophists ...](https://celebs.allwomenstalk.com/top-celebrity-philantrophists/)
 - [10 Celebrities Wearing All White Outfits  Who Wore...](https://celebs.allwomenstalk.com/celebrities-wearing-all-white-outfits-who-wore-it-best/)
 

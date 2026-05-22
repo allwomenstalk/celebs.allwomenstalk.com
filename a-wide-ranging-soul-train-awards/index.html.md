@@ -3,7 +3,7 @@ title: "A Wide Ranging Soul Train Awards ..."
 description: "Stay ahead, stay chic. Trusted guides on beauty, wellness, fashion, and everything that defines today's empowered woman."
 url: "https://celebs.allwomenstalk.com/a-wide-ranging-soul-train-awards/"
 category: "celebs"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # A Wide Ranging Soul Train Awards ...
@@ -34,16 +34,16 @@ Here's a complete list of the winners from the night:
 
 ## Related Posts
 
-- [katy perry smurfette dress](https://celebs.allwomenstalk.com/ugliest-celebrity-fashion-faux-pas-of/)
-- [nf face makeup](https://celebs.allwomenstalk.com/celebrity-fashion-face-off-pick-your-winners/)
-- [celebrities who turned down knighthood](https://celebs.allwomenstalk.com/7-people-who-have-refused-a-major-award/)
-- [vail bloom feet](https://celebs.allwomenstalk.com/easy-a-premiere/)
 - [vma celebrities](https://celebs.allwomenstalk.com/best-dressed-celebrities-at-the-mtv-video-music-awards/)
-- [who wore it better celebrities](https://celebs.allwomenstalk.com/same-celebrity-outfits-who-wore-it-better/)
-- [2010 Hollywood Style Awards ...](https://celebs.allwomenstalk.com/hollywood-style-awards/)
 - [celebrity fashion mistakes](https://celebs.allwomenstalk.com/biggest-celebrity-fashion-faux-pas-of/)
-- [golden globes 2011](https://celebs.allwomenstalk.com/golden-globe-nominations/)
+- [2010 Hollywood Style Awards ...](https://celebs.allwomenstalk.com/hollywood-style-awards/)
 - [The Best Dressed Women of 2010 ...](https://celebs.allwomenstalk.com/the-best-dressed-women-of/)
+- [katy perry smurfette dress](https://celebs.allwomenstalk.com/ugliest-celebrity-fashion-faux-pas-of/)
+- [golden globes 2011](https://celebs.allwomenstalk.com/golden-globe-nominations/)
+- [celebrities who turned down knighthood](https://celebs.allwomenstalk.com/7-people-who-have-refused-a-major-award/)
+- [nf face makeup](https://celebs.allwomenstalk.com/celebrity-fashion-face-off-pick-your-winners/)
+- [vail bloom feet](https://celebs.allwomenstalk.com/easy-a-premiere/)
+- [who wore it better celebrities](https://celebs.allwomenstalk.com/same-celebrity-outfits-who-wore-it-better/)
 - [25 Oscar Nominees Who Should Win This Year ...](https://bilbr.com/25-oscar-nominees-who-should-win-this-year/)
 - [Live Blogging the 49th Annual Grammy Awards ...](https://allwomenstalk.com/live-blogging-the-49th-annual-grammy-awards/)
 

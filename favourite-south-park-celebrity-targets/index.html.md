@@ -3,7 +3,7 @@ title: "8 Favourite South Park Celebrity Targets ..."
 description: "Tom Cruise; Barbra Streisand; Justin Bieber; Mel Gibson; Saddam Hussein; More ..."
 url: "https://celebs.allwomenstalk.com/favourite-south-park-celebrity-targets/"
 category: "celebs"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 8 Favourite South Park Celebrity Targets ...
@@ -50,16 +50,16 @@ Top Photo Credit: [Hatake_Tata](https://www.flickr.com/photos/taynahcastro/20879
 
 ## Related Posts
 
-- [Lepaparazzi News Update: the 10 List: Hollywoods W...](https://allwomenstalk.com/lepaparazzi-news-update-the-10-list-hollywoods-weekly-buzz/)
-- [popbyes](https://allwomenstalk.com/kate-winslets-hollywood-life/)
-- [Most Fashionable Celebrity Parents](https://allwomenstalk.com/most-fashionable-celebrity-parents/)
-- [bob hope chrysler classic](https://allwomenstalk.com/celebrity-stalking-at-the-bob-hope-chrysler-classic/)
 - [sundance film festival outfits](https://allwomenstalk.com/star-sightings-at-the-sundance-film-festival-january-18-22/)
-- [most famous affairs](https://love.allwomenstalk.com/extraordinary-famous-love-affairs/)
+- [popbyes](https://allwomenstalk.com/kate-winslets-hollywood-life/)
+- [current events with celebrities](https://celebs.allwomenstalk.com/best-celebrity-gossip-websites/)
+- [Lepaparazzi News Update: the 10 List: Hollywoods W...](https://allwomenstalk.com/lepaparazzi-news-update-the-10-list-hollywoods-weekly-buzz/)
+- [celebrity news 2011](https://celebs.allwomenstalk.com/big-celebrity-news-of/)
 - [celebrity cancer survivors](https://celebs.allwomenstalk.com/wonderfully-remarkable-celebrity-cancer-survivor-stories/)
 - [Play Catch-up with Your Favorite Reality Stars](https://allwomenstalk.com/play-catch-up-with-your-favorite-reality-stars/)
-- [celebrity news 2011](https://celebs.allwomenstalk.com/big-celebrity-news-of/)
-- [current events with celebrities](https://celebs.allwomenstalk.com/best-celebrity-gossip-websites/)
+- [most famous affairs](https://love.allwomenstalk.com/extraordinary-famous-love-affairs/)
+- [Most Fashionable Celebrity Parents](https://allwomenstalk.com/most-fashionable-celebrity-parents/)
+- [bob hope chrysler classic](https://allwomenstalk.com/celebrity-stalking-at-the-bob-hope-chrysler-classic/)
 - [7 of My Favorite Celebrities ...](https://celebs.allwomenstalk.com/7-of-my-favorite-celebrities/)
 - [8 Most down to Earth Celebrities ...](https://celebs.allwomenstalk.com/most-down-to-earth-celebrities/)
 

@@ -3,7 +3,7 @@ title: "7 Outrageous Onstage Moments of 2013 ..."
 description: "Miley Cyrus’ VMA Performance; Jennifer Lawrence Trips after Winning an Oscar; 'N SYNC Reunites; Taylor Swift Disses Ex-Boyfriend; Beyonce’s Halftime Performance; More ..."
 url: "https://celebs.allwomenstalk.com/outrageous-onstage-moments-of/"
 category: "celebs"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 7 Outrageous Onstage Moments of 2013 ...
@@ -42,16 +42,16 @@ There you have it! Seven outrageous onstage moments from 2013. Award shows and p
 
 ## Related Posts
 
-- [7 Awesome Productions That Make Us Say All Hail Jo...](https://bilbr.com/awesome-productions-that-make-us-say-all-hail-joss-whedon/)
-- [9 Absolutely Adorable Viral Proposal Videos on the...](https://7fun.net/absolutely-adorable-viral-proposal-videos-on-the-web/)
-- [29 New Things We Learned from the News in 2013 ...](https://lifestyle.allwomenstalk.com/new-things-we-learned-from-the-news-in/)
-- [7 Shocking Moments of 2013 That Blew Our Minds ...](https://celebs.allwomenstalk.com/shocking-moments-of-that-blew-our-minds/)
 - [7 TV Shows Im on the Fence about ...](https://movies.allwomenstalk.com/tv-shows-im-on-the-fence-about/)
-- [loreal stylo shadow java](https://lifestyle.allwomenstalk.com/early-us-presidents-to-remember-on-presidents-day/)
-- [7 Events to Watch in the 2014 Winter Olympics ...](https://lifestyle.allwomenstalk.com/events-to-watch-in-the-winter-olympics/)
 - [7 Paranormal Hoaxes to Read about ...](https://lifestyle.allwomenstalk.com/paranormal-hoaxes-to-read-about/)
-- [7 Things We Did before the Internet ...](https://funny.allwomenstalk.com/things-we-did-before-the-internet/)
+- [7 Shocking Moments of 2013 That Blew Our Minds ...](https://celebs.allwomenstalk.com/shocking-moments-of-that-blew-our-minds/)
 - [7 Dark Grimms Fairytales That Will Shock You ...](https://bilbr.com/dark-grimms-fairytales-that-will-shock-you/)
+- [9 Absolutely Adorable Viral Proposal Videos on the...](https://7fun.net/absolutely-adorable-viral-proposal-videos-on-the-web/)
+- [7 Things We Did before the Internet ...](https://funny.allwomenstalk.com/things-we-did-before-the-internet/)
+- [7 Events to Watch in the 2014 Winter Olympics ...](https://lifestyle.allwomenstalk.com/events-to-watch-in-the-winter-olympics/)
+- [loreal stylo shadow java](https://lifestyle.allwomenstalk.com/early-us-presidents-to-remember-on-presidents-day/)
+- [29 New Things We Learned from the News in 2013 ...](https://lifestyle.allwomenstalk.com/new-things-we-learned-from-the-news-in/)
+- [7 Awesome Productions That Make Us Say All Hail Jo...](https://bilbr.com/awesome-productions-that-make-us-say-all-hail-joss-whedon/)
 - [7 Inspiring Celebrities of 2011 ...](https://celebs.allwomenstalk.com/inspiring-celebrities-of/)
 - [7 Greatly Astonishing Celebrity Scandals ...](https://celebs.allwomenstalk.com/greatly-astonishing-celebrity-scandals/)
 

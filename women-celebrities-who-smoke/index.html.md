@@ -3,7 +3,7 @@ title: "7 Women Celebrities Who Smoke ..."
 description: "Jennifer Aniston; Scarlett Johansson; Rumer Willis; Lindsay Lohan; Katherine Heigl; More ..."
 url: "https://celebs.allwomenstalk.com/women-celebrities-who-smoke/"
 category: "celebs"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 7 Women Celebrities Who Smoke ...
@@ -66,16 +66,16 @@ Top Photo Credit: r9M_
 
 ## Related Posts
 
-- [famous people who smoke weed](https://celebs.allwomenstalk.com/celebrities-who-smoke-weed/)
-- [men who look better with age](https://celebs.allwomenstalk.com/celebrity-men-that-look-better-with-age/)
+- [celebrity marriage proposals](https://celebs.allwomenstalk.com/inspiring-and-sweet-celebrity-marriage-proposals/)
+- [8 Celebrity Pictures to Enjoy Today ...](https://celebs.allwomenstalk.com/celebrity-pictures-to-enjoy-today/)
+- [best celebrity diets](https://celebs.allwomenstalk.com/top-bizarre-celebrity-diets/)
+- [is mario lopez still married](https://celebs.allwomenstalk.com/extremely-short-celebrity-marriages/)
 - [down to earth actresses](https://celebs.allwomenstalk.com/most-down-to-earth-celebrities/)
+- [famous people who smoke weed](https://celebs.allwomenstalk.com/celebrities-who-smoke-weed/)
 - [series with hot male leads](https://celebs.allwomenstalk.com/hottest-actors-from-tv-shows/)
+- [men who look better with age](https://celebs.allwomenstalk.com/celebrity-men-that-look-better-with-age/)
 - [celebrities with body parts insured](https://celebs.allwomenstalk.com/top-celebrity-insured-body-parts/)
 - [7 Celebrities I Would like to Hang with ...](https://celebs.allwomenstalk.com/7-celebrities-i-would-like-to-hang-with/)
-- [8 Celebrity Pictures to Enjoy Today ...](https://celebs.allwomenstalk.com/celebrity-pictures-to-enjoy-today/)
-- [celebrity marriage proposals](https://celebs.allwomenstalk.com/inspiring-and-sweet-celebrity-marriage-proposals/)
-- [is mario lopez still married](https://celebs.allwomenstalk.com/extremely-short-celebrity-marriages/)
-- [best celebrity diets](https://celebs.allwomenstalk.com/top-bizarre-celebrity-diets/)
 - [7 of My Favorite Celebrities ...](https://celebs.allwomenstalk.com/7-of-my-favorite-celebrities/)
 - [7 Celebrities with Addictions ...](https://celebs.allwomenstalk.com/celebrities-with-addictions/)
 

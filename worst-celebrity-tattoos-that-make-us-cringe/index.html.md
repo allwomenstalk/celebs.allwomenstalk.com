@@ -3,7 +3,7 @@ title: "11 Worst Celebrity Tattoos That Make Us Cringe ..."
 description: "Cheryl Cole; Justin Bieber; Johnny Depp; Ashley Greene; Lil Wayne; More ..."
 url: "https://celebs.allwomenstalk.com/worst-celebrity-tattoos-that-make-us-cringe/"
 category: "celebs"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 11 Worst Celebrity Tattoos That Make Us Cringe ...
@@ -80,16 +80,16 @@ Even though I am a big fan of some of these celebrities, it definitely makes me 
 
 ## Related Posts
 
-- [famous duos characters](https://inspiration.allwomenstalk.com/top-american-tv-duos-of-all-time/)
-- [was ryan gosling singing in barbie](https://celebs.allwomenstalk.com/barbie-dolls-of-celebrity-singers-that-youve-got-to-see-to-believe/)
-- [good luck with bookin that stage](https://celebs.allwomenstalk.com/most-scandalous-celebrity-twitter-feuds-that-will-evoke-a-facepalm/)
-- [chace crawford liam hemsworth](https://celebs.allwomenstalk.com/hottest-guys-of-that-we-cant-stop-drooling-over/)
-- [most famous british actors](https://movies.allwomenstalk.com/underrated-british-actors-i-want-to-see-more-of/)
-- [blonde hair 50s](https://celebs.allwomenstalk.com/celebrities-with-trend-setting-hair-to-copy-happily/)
-- [browns chicken steve carell](https://celebs.allwomenstalk.com/old-commercials-with-now-famous-actors-that-will-blow-your-mind/)
 - [underrated celebrity](https://celebs.allwomenstalk.com/underrated-hollywood-stars-that-deserve-more-attention/)
-- [top british celebrities](https://celebs.allwomenstalk.com/brilliant-british-celebrities-that-you-should-take-note-of/)
 - [jon heder lds](https://celebs.allwomenstalk.com/famous-celebrities-with-a-twin-that-will-probably-surprise-you/)
+- [most famous british actors](https://movies.allwomenstalk.com/underrated-british-actors-i-want-to-see-more-of/)
+- [browns chicken steve carell](https://celebs.allwomenstalk.com/old-commercials-with-now-famous-actors-that-will-blow-your-mind/)
+- [blonde hair 50s](https://celebs.allwomenstalk.com/celebrities-with-trend-setting-hair-to-copy-happily/)
+- [was ryan gosling singing in barbie](https://celebs.allwomenstalk.com/barbie-dolls-of-celebrity-singers-that-youve-got-to-see-to-believe/)
+- [famous duos characters](https://inspiration.allwomenstalk.com/top-american-tv-duos-of-all-time/)
+- [top british celebrities](https://celebs.allwomenstalk.com/brilliant-british-celebrities-that-you-should-take-note-of/)
+- [chace crawford liam hemsworth](https://celebs.allwomenstalk.com/hottest-guys-of-that-we-cant-stop-drooling-over/)
+- [good luck with bookin that stage](https://celebs.allwomenstalk.com/most-scandalous-celebrity-twitter-feuds-that-will-evoke-a-facepalm/)
 - [10 Celebrities We Love to Hate ...](https://allwomenstalk.com/top-8-most-loved-celebrities/)
 - [10 Celebrities and Their Odd Phobias ...](https://allwomenstalk.com/10-celebrities-and-their-odd-phobias/)
 

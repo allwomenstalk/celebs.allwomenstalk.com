@@ -3,7 +3,7 @@ title: "25 Most Messed up Celebrities ..."
 description: "Katie Price a.k.a Jordan; Sienna Miller; Courtney Love; Lauryn Hill; Jonathan Rhys Meyers; More ..."
 url: "https://celebs.allwomenstalk.com/25-most-messed-up-celebrities/"
 category: "celebs"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 25 Most Messed up Celebrities ...
@@ -171,16 +171,16 @@ So these were my 25 super messed up celebrities of all time!! Be it horrendous p
 
 ## Related Posts
 
+- [child stars who aged badly](https://celebs.allwomenstalk.com/celebrities-that-look-older-than-their-true-age/)
 - [hot supermodels](https://celebs.allwomenstalk.com/25-hottest-supermodels/)
+- [celebs who live in nyc](https://celebs.allwomenstalk.com/celebrities-who-live-in-nyc/)
+- [7 Recent Celebrity Breakups ...](https://celebs.allwomenstalk.com/recent-celebrity-breakups/)
 - [older actress blonde hair](https://celebs.allwomenstalk.com/25-hottest-blonde-celebrities/)
-- [female celebrities with dimples](https://celebs.allwomenstalk.com/cool-celebrities-with-dimples/)
 - [adopted people](https://celebs.allwomenstalk.com/10-famous-people-who-were-adopted/)
 - [bubbly personality celebrities](https://celebs.allwomenstalk.com/7-of-my-favorite-celebrities/)
-- [7 Recent Celebrity Breakups ...](https://celebs.allwomenstalk.com/recent-celebrity-breakups/)
-- [child stars who aged badly](https://celebs.allwomenstalk.com/celebrities-that-look-older-than-their-true-age/)
+- [female celebrities with dimples](https://celebs.allwomenstalk.com/cool-celebrities-with-dimples/)
 - [celebrities to follow on twitter](https://celebs.allwomenstalk.com/celebs-to-follow-on-twitter/)
 - [fashionable celebrities](https://celebs.allwomenstalk.com/fashionable-celebrities-to-watch-in/)
-- [celebs who live in nyc](https://celebs.allwomenstalk.com/celebrities-who-live-in-nyc/)
 - [25 Hottest Celebrity Moms ...](https://celebs.allwomenstalk.com/25-hottest-celebrity-moms/)
 - [25 Smartest Celebrities ...](https://celebs.allwomenstalk.com/25-smartest-celebrities/)
 

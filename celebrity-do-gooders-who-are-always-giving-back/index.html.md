@@ -3,7 +3,7 @@ title: "7 Celebrity do-gooders Who Are Always Giving Back ..."
 description: "Taylor Swift; Beyonce; Emma Watson; Miley Cyrus; Tyler Oakley; More ..."
 url: "https://celebs.allwomenstalk.com/celebrity-do-gooders-who-are-always-giving-back/"
 category: "celebs"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 7 Celebrity do\-gooders Who Are Always Giving Back ...
@@ -59,15 +59,15 @@ P.S. if you're wondering how Angelina Jolie and Brad Pitt didn't make the list, 
 ## Related Posts
 
 - [drew barrymore and jeremy thomas](https://celebs.allwomenstalk.com/the-downside-to-stardom-9-shockingly-short-celebrity-marriages-you-never-knew-about/)
-- [are britney spears teeth different](https://celebs.allwomenstalk.com/gorgeous-celebrities-with-gap-teeth-who-inspire-you-to-embrace-your-smile/)
+- [young neville longbottom](https://movies.allwomenstalk.com/neville-got-hot-and-this-is-what-the-rest-of-the-harry-potter-cast-looks-like-now/)
+- [famous 80s actors](https://celebs.allwomenstalk.com/and-hes-still-hot-80s-actors-who-look-even-better-now/)
+- [funny celebrity outfits](https://celebs.allwomenstalk.com/bizarre-celebrity-outfits-that-shouldve-never-seen-the-light-of-day/)
+- [loved and hated](https://celebs.allwomenstalk.com/celebrities-we-have-loved-and-hated-at-one-time/)
 - [celebrities with red lipstick](https://celebs.allwomenstalk.com/these-celebs-prove-you-too-can-rock-a-red-lip/)
 - [overrated celebs](https://celebs.allwomenstalk.com/fame-is-overrated-heres-why-you-dont-want-to-be-a-celebrity/)
+- [are britney spears teeth different](https://celebs.allwomenstalk.com/gorgeous-celebrities-with-gap-teeth-who-inspire-you-to-embrace-your-smile/)
 - [why does seal have facial scars](https://celebs.allwomenstalk.com/these-lesser-known-stories-behind-male-celebrities-scars-will-blow-your-mind/)
 - [celebrities who can sing](https://celebs.allwomenstalk.com/they-can-do-it-all-celebs-you-never-knew-could-sing/)
-- [loved and hated](https://celebs.allwomenstalk.com/celebrities-we-have-loved-and-hated-at-one-time/)
-- [young neville longbottom](https://movies.allwomenstalk.com/neville-got-hot-and-this-is-what-the-rest-of-the-harry-potter-cast-looks-like-now/)
-- [funny celebrity outfits](https://celebs.allwomenstalk.com/bizarre-celebrity-outfits-that-shouldve-never-seen-the-light-of-day/)
-- [famous 80s actors](https://celebs.allwomenstalk.com/and-hes-still-hot-80s-actors-who-look-even-better-now/)
 - [7 of My Favorite Celebrities ...](https://celebs.allwomenstalk.com/7-of-my-favorite-celebrities/)
 - [7 Inspiring Celebrities of 2011 ...](https://celebs.allwomenstalk.com/inspiring-celebrities-of/)
 

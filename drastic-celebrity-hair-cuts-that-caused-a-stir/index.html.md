@@ -3,7 +3,7 @@ title: "7 Drastic Celebrity Hair Cuts That Caused a Stir ..."
 description: "Beyonce; Keri Russell; Miley Cyrus; Britney Spears; Emma Watson; More ..."
 url: "https://celebs.allwomenstalk.com/drastic-celebrity-hair-cuts-that-caused-a-stir/"
 category: "celebs"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 7 Drastic Celebrity Hair Cuts That Caused a Stir ...
@@ -56,16 +56,16 @@ These are just a few celebrities who have set tongues wagging with their drastic
 
 ## Related Posts
 
-- [the actress with the eyebrows](https://celebs.allwomenstalk.com/beautiful-celebrities-with-gorgeous-eyebrows-to-die-for/)
-- [tv man hot](https://movies.allwomenstalk.com/sexiest-men-on-tv-right-now-that-we-cant-stop-drooling-over/)
-- [scarlett johansson jennifer aniston emma watson mi...](https://celebs.allwomenstalk.com/celebs-with-fantastic-hair-i-wish-i-had/)
-- [celebrities with very fine hair](https://hair.allwomenstalk.com/fabulous-celebrity-hair-crushes-we-absolutely-adore/)
 - [celebrities shop too](https://celebs.allwomenstalk.com/wealthy-celebrities-who-thrift-shop-and-are-proud-of-it/)
-- [celebrities who beat breast cancer](https://celebs.allwomenstalk.com/celebrities-who-have-beaten-breast-cancer-to-be-inspired-by/)
-- [what is the most expensive body part](https://celebs.allwomenstalk.com/most-expensive-celebrity-insurance-policies/)
-- [famous people who are hated](https://celebs.allwomenstalk.com/celebrities-people-love-to-hate/)
 - [talented celebrities](https://celebs.allwomenstalk.com/talented-celebrities-you-didnt-know-could-sing-really-well/)
+- [celebrities who beat breast cancer](https://celebs.allwomenstalk.com/celebrities-who-have-beaten-breast-cancer-to-be-inspired-by/)
+- [the actress with the eyebrows](https://celebs.allwomenstalk.com/beautiful-celebrities-with-gorgeous-eyebrows-to-die-for/)
 - [ian somerhalder cheekbones](https://movies.allwomenstalk.com/of-the-hottest-men-on-tv-right-now/)
+- [famous people who are hated](https://celebs.allwomenstalk.com/celebrities-people-love-to-hate/)
+- [celebrities with very fine hair](https://hair.allwomenstalk.com/fabulous-celebrity-hair-crushes-we-absolutely-adore/)
+- [scarlett johansson jennifer aniston emma watson mi...](https://celebs.allwomenstalk.com/celebs-with-fantastic-hair-i-wish-i-had/)
+- [what is the most expensive body part](https://celebs.allwomenstalk.com/most-expensive-celebrity-insurance-policies/)
+- [tv man hot](https://movies.allwomenstalk.com/sexiest-men-on-tv-right-now-that-we-cant-stop-drooling-over/)
 - [7 Funkiest Celebrity Hairstyles ...](https://celebs.allwomenstalk.com/7-funkiest-celebrity-hairstyles/)
 - [20 Fabulous Celebrity Hair Cuts ...](https://hair.allwomenstalk.com/fabulous-celebrity-hair-cuts/)
 

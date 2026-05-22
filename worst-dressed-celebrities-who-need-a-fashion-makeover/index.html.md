@@ -3,7 +3,7 @@ title: "7 Worst Dressed Celebrities Who Need a Fashion Makeover ..."
 description: "Rihanna; Nicki Minaj; Madonna; Miley Cyrus; Justin Bieber; More ..."
 url: "https://celebs.allwomenstalk.com/worst-dressed-celebrities-who-need-a-fashion-makeover/"
 category: "celebs"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 7 Worst Dressed Celebrities Who Need a Fashion Makeover ...
@@ -56,16 +56,16 @@ It must be difficult to always be on show, but looking good is part of the celeb
 
 ## Related Posts
 
-- [emma watson white jumpsuit](https://fashion.allwomenstalk.com/red-carpet-looks-from-the-british-fashion-awards-whos-your-favorite/)
-- [redheads in emerald green](https://hair.allwomenstalk.com/celebrities-with-red-hair-who-wore-it-best/)
-- [met gala 2014](https://fashion.allwomenstalk.com/red-carpet-fashions-at-the-met-gala/)
-- [oprah met gala](https://fashion.allwomenstalk.com/a-look-at-oscar-de-la-rentas-most-iconic-red-carpet-gowns/)
-- [dave skylark nicki minaj](https://celebs.allwomenstalk.com/james-franco-interviews-stars-for-the-vmas/)
-- [alfonso ribeiro dwts winner](https://movies.allwomenstalk.com/dancing-with-the-stars-crowns-their-season-champs/)
-- [america singer red dress](https://fashion.allwomenstalk.com/who-had-the-best-red-carpet-fashion-at-the-american-music-awards/)
 - [famous people nide](https://celebs.allwomenstalk.com/epic-naked-celeb-photos-whos-the-fairest-of-them-all/)
 - [monique lhuillier famous works](https://fashion.allwomenstalk.com/celebrities-in-monique-lhuillier-who-wore-it-best/)
+- [met gala 2014](https://fashion.allwomenstalk.com/red-carpet-fashions-at-the-met-gala/)
+- [america singer red dress](https://fashion.allwomenstalk.com/who-had-the-best-red-carpet-fashion-at-the-american-music-awards/)
+- [dave skylark nicki minaj](https://celebs.allwomenstalk.com/james-franco-interviews-stars-for-the-vmas/)
+- [oprah met gala](https://fashion.allwomenstalk.com/a-look-at-oscar-de-la-rentas-most-iconic-red-carpet-gowns/)
+- [redheads in emerald green](https://hair.allwomenstalk.com/celebrities-with-red-hair-who-wore-it-best/)
 - [beyonce with a ponytail](https://hair.allwomenstalk.com/celebrities-wearing-ponytails-who-wore-it-best/)
+- [alfonso ribeiro dwts winner](https://movies.allwomenstalk.com/dancing-with-the-stars-crowns-their-season-champs/)
+- [emma watson white jumpsuit](https://fashion.allwomenstalk.com/red-carpet-looks-from-the-british-fashion-awards-whos-your-favorite/)
 - [7 Biggest Celebrity Fashion Faux Pas of 2011 ...](https://celebs.allwomenstalk.com/biggest-celebrity-fashion-faux-pas-of/)
 - [10 Best Dressed Celebrities of 2011 ...](https://fashion.allwomenstalk.com/best-dressed-celebrities-of/)
 

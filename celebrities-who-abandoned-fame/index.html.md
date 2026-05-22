@@ -3,7 +3,7 @@ title: "7 Celebrities Who Abandoned Fame ..."
 description: "Meg Ryan; Lily Allen; Sir Sean Connery; Mara Wilson; Harrison Ford; More ..."
 url: "https://celebs.allwomenstalk.com/celebrities-who-abandoned-fame/"
 category: "celebs"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 7 Celebrities Who Abandoned Fame ...
@@ -56,15 +56,15 @@ If I were a celebrity, I think I would definitely need to take some time off too
 
 ## Related Posts
 
-- [is ricco barrino related to fantasia](https://celebs.allwomenstalk.com/celebrities-who-are-related-to-someone-famous/)
-- [aileen wuornos movie actress](https://movies.allwomenstalk.com/best-transformations-for-movies/)
-- [ice bucket challenge celebrity](https://celebs.allwomenstalk.com/celebrities-who-have-completed-the-ice-bucket-challenge/)
-- [best cameos for each character](https://movies.allwomenstalk.com/best-cameos-from-a-list-celebrities/)
-- [famous sidekicks in literature](https://movies.allwomenstalk.com/amazing-sidekicks-who-can-be-lead-stars/)
 - [sexiest challenges](https://celebs.allwomenstalk.com/sexiest-ice-bucket-challenges-with-the-hottest-guys-in-hollywood/)
-- [jessica szohr taylor swift 22](https://celebs.allwomenstalk.com/gossip-girl-celebs-to-follow-on-twitter/)
+- [best cameos for each character](https://movies.allwomenstalk.com/best-cameos-from-a-list-celebrities/)
+- [ice bucket challenge celebrity](https://celebs.allwomenstalk.com/celebrities-who-have-completed-the-ice-bucket-challenge/)
+- [aileen wuornos movie actress](https://movies.allwomenstalk.com/best-transformations-for-movies/)
 - [celebs on off](https://celebs.allwomenstalk.com/celebrity-on-and-off-again-couples/)
+- [jessica szohr taylor swift 22](https://celebs.allwomenstalk.com/gossip-girl-celebs-to-follow-on-twitter/)
 - [celebrities who are vegetarian](https://celebs.allwomenstalk.com/celebrities-who-are-vegan/)
+- [famous sidekicks in literature](https://movies.allwomenstalk.com/amazing-sidekicks-who-can-be-lead-stars/)
+- [is ricco barrino related to fantasia](https://celebs.allwomenstalk.com/celebrities-who-are-related-to-someone-famous/)
 - [mr rogers sniper](https://celebs.allwomenstalk.com/celebrity-urban-legends-and-the-truth-behind-them/)
 - [7 Celebrities with Addictions ...](https://celebs.allwomenstalk.com/celebrities-with-addictions/)
 - [7 Celebrities Who Dropped out of High School ...](https://allwomenstalk.com/8-celebrities-that-dropped-out-of-highschool/)

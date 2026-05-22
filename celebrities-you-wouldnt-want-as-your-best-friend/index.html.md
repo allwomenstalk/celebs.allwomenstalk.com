@@ -3,7 +3,7 @@ title: "7 Celebrities You Wouldnt Want as Your Best Friend ..."
 description: "Gwyneth Paltrow; Lindsay Lohan; Naomi Campbell; Paris Hilton; Shannen Doherty; More ..."
 url: "https://celebs.allwomenstalk.com/celebrities-you-wouldnt-want-as-your-best-friend/"
 category: "celebs"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 7 Celebrities You Wouldnt Want as Your Best Friend ...
@@ -56,16 +56,16 @@ Which Hollywood gal wouldn’t you want as a pal? Share your thoughts with me an
 
 ## Related Posts
 
-- [Like Fine Wine: Celebrities Who Get Better with Ag...](https://celebs.allwomenstalk.com/celebrities-who-look-better-with-age/)
-- [9 Celebrities Who Had Secret Weddings ...](https://celebs.allwomenstalk.com/celebrities-who-had-secret-weddings/)
-- [11 Big Celebrity Beefs from behind the Scenes ...](https://bilbr.com/big-celebrity-beefs-from-behind-the-scenes/)
-- [11 Celebrities Who Have Been Turned down in Their ...](https://celebs.allwomenstalk.com/celebrities-who-have-been-turned-down-in-their-career/)
-- [nepotism models list](https://celebs.allwomenstalk.com/celebrity-kids-who-have-stunned-the-modeling-world/)
-- [7 Crazy Celebrity Feuds Youd Have to Read about to...](https://celebs.allwomenstalk.com/crazy-celebrity-feuds-youd-have-to-read-about-to-believe/)
 - [hotels for celebrities](https://travel.allwomenstalk.com/hotels-owned-by-celebrities/)
-- [An Eye-Opening Look at Child Stars Who Have Mature...](https://celebs.allwomenstalk.com/child-stars-whove-matured-into-fine-young-men-and-women/)
+- [9 Celebrities Who Had Secret Weddings ...](https://celebs.allwomenstalk.com/celebrities-who-had-secret-weddings/)
 - [9 Saturday Night Live Actors We Miss ...](https://7fun.net/saturday-night-live-actors-we-miss/)
+- [11 Big Celebrity Beefs from behind the Scenes ...](https://bilbr.com/big-celebrity-beefs-from-behind-the-scenes/)
+- [nepotism models list](https://celebs.allwomenstalk.com/celebrity-kids-who-have-stunned-the-modeling-world/)
+- [An Eye-Opening Look at Child Stars Who Have Mature...](https://celebs.allwomenstalk.com/child-stars-whove-matured-into-fine-young-men-and-women/)
 - [7 Celebs from ABCs Scandal That Love to Live-Tweet...](https://celebs.allwomenstalk.com/celebs-from-abcs-scandal-that-love-to-live-tweet/)
+- [11 Celebrities Who Have Been Turned down in Their ...](https://celebs.allwomenstalk.com/celebrities-who-have-been-turned-down-in-their-career/)
+- [7 Crazy Celebrity Feuds Youd Have to Read about to...](https://celebs.allwomenstalk.com/crazy-celebrity-feuds-youd-have-to-read-about-to-believe/)
+- [Like Fine Wine: Celebrities Who Get Better with Ag...](https://celebs.allwomenstalk.com/celebrities-who-look-better-with-age/)
 - [8 Celebrities with Awful Table Manners ...](https://celebs.allwomenstalk.com/celebrities-with-awful-table-manners/)
 - [7 Reasons Not to Date Your Best Friend ...](https://allwomenstalk.com/7-reasons-not-to-date-your-best-friend/)
 

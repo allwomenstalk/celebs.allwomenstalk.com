@@ -3,7 +3,7 @@ title: "8 Most Stylish Female Celebrities of 2011 ..."
 description: "Victoria Beckham; Elle Macpherson; Duchess of Cambridge; Catherine Deneuve; Michelle Pfeiffer; More ..."
 url: "https://celebs.allwomenstalk.com/most-stylish-female-celebrities-of/"
 category: "celebs"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 8 Most Stylish Female Celebrities of 2011 ...
@@ -64,16 +64,16 @@ Top Photo Credit: [data.whicdn.com](http://data.whicdn.com/images/6986924/tumblr
 
 ## Related Posts
 
-- [The Kings Speech Leads the SAG Nominations...](https://celebs.allwomenstalk.com/the-kings-speech-leads-the-sag-nominations/)
-- [The Red Carpet or just Another Day on the Job.](https://allwomenstalk.com/the-red-carpet-or-just-another-day-on-the-job/)
-- [iconic red carpet outfits](https://celebs.allwomenstalk.com/iconic-red-carpet-celebrity-looks/)
-- [25 Oscar Nominees Who Should Win This Year ...](https://bilbr.com/25-oscar-nominees-who-should-win-this-year/)
 - [The Oscar Race is on...](https://celebs.allwomenstalk.com/the-oscar-race-is-on/)
+- [iconic red carpet outfits](https://celebs.allwomenstalk.com/iconic-red-carpet-celebrity-looks/)
 - [So There I Was All Ready to Blog the Oscars to P.....](https://allwomenstalk.com/so-there-i-was-all-ready-to-blog-the-oscars-to-p/)
 - [vanity fair best dressed](https://celebs.allwomenstalk.com/people-who-made-it-on-vanity-fairs-best-dressed-list/)
+- [The Kings Speech Leads the SAG Nominations...](https://celebs.allwomenstalk.com/the-kings-speech-leads-the-sag-nominations/)
 - [Grammy 2011 Nominations: Eminems Leads the Way ...](https://celebs.allwomenstalk.com/grammy-nominations-eminems-leads-the-way/)
-- [gwen palthrow](https://allwomenstalk.com/hits-misses-at-the-golden-globes/)
+- [The Red Carpet or just Another Day on the Job.](https://allwomenstalk.com/the-red-carpet-or-just-another-day-on-the-job/)
+- [25 Oscar Nominees Who Should Win This Year ...](https://bilbr.com/25-oscar-nominees-who-should-win-this-year/)
 - [10 Golden Globes Looks for Less ...](https://celebs.allwomenstalk.com/golden-globes-looks-for-less/)
+- [gwen palthrow](https://allwomenstalk.com/hits-misses-at-the-golden-globes/)
 - [The Best Dressed Women of 2010 ...](https://celebs.allwomenstalk.com/the-best-dressed-women-of/)
 - [10 Ugliest Celebrity Fashion Faux Pas of 2011 ...](https://celebs.allwomenstalk.com/ugliest-celebrity-fashion-faux-pas-of/)
 

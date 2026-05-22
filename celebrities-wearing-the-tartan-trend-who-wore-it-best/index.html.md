@@ -3,7 +3,7 @@ title: "11 Celebrities Wearing the Tartan Trend Who Wore It Best?"
 description: "Cara Delevingne; Chloe Moretz; Diane Kruger; Atlanta De Cadenet; Emma Stone; More ..."
 url: "https://celebs.allwomenstalk.com/celebrities-wearing-the-tartan-trend-who-wore-it-best/"
 category: "celebs"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 11 Celebrities Wearing the Tartan Trend  Who Wore It Best?
@@ -81,15 +81,15 @@ These are just a few celebrities we’ve spotted wearing the tartan trend. From 
 ## Related Posts
 
 - [celebs in sweaters](https://celebs.allwomenstalk.com/celebrities-wearing-printed-sweaters-who-wore-it-best/)
-- [red carpet floral dress](https://celebs.allwomenstalk.com/floral-red-carpet-looks-from-the-celebrities-who-wore-it-best/)
 - [lady gaga seashell bikini](https://celebs.allwomenstalk.com/of-lady-gagas-best-looks-in/)
-- [celebritybelly](https://celebs.allwomenstalk.com/belly-baring-celebrities-who-wore-it-best/)
-- [tilda swinton style](https://celebs.allwomenstalk.com/of-tilda-swintons-best-looks/)
-- [celebrities in black turtlenecks](https://fashion.allwomenstalk.com/celebs-who-rocked-turtlenecks-who-wore-it-best/)
-- [celebrities in coats](https://celebs.allwomenstalk.com/celebrities-wearing-colourful-coats-who-wore-it-best/)
-- [celebrity see through clothes](https://celebs.allwomenstalk.com/most-revealing-celebrity-outfits-from-the-red-carpet/)
 - [green haired celebrities](https://celebs.allwomenstalk.com/celebrities-with-rainbow-hair-who-wore-it-best/)
+- [celebritybelly](https://celebs.allwomenstalk.com/belly-baring-celebrities-who-wore-it-best/)
 - [characters that wear camo](https://celebs.allwomenstalk.com/celebrities-wearing-camouflage-prints-who-wore-it-best/)
+- [celebrities in coats](https://celebs.allwomenstalk.com/celebrities-wearing-colourful-coats-who-wore-it-best/)
+- [red carpet floral dress](https://celebs.allwomenstalk.com/floral-red-carpet-looks-from-the-celebrities-who-wore-it-best/)
+- [tilda swinton style](https://celebs.allwomenstalk.com/of-tilda-swintons-best-looks/)
+- [celebrity see through clothes](https://celebs.allwomenstalk.com/most-revealing-celebrity-outfits-from-the-red-carpet/)
+- [celebrities in black turtlenecks](https://fashion.allwomenstalk.com/celebs-who-rocked-turtlenecks-who-wore-it-best/)
 - [10 Celebrities in Chequered Clothes  Who Wore It B...](https://celebs.allwomenstalk.com/celebrities-in-chequered-clothes-who-wore-it-best/)
 - [10 Celebrities in Metallic Clothes  Who Wore It Be...](https://celebs.allwomenstalk.com/celebrities-in-metallic-clothes-who-wore-it-best/)
 

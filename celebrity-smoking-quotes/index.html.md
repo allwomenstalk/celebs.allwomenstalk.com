@@ -3,7 +3,7 @@ title: "8 Celebrity Smoking Quotes ..."
 description: "Brooke Shields; Matt Lauer; Arturo Toscanini; Katharine Whitehorn; Oscar Wilde; More ..."
 url: "https://celebs.allwomenstalk.com/celebrity-smoking-quotes/"
 category: "celebs"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 8 Celebrity Smoking Quotes ...
@@ -50,16 +50,16 @@ Top image source: _actress.glowclick.com_
 
 ## Related Posts
 
+- [8 Celebrity Pictures to Enjoy Today ...](https://celebs.allwomenstalk.com/celebrity-pictures-to-enjoy-today/)
 - [jenna fischer coconut water](https://celebs.allwomenstalk.com/most-recent-celebrity-moms/)
-- [7 Greatly Astonishing Celebrity Scandals ...](https://celebs.allwomenstalk.com/greatly-astonishing-celebrity-scandals/)
-- [best celebrity diets](https://celebs.allwomenstalk.com/top-bizarre-celebrity-diets/)
-- [soulmte](https://celebs.allwomenstalk.com/sexiest-athletes-of/)
 - [philantrophists](https://celebs.allwomenstalk.com/top-celebrity-philantrophists/)
-- [celebrity wedding favors](https://celebs.allwomenstalk.com/celebrity-weddings-to-watch-for-in/)
+- [best celebrity diets](https://celebs.allwomenstalk.com/top-bizarre-celebrity-diets/)
 - [female celebrity smokers uk](https://celebs.allwomenstalk.com/women-celebrities-who-smoke/)
 - [down to earth actresses](https://celebs.allwomenstalk.com/most-down-to-earth-celebrities/)
-- [8 Celebrity Pictures to Enjoy Today ...](https://celebs.allwomenstalk.com/celebrity-pictures-to-enjoy-today/)
 - [celebrity marriage proposals](https://celebs.allwomenstalk.com/inspiring-and-sweet-celebrity-marriage-proposals/)
+- [7 Greatly Astonishing Celebrity Scandals ...](https://celebs.allwomenstalk.com/greatly-astonishing-celebrity-scandals/)
+- [soulmte](https://celebs.allwomenstalk.com/sexiest-athletes-of/)
+- [celebrity wedding favors](https://celebs.allwomenstalk.com/celebrity-weddings-to-watch-for-in/)
 - [5 Cool Edward Quotes ...](https://twilight.allwomenstalk.com/5-cool-edward-quotes/)
 - [9 Amazing Quotes from Movies That I Can Relate to ...](https://movies.allwomenstalk.com/amazing-quotes-from-movies-that-i-can-relate-to/)
 

@@ -3,7 +3,7 @@ title: "7 Classic Hollywood Pin-up Girls That We Adore ..."
 description: "Betty Grable – Dec. 18, 1916 – July 2, 1973; Rita Hayworth – Oct. 17, 1918 – May 14, 1987; Bettie Page – Apr. 22, 1923 – Dec. 11. 2008; Marilyn Monroe – June 1, 1926 – Aug. 5, 1962; Brigitte Bardot – Sept. 28, 1934; More ..."
 url: "https://celebs.allwomenstalk.com/classic-hollywood-pin-up-girls-that-we-adore/"
 category: "celebs"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 7 Classic Hollywood Pin\-up Girls That We Adore ...
@@ -56,16 +56,16 @@ All of these gals were at the top of their game during their time as a pin-up gi
 
 ## Related Posts
 
-- [love majewski](https://movies.allwomenstalk.com/outrageous-women-from-vh1s-mob-wives/)
-- [funniest girl in the world](https://movies.allwomenstalk.com/funniest-women-on-tv-who-never-get-old/)
-- [maritoni fernandez cancer survivor](https://health.allwomenstalk.com/inspiring-breast-cancer-survivors/)
-- [queens beyond beauty](https://beauty.allwomenstalk.com/women-who-went-beyond-being-beauty-queens/)
 - [thoughts on feminism](https://lifestyle.allwomenstalk.com/thoughts-about-feminism-that-are-perfectly-fine/)
-- [spunk movie](https://movies.allwomenstalk.com/female-movie-characters-with-spunk/)
-- [fangirl things](https://movies.allwomenstalk.com/different-types-of-fangirls-you-will-encounter/)
-- [inspirational movies for women](https://movies.allwomenstalk.com/biolographical-movies-about-inspiring-women/)
 - [curvy female athletes](https://fitness.allwomenstalk.com/of-the-fittest-women-in-the-world-and-how-they-achieved-this-status/)
+- [spunk movie](https://movies.allwomenstalk.com/female-movie-characters-with-spunk/)
+- [queens beyond beauty](https://beauty.allwomenstalk.com/women-who-went-beyond-being-beauty-queens/)
 - [top characters in game of thrones](https://movies.allwomenstalk.com/most-fabulous-female-characters-in-game-of-thrones/)
+- [fangirl things](https://movies.allwomenstalk.com/different-types-of-fangirls-you-will-encounter/)
+- [love majewski](https://movies.allwomenstalk.com/outrageous-women-from-vh1s-mob-wives/)
+- [maritoni fernandez cancer survivor](https://health.allwomenstalk.com/inspiring-breast-cancer-survivors/)
+- [funniest girl in the world](https://movies.allwomenstalk.com/funniest-women-on-tv-who-never-get-old/)
+- [inspirational movies for women](https://movies.allwomenstalk.com/biolographical-movies-about-inspiring-women/)
 - [5 Sexy Vampire Girls from the Twilight Series ...](https://twilight.allwomenstalk.com/5-sexy-vampire-girls-from-the-twilight-series/)
 - [10 Stunning Leading Ladies ...](https://movies.allwomenstalk.com/stunning-leading-ladies/)
 

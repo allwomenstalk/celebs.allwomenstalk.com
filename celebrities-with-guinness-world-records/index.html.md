@@ -3,7 +3,7 @@ title: "11 Celebrities with Guinness World Records ..."
 description: "Miley Cyrus; Metallica; Eminem; Shakira; Katy Perry; More ..."
 url: "https://celebs.allwomenstalk.com/celebrities-with-guinness-world-records/"
 category: "celebs"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 11 Celebrities with Guinness World Records ...
@@ -80,15 +80,15 @@ Well, there you have it. Celebrities are breaking records every single day! Were
 
 ## Related Posts
 
+- [courtside celebrities](https://celebs.allwomenstalk.com/celebs-cant-get-enough-of-basketball-sightings-of-courtside-celebs/)
 - [sabrina carpenter boots](https://celebs.allwomenstalk.com/co-stars-who-are-also-best-friends-in-real-life/)
+- [shades of hunks](https://celebs.allwomenstalk.com/happy-movember-heres-bearded-hunks-to-lust-over/)
 - [taylor swift favorite candle](https://music.allwomenstalk.com/celebrities-who-have-praised-taylor-swifts-new-album/)
-- [rumer willis wardrobe](https://celebs.allwomenstalk.com/yikes-celebs-their-wardrobe-malfunctions/)
+- [independence day alicia casse](https://celebs.allwomenstalk.com/child-stars-who-quit-acting/)
 - [best of mean tweets](https://funny.allwomenstalk.com/this-video-of-celebs-reacting-to-mean-tweets-is-the-funniest-thing-youll-see-today/)
 - [celebrity classes](https://celebs.allwomenstalk.com/celebrity-college-classes-youll-want-to-enroll-in/)
-- [independence day alicia casse](https://celebs.allwomenstalk.com/child-stars-who-quit-acting/)
-- [shades of hunks](https://celebs.allwomenstalk.com/happy-movember-heres-bearded-hunks-to-lust-over/)
+- [rumer willis wardrobe](https://celebs.allwomenstalk.com/yikes-celebs-their-wardrobe-malfunctions/)
 - [what degree does brooke shields have](https://celebs.allwomenstalk.com/intelligent-celebrities-with-ivy-league-diplomas/)
-- [courtside celebrities](https://celebs.allwomenstalk.com/celebs-cant-get-enough-of-basketball-sightings-of-courtside-celebs/)
 - [jim carrey depression quote](https://celebs.allwomenstalk.com/celebrities-on-dealing-with-depression-and-mental-disorders/)
 - [10 Big Celebrity News of 2011 ...](https://celebs.allwomenstalk.com/big-celebrity-news-of/)
 - [30 Celebrities with Pets ...](https://allwomenstalk.com/30-celebrities-with-pets/)

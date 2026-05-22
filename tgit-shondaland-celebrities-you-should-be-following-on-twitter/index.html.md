@@ -3,7 +3,7 @@ title: "TGIT: ShondaLand Celebrities You Should Be following on Twitter ..."
 description: "Ellen Pompeo & Patrick Dempsey; Camilla Luddington & Kevin Mckidd; Jesse Williams & Sarah Drew; Jessica Capshaw & Sara Ramirez; Kerry Washington & Scott Foley; More ..."
 url: "https://celebs.allwomenstalk.com/tgit-shondaland-celebrities-you-should-be-following-on-twitter/"
 category: "celebs"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # TGIT: ShondaLand Celebrities You Should Be following on Twitter ...
@@ -69,16 +69,16 @@ Well, there you have it. ShondaLand has completely taken over Thursday nights on
 
 ## Related Posts
 
-- [famous actors with parkinsons](https://celebs.allwomenstalk.com/celebrities-with-parkinsons-disease/)
-- [strange facts about celebrities](https://celebs.allwomenstalk.com/little-known-facts-about-your-favorite-celebrities/)
-- [celebrities photobombing](https://celebs.allwomenstalk.com/celebrity-photobombs-thatll-make-you-lol/)
-- [cameron diaz snoop high school](https://celebs.allwomenstalk.com/celebrities-who-went-to-high-school-together/)
-- [bromances](https://celebs.allwomenstalk.com/of-the-cutest-celebrity-bromances-of-all-time/)
-- [julianna hough plastic surgery](https://celebs.allwomenstalk.com/whoa-celebrity-doppelgangers-from-different-generations/)
-- [pregnant celebrities on red carpet](https://fashion.allwomenstalk.com/celebrities-that-made-red-carpet-baby-bumps-look-amazing/)
-- [celebrities giving back](https://inspiration.allwomenstalk.com/these-charitable-celebrity-couples-are-all-about-giving-back/)
-- [most influential teenagers](https://celebs.allwomenstalk.com/in-case-you-missed-it-these-are-times-most-influential-teens/)
 - [celebrities with weird kid names](https://celebs.allwomenstalk.com/celebrities-explain-their-reasoning-behind-their-strange-baby-names/)
+- [pregnant celebrities on red carpet](https://fashion.allwomenstalk.com/celebrities-that-made-red-carpet-baby-bumps-look-amazing/)
+- [bromances](https://celebs.allwomenstalk.com/of-the-cutest-celebrity-bromances-of-all-time/)
+- [most influential teenagers](https://celebs.allwomenstalk.com/in-case-you-missed-it-these-are-times-most-influential-teens/)
+- [cameron diaz snoop high school](https://celebs.allwomenstalk.com/celebrities-who-went-to-high-school-together/)
+- [strange facts about celebrities](https://celebs.allwomenstalk.com/little-known-facts-about-your-favorite-celebrities/)
+- [julianna hough plastic surgery](https://celebs.allwomenstalk.com/whoa-celebrity-doppelgangers-from-different-generations/)
+- [celebrities giving back](https://inspiration.allwomenstalk.com/these-charitable-celebrity-couples-are-all-about-giving-back/)
+- [famous actors with parkinsons](https://celebs.allwomenstalk.com/celebrities-with-parkinsons-disease/)
+- [celebrities photobombing](https://celebs.allwomenstalk.com/celebrity-photobombs-thatll-make-you-lol/)
 - [Top Celebrity Philantrophists ...](https://celebs.allwomenstalk.com/top-celebrity-philantrophists/)
 - [OMG Its Celebrity Gossip Overload - Sound the Alar...](https://allwomenstalk.com/omg-its-celebrity-gossip-overload-sound-the-alarm/)
 

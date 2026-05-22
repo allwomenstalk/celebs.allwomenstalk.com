@@ -3,7 +3,7 @@ title: "8 Enduring Celebrity Myths ..."
 description: "Richard Gere; Marilyn Manson's Wonder Years; Marisa Tomei's Accidental Oscar; Walt Disney is a Popsicle; Mama Cass's Ham Sandwich; More ..."
 url: "https://celebs.allwomenstalk.com/enduring-celebrity-myths/"
 category: "celebs"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 8 Enduring Celebrity Myths ...
@@ -76,16 +76,16 @@ Top Photo Credit: [Iconista](https://www.flickr.com/photos/iconista/2931316986/)
 
 ## Related Posts
 
-- [7 Awesomely Impressive Celebrity Entrepreneurs ...](https://celebs.allwomenstalk.com/awesomely-impressive-celebrity-entrepreneurs/)
-- [4 Celebs That Shot to Fame after Cosmetic Surgery....](https://celebs.allwomenstalk.com/celebs-that-shot-to-fame-after-cosmetic-surgery/)
 - [matt damon buzz cut](https://celebs.allwomenstalk.com/celebrity-haircuts-this-week/)
-- [weather girl wardrobe malfunctions](https://celebs.allwomenstalk.com/25-celebrity-wardrobe-malfunctions/)
-- [model off duty look](https://celebs.allwomenstalk.com/celebrities-with-excellent-off-duty-style/)
 - [lucille ball debra messing](https://celebs.allwomenstalk.com/celebs-that-rock-red-hair/)
-- [christopher walken angelina jolie](https://celebs.allwomenstalk.com/surprising-music-video-stars/)
-- [olivia wilde bangs](https://celebs.allwomenstalk.com/celebrities-proving-that-bangs-are-back/)
+- [weather girl wardrobe malfunctions](https://celebs.allwomenstalk.com/25-celebrity-wardrobe-malfunctions/)
+- [7 Awesomely Impressive Celebrity Entrepreneurs ...](https://celebs.allwomenstalk.com/awesomely-impressive-celebrity-entrepreneurs/)
 - [inspiring celebrities](https://celebs.allwomenstalk.com/inspiring-celebrities-of/)
 - [beautiful actress under 25](https://celebs.allwomenstalk.com/25-hottest-female-celebrities-under-25/)
+- [4 Celebs That Shot to Fame after Cosmetic Surgery....](https://celebs.allwomenstalk.com/celebs-that-shot-to-fame-after-cosmetic-surgery/)
+- [olivia wilde bangs](https://celebs.allwomenstalk.com/celebrities-proving-that-bangs-are-back/)
+- [model off duty look](https://celebs.allwomenstalk.com/celebrities-with-excellent-off-duty-style/)
+- [christopher walken angelina jolie](https://celebs.allwomenstalk.com/surprising-music-video-stars/)
 - [8 Surprisingly Good Books by Celebrities ...](https://celebs.allwomenstalk.com/surprisingly-good-books-by-celebrities/)
 - [8 Most down to Earth Celebrities ...](https://celebs.allwomenstalk.com/most-down-to-earth-celebrities/)
 

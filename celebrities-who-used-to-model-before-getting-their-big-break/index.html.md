@@ -3,7 +3,7 @@ title: "7 Celebrities Who Used to Model before Getting Their Big Break ..."
 description: "Channing Tatum; Ian Somerhalder; Cameron Diaz; Ashton Kutcher; Josh Duhamel; More ..."
 url: "https://celebs.allwomenstalk.com/celebrities-who-used-to-model-before-getting-their-big-break/"
 category: "celebs"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 7 Celebrities Who Used to Model before Getting Their Big Break ...
@@ -56,16 +56,16 @@ Well, there you have it! These are just seven out of MANY celebrities who modele
 
 ## Related Posts
 
-- [jane kaczmarek husband](https://celebs.allwomenstalk.com/celebrity-mothers-who-had-their-first-baby-after-40/)
+- [blake lively sobriety](https://celebs.allwomenstalk.com/celebs-who-live-a-sober-lifestyle/)
 - [who did scooter braun manage](https://celebs.allwomenstalk.com/celebs-who-have-scooter-braun-as-a-manager/)
+- [kristin davis adopted child](https://celebs.allwomenstalk.com/celebrities-who-have-adopted-kids/)
+- [that wish would go away](https://celebs.allwomenstalk.com/celebrities-we-wish-would-go-away/)
 - [comedian with red hat](https://celebs.allwomenstalk.com/stars-who-died-whilst-doing-what-they-loved/)
 - [christian bale and rowan atkinson](https://movies.allwomenstalk.com/potential-actors-for-james-bonds-role-that-will-probably-never-happen/)
-- [kristin davis adopted child](https://celebs.allwomenstalk.com/celebrities-who-have-adopted-kids/)
 - [ezra fitz brother](https://celebs.allwomenstalk.com/abc-celebrities-who-are-totally-crush-worthy/)
-- [blake lively sobriety](https://celebs.allwomenstalk.com/celebs-who-live-a-sober-lifestyle/)
-- [that wish would go away](https://celebs.allwomenstalk.com/celebrities-we-wish-would-go-away/)
-- [celebs on tour](https://celebs.allwomenstalk.com/celebs-who-have-shown-their-support-at-mileys-tour/)
 - [who is ariana grande husband](https://celebs.allwomenstalk.com/celebs-who-have-praised-ariana-grandes-talent/)
+- [jane kaczmarek husband](https://celebs.allwomenstalk.com/celebrity-mothers-who-had-their-first-baby-after-40/)
+- [celebs on tour](https://celebs.allwomenstalk.com/celebs-who-have-shown-their-support-at-mileys-tour/)
 - [7 Best Celebrity Role Models ...](https://allwomenstalk.com/7-best-celebrity-role-models/)
 - [7 Celebrities Who Quit Smoking ...](https://allwomenstalk.com/celebrities-who-quit-smoking/)
 

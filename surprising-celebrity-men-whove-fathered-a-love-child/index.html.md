@@ -3,7 +3,7 @@ title: "11 Surprising Celebrity Men Whove Fathered a Love Child ..."
 description: "Eddie Murphy; Mick Jagger; Hugh Grant; Jude Law; Steve Bing (and Elizabeth Hurley!); More ..."
 url: "https://celebs.allwomenstalk.com/surprising-celebrity-men-whove-fathered-a-love-child/"
 category: "celebs"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 11 Surprising Celebrity Men Whove Fathered a Love Child ...
@@ -80,16 +80,16 @@ It’s crazy to see so many celebrities with a love child. Have they not heard o
 
 ## Related Posts
 
-- [celebrity couples who met on set](https://celebs.allwomenstalk.com/super-adorable-celebrity-couples-that-met-on-set/)
-- [celebrities crop top](https://celebs.allwomenstalk.com/fabulous-celebrities-wearing-crop-tops-and-rocking-it/)
 - [famous people tweets](https://celebs.allwomenstalk.com/celebrities-who-are-known-to-tweet-back-their-followers/)
 - [tabloid celebrities](https://celebs.allwomenstalk.com/of-our-favorite-celebs-that-are-always-in-the-tabloids/)
-- [el pollo loco mascot](https://celebs.allwomenstalk.com/previous-jobs-done-by-celebrities/)
 - [top celebrity endorsements](https://celebs.allwomenstalk.com/of-the-biggest-celebrity-endorsement-deals-of-all-time/)
 - [14 year old actresses female](https://celebs.allwomenstalk.com/celebrities-who-starred-in-commercials-before-they-were-famous/)
-- [blonde male actors](https://movies.allwomenstalk.com/top-actors-with-oh-so-kissable-lips/)
-- [joel madden children](https://celebs.allwomenstalk.com/cute-and-stylish-celebrity-kids-we-adore/)
 - [celebrities who lost it all to drugs](https://celebs.allwomenstalk.com/celebrities-that-turned-their-life-around-after-using-drugs/)
+- [blonde male actors](https://movies.allwomenstalk.com/top-actors-with-oh-so-kissable-lips/)
+- [celebrity couples who met on set](https://celebs.allwomenstalk.com/super-adorable-celebrity-couples-that-met-on-set/)
+- [joel madden children](https://celebs.allwomenstalk.com/cute-and-stylish-celebrity-kids-we-adore/)
+- [el pollo loco mascot](https://celebs.allwomenstalk.com/previous-jobs-done-by-celebrities/)
+- [celebrities crop top](https://celebs.allwomenstalk.com/fabulous-celebrities-wearing-crop-tops-and-rocking-it/)
 - [19 Adorable Celebrity Moms ...](https://allwomenstalk.com/19-adorable-celebrity-moms/)
 - [8 Celebrities Who Could Have Been Seperated at Bir...](https://allwomenstalk.com/8-celebrities-who-could-have-been-seperated-at-birth/)
 

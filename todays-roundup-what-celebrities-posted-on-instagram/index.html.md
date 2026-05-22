@@ -3,7 +3,7 @@ title: "Todays Roundup: What Celebrities Posted on Instagram ..."
 description: "Colton Haynes; Anna Kendrick; Hailee Steinfeld; Victoria Justice; Emmy Rossum; More ..."
 url: "https://celebs.allwomenstalk.com/todays-roundup-what-celebrities-posted-on-instagram/"
 category: "celebs"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # Todays Roundup: What Celebrities Posted on Instagram ...
@@ -80,16 +80,16 @@ Which of these celebs are you following on Instagram?
 
 ## Related Posts
 
-- [Weekend Wrap up: What Celebs Posted at the Weekend...](https://celebs.allwomenstalk.com/weekend-wrap-up-what-celebs-posted-this-weekend/)
-- [10 Celebrity TBT Photos You May Have Missed This W...](https://celebs.allwomenstalk.com/celebrity-tbt-photos-you-may-have-missed-this-week/)
-- [10 Hottest Magazine Covers of Nov. 2014 You Mightv...](https://beauty.allwomenstalk.com/hottest-magazine-covers-of-nov-you-mightve-missed/)
-- [Fan-girling Mania: Celebrities do It Too](https://celebs.allwomenstalk.com/fan-girling-mania-celebrities-do-it-too/)
-- [27 celebrities that everyone agrees are impossible...](https://celebs.allwomenstalk.com/these-celebs-are-just-impossible-to-hate/)
-- [vanessa hudgens ombre hair](https://hair.allwomenstalk.com/celebrity-hair-transformations-of/)
-- [15 Celebrity Posts You May Have Missed This Weeken...](https://celebs.allwomenstalk.com/celebrity-posts-you-may-have-missed-this-weekend/)
-- [TBT Wrap up: 10 Celeb Posts You Need to See ...](https://celebs.allwomenstalk.com/tbt-wrap-up-celeb-posts-you-need-to-see/)
-- [Happy Tuesday Heres What Celebs Posted Today](https://celebs.allwomenstalk.com/happy-tuesday-heres-what-celebs-posted-today/)
 - [Weekend Wrap up: What Celebs Posted This Weekend ....](https://celebs.allwomenstalk.com/weekend-wrap-up-what-celebs-posted-this-weekend-2/)
+- [10 Celebrity TBT Photos You May Have Missed This W...](https://celebs.allwomenstalk.com/celebrity-tbt-photos-you-may-have-missed-this-week/)
+- [Happy Tuesday Heres What Celebs Posted Today](https://celebs.allwomenstalk.com/happy-tuesday-heres-what-celebs-posted-today/)
+- [Weekend Wrap up: What Celebs Posted at the Weekend...](https://celebs.allwomenstalk.com/weekend-wrap-up-what-celebs-posted-this-weekend/)
+- [TBT Wrap up: 10 Celeb Posts You Need to See ...](https://celebs.allwomenstalk.com/tbt-wrap-up-celeb-posts-you-need-to-see/)
+- [vanessa hudgens ombre hair](https://hair.allwomenstalk.com/celebrity-hair-transformations-of/)
+- [Fan-girling Mania: Celebrities do It Too](https://celebs.allwomenstalk.com/fan-girling-mania-celebrities-do-it-too/)
+- [10 Hottest Magazine Covers of Nov. 2014 You Mightv...](https://beauty.allwomenstalk.com/hottest-magazine-covers-of-nov-you-mightve-missed/)
+- [27 celebrities that everyone agrees are impossible...](https://celebs.allwomenstalk.com/these-celebs-are-just-impossible-to-hate/)
+- [15 Celebrity Posts You May Have Missed This Weeken...](https://celebs.allwomenstalk.com/celebrity-posts-you-may-have-missed-this-weekend/)
 - [4 Fun Celebrity Haircuts This Week ...](https://celebs.allwomenstalk.com/celebrity-haircuts-this-week/)
 - [10 Big Celebrity News of 2011 ...](https://celebs.allwomenstalk.com/big-celebrity-news-of/)
 

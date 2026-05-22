@@ -3,7 +3,7 @@ title: "7 Talented Celebs You Didnt Know Could Sing ..."
 description: "Colton Hayes; Stephen Moyer; Nicholas Hoult; Kristen Bell; Joseph Gordon-Levitt; More ..."
 url: "https://celebs.allwomenstalk.com/talented-celebs-you-didnt-know-could-sing/"
 category: "celebs"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 7 Talented Celebs You Didnt Know Could Sing ...
@@ -58,14 +58,14 @@ Source smosh.com_,
 
 - [what celebrities changed their names](https://celebs.allwomenstalk.com/celebrities-who-changed-their-name-for-fame/)
 - [celebrity beach wedding](https://wedding.allwomenstalk.com/beautiful-celebrity-weddings-of/)
-- [historic actors](https://movies.allwomenstalk.com/celebrities-who-played-historical-figures-perfectly/)
-- [celebrities that are 15](https://celebs.allwomenstalk.com/celebrities-who-are-a-lot-older-than-you-think/)
-- [brittany murphy deces](https://celebs.allwomenstalk.com/of-the-most-sudden-celebrity-deaths/)
-- [greedy famous person](https://celebs.allwomenstalk.com/celebrities-who-embody-the-7-deadly-sins/)
-- [tina fey daughter alice](https://celebs.allwomenstalk.com/celebrity-kids-who-looks-like-their-parents/)
 - [british actors that do american accents](https://movies.allwomenstalk.com/british-actors-who-can-do-american-accents-perfectly/)
 - [hard actors to guess](https://movies.allwomenstalk.com/actors-who-turned-down-legendary-roles/)
+- [greedy famous person](https://celebs.allwomenstalk.com/celebrities-who-embody-the-7-deadly-sins/)
 - [hottest greys anatomy characters](https://movies.allwomenstalk.com/hottest-guys-on-greys-anatomy-that-we-cant-help-but-love/)
+- [celebrities that are 15](https://celebs.allwomenstalk.com/celebrities-who-are-a-lot-older-than-you-think/)
+- [tina fey daughter alice](https://celebs.allwomenstalk.com/celebrity-kids-who-looks-like-their-parents/)
+- [brittany murphy deces](https://celebs.allwomenstalk.com/of-the-most-sudden-celebrity-deaths/)
+- [historic actors](https://movies.allwomenstalk.com/celebrities-who-played-historical-figures-perfectly/)
 - [9 Worst Singing Actors ...](https://allwomenstalk.com/9-worst-singing-actors/)
 - [7 Brilliant Songwriters ...](https://allwomenstalk.com/brilliant-songwriters/)
 

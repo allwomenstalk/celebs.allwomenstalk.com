@@ -3,7 +3,7 @@ title: "New Year Bash Wrap-up: Part 2 ..."
 description: "Stay ahead, stay chic. Trusted guides on beauty, wellness, fashion, and everything that defines today's empowered woman."
 url: "https://celebs.allwomenstalk.com/new-year-bash-wrap-up-part-2/"
 category: "celebs"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # New Year Bash Wrap\-up: Part 2 ...
@@ -38,14 +38,14 @@ So what did you do on the 31st??
 
 - [7 People Who Shouldnt Have Been Assassinated ...](https://celebs.allwomenstalk.com/7-people-who-shouldnt-have-been-assassinated/)
 - [cool butterflies](https://gardening.allwomenstalk.com/5-cool-butterflies/)
-- [best rags to riches stories](https://celebs.allwomenstalk.com/best-from-rags-to-riches-stories/)
+- [amazing butterflies](https://gardening.allwomenstalk.com/5-amazing-butterflies/)
 - [awesome birds](https://gardening.allwomenstalk.com/5-awesome-birds/)
-- [mythbusters obama](https://celebs.allwomenstalk.com/obama-on-mythbusters/)
+- [best rags to riches stories](https://celebs.allwomenstalk.com/best-from-rags-to-riches-stories/)
 - [New Year Bash Wrap-up: Part 1 ...](https://celebs.allwomenstalk.com/new-year-bash-wrap-up-part-1/)
 - [dadt pink](https://celebs.allwomenstalk.com/stars-come-out-in-support-of-dadt-repeal/)
 - [favorite vines](https://gardening.allwomenstalk.com/5-of-my-favorite-vines/)
+- [mythbusters obama](https://celebs.allwomenstalk.com/obama-on-mythbusters/)
 - [Cooks Love for Mother Earth Revealed...](https://celebs.allwomenstalk.com/cooks-love-for-mother-earth-revealed/)
-- [amazing butterflies](https://gardening.allwomenstalk.com/5-amazing-butterflies/)
 - [5 Ways to Celebrate Your New Years Eve Wedding ...](https://wedding.allwomenstalk.com/5-ways-to-celebrate-your-new-years-eve-wedding/)
 - [Some Fun Stuff....](https://allwomenstalk.com/some-fun-stuff/)
 

@@ -3,7 +3,7 @@ title: "8 Top Celebrity Philanthropists That We Love and Adore ..."
 description: "Paul Newman; Angelina Jolie & Brad Pitt; Elton John; George Clooney; Oprah Winfrey; More ..."
 url: "https://celebs.allwomenstalk.com/top-celebrity-philanthropists/"
 category: "celebs"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 8 Top Celebrity Philanthropists That We Love and Adore ...
@@ -62,16 +62,16 @@ It could be said that celebrities can afford to give money away, but let's give 
 
 ## Related Posts
 
-- [alexsandra wright son](https://celebs.allwomenstalk.com/surprising-celebrity-men-whove-fathered-a-love-child/)
-- [celebs who dont age](https://celebs.allwomenstalk.com/spookily-youthful-celebs-who-never-age/)
-- [celebrity makeovers](https://celebs.allwomenstalk.com/amazing-celebrity-makeovers-that-make-great-inspiration/)
-- [celebrities who lost it all to drugs](https://celebs.allwomenstalk.com/celebrities-that-turned-their-life-around-after-using-drugs/)
-- [emily osment plastic surgery](https://celebs.allwomenstalk.com/celebrities-who-look-like-other-celebrities-see-it-to-believe-it/)
-- [most elegant celebrities](https://celebs.allwomenstalk.com/most-stylish-celebrity-moms-to-be-that-we-love/)
 - [famous note](https://money.allwomenstalk.com/interesting-famous-people-on-banknotes-around-the-world/)
-- [hollywood actress with best figure](https://movies.allwomenstalk.com/top-actors-with-the-hottest-bodies/)
-- [hans epprecht](https://money.allwomenstalk.com/people-who-were-named-as-new-billionaires-in/)
 - [jason lee child name](https://celebs.allwomenstalk.com/awesome-celebrity-baby-names/)
+- [most elegant celebrities](https://celebs.allwomenstalk.com/most-stylish-celebrity-moms-to-be-that-we-love/)
+- [hans epprecht](https://money.allwomenstalk.com/people-who-were-named-as-new-billionaires-in/)
+- [celebrity makeovers](https://celebs.allwomenstalk.com/amazing-celebrity-makeovers-that-make-great-inspiration/)
+- [alexsandra wright son](https://celebs.allwomenstalk.com/surprising-celebrity-men-whove-fathered-a-love-child/)
+- [hollywood actress with best figure](https://movies.allwomenstalk.com/top-actors-with-the-hottest-bodies/)
+- [celebs who dont age](https://celebs.allwomenstalk.com/spookily-youthful-celebs-who-never-age/)
+- [emily osment plastic surgery](https://celebs.allwomenstalk.com/celebrities-who-look-like-other-celebrities-see-it-to-believe-it/)
+- [celebrities who lost it all to drugs](https://celebs.allwomenstalk.com/celebrities-that-turned-their-life-around-after-using-drugs/)
 - [8 Most down to Earth Celebrities ...](https://celebs.allwomenstalk.com/most-down-to-earth-celebrities/)
 - [7 Awesomely Impressive Celebrity Entrepreneurs ...](https://celebs.allwomenstalk.com/awesomely-impressive-celebrity-entrepreneurs/)
 

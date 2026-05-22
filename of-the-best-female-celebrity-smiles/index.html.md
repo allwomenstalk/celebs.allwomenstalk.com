@@ -3,7 +3,7 @@ title: "17 of the Best Female Celebrity Smiles ..."
 description: "Charlize Theron; Jennifer Lopez; Julia Roberts; Catherine Zeta-Jones; Kate Hudson; More ..."
 url: "https://celebs.allwomenstalk.com/of-the-best-female-celebrity-smiles/"
 category: "celebs"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 17 of the Best Female Celebrity Smiles ...
@@ -118,14 +118,14 @@ Keeping this list to only 17 names is not easy, but a girl’s gotta get her bea
 
 - [brunette actress with big eyes](https://celebs.allwomenstalk.com/actresses-with-beautiful-eyes-that-mesmerize/)
 - [toby regbo shirtless](https://celebs.allwomenstalk.com/teen-celebrities-worth-fangirling-over/)
-- [his three daughters cast](https://celebs.allwomenstalk.com/celebrities-with-more-than-3-children/)
-- [anna chlumsky swimsuit](https://celebs.allwomenstalk.com/child-stars-and-where-they-are-now/)
-- [tattoo celebrity male](https://celebs.allwomenstalk.com/hot-celebs-with-tattoos-who-look-great-shirtless/)
 - [riche le stylo eye shadow glistening garnet](https://celebs.allwomenstalk.com/celebrities-and-their-godparents/)
 - [celebrities who started from the bottom](https://celebs.allwomenstalk.com/celebrities-who-started-from-the-bottom-and-rose-to-the-top/)
-- [does will smith have dyslexia](https://celebs.allwomenstalk.com/famous-people-with-dyslexia/)
-- [sean faris and robbie amell](https://celebs.allwomenstalk.com/celebs-from-cws-arrow-that-are-social-on-twitter/)
 - [miley cyrus coachella outfit](https://celebs.allwomenstalk.com/celebrities-who-looked-fab-at-coachella/)
+- [anna chlumsky swimsuit](https://celebs.allwomenstalk.com/child-stars-and-where-they-are-now/)
+- [does will smith have dyslexia](https://celebs.allwomenstalk.com/famous-people-with-dyslexia/)
+- [tattoo celebrity male](https://celebs.allwomenstalk.com/hot-celebs-with-tattoos-who-look-great-shirtless/)
+- [sean faris and robbie amell](https://celebs.allwomenstalk.com/celebs-from-cws-arrow-that-are-social-on-twitter/)
+- [his three daughters cast](https://celebs.allwomenstalk.com/celebrities-with-more-than-3-children/)
 - [7 Cool Celebrities with Dimples ...](https://celebs.allwomenstalk.com/cool-celebrities-with-dimples/)
 - [2007 Golden Globes: Best in Beauty ...](https://allwomenstalk.com/golden-globes-best-in-beauty/)
 

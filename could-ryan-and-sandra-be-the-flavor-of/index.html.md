@@ -3,7 +3,7 @@ title: "Could Ryan and Sandra Be the Flavor of 2011? ..."
 description: "Stay ahead, stay chic. Trusted guides on beauty, wellness, fashion, and everything that defines today's empowered woman."
 url: "https://celebs.allwomenstalk.com/could-ryan-and-sandra-be-the-flavor-of/"
 category: "celebs"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # Could Ryan and Sandra Be the Flavor of 2011? ...
@@ -28,14 +28,14 @@ Personally, I think Scarlett suited Ryan better, but then again the chemistry th
 
 - [melissa mccarthy mother](https://lifestyle.allwomenstalk.com/moms-are-talking-with-melissa-mccarthy-over-at-ivorys-the-soap-dish/)
 - [An Elke in NY Update.](https://allwomenstalk.com/an-elke-in-ny-update/)
-- [Somebodys Hot Friend 2](https://allwomenstalk.com/somebodys-hot-friend-2/)
-- [PHOTO SHOOT: Hello Dollie ...](https://allwomenstalk.com/photo-shoot-hello-dollie/)
-- [And Just like That Im 19 Entertainments Bitch a...](https://allwomenstalk.com/and-just-like-that-im-19-entertainments-bitch-a/)
-- [Brit Scientist -- round 2 Date 4 ...](https://allwomenstalk.com/brit-scientist-round-2-date-4/)
 - [Another Photo Shoot in NY ...](https://allwomenstalk.com/another-photo-shoot-in-ny/)
-- [The Fabulous Fanning Sisters for W Magazine ...](https://celebs.allwomenstalk.com/the-fabulous-fanning-sisters-for-w-magazine/)
-- [Rihanna Wants You to See Everything...](https://celebs.allwomenstalk.com/rihanna-wants-you-to-see-everything/)
+- [And Just like That Im 19 Entertainments Bitch a...](https://allwomenstalk.com/and-just-like-that-im-19-entertainments-bitch-a/)
+- [Somebodys Hot Friend 2](https://allwomenstalk.com/somebodys-hot-friend-2/)
+- [Brit Scientist -- round 2 Date 4 ...](https://allwomenstalk.com/brit-scientist-round-2-date-4/)
 - [Lady Gaga Goes Country](https://celebs.allwomenstalk.com/lady-gaga-goes-country/)
+- [Rihanna Wants You to See Everything...](https://celebs.allwomenstalk.com/rihanna-wants-you-to-see-everything/)
+- [The Fabulous Fanning Sisters for W Magazine ...](https://celebs.allwomenstalk.com/the-fabulous-fanning-sisters-for-w-magazine/)
+- [PHOTO SHOOT: Hello Dollie ...](https://allwomenstalk.com/photo-shoot-hello-dollie/)
 - [If I Could Pick the Cast for the Twilight Movie  T...](https://twilight.allwomenstalk.com/if-i-could-pick-the-cast-for-the-twilight-movie-this-is-who-i-would-pick/)
 - [Mel Rose and Jeremy Piven Are a New Item](https://allwomenstalk.com/mel-rose-and-jeremy-piven-are-a-new-item/)
 

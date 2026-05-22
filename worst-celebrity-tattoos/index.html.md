@@ -3,7 +3,7 @@ title: "17 Worst Celebrity Tattoos ..."
 description: "Ke$ha; Rihanna; T-Pain; Bam Margera; Mike Tyson; More ..."
 url: "https://celebs.allwomenstalk.com/worst-celebrity-tattoos/"
 category: "celebs"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 17 Worst Celebrity Tattoos ...
@@ -117,15 +117,15 @@ Here’s proof that celebrities have temporary lapses in judgment just like us w
 ## Related Posts
 
 - [rihanna no make up](https://celebs.allwomenstalk.com/no-makeup-celebrities-that-look-great/)
-- [stephenie meyer twilight cameo](https://movies.allwomenstalk.com/writers-who-made-a-cameo-appearance/)
-- [weddings while pregnant](https://wedding.allwomenstalk.com/gorgeous-pregnant-celebrity-brides/)
+- [teenage celebs](https://celebs.allwomenstalk.com/most-stylish-teen-celebrities-to-watch/)
 - [hot hollywood news](https://celebs.allwomenstalk.com/hot-hollywood-stars-with-troubled-pasts/)
 - [is natalie portman smart](https://celebs.allwomenstalk.com/super-smart-celebrities/)
-- [teenage celebs](https://celebs.allwomenstalk.com/most-stylish-teen-celebrities-to-watch/)
-- [renee zellweger weight loss diet](https://celebs.allwomenstalk.com/celebs-who-drastically-lost-weight-for-roles/)
+- [stephenie meyer twilight cameo](https://movies.allwomenstalk.com/writers-who-made-a-cameo-appearance/)
 - [best front men](https://celebs.allwomenstalk.com/hottest-band-front-men/)
+- [renee zellweger weight loss diet](https://celebs.allwomenstalk.com/celebs-who-drastically-lost-weight-for-roles/)
 - [edward cullen sixpack](https://celebs.allwomenstalk.com/top-hot-actors-who-should-play-christian-grey/)
 - [dilf celebs](https://celebs.allwomenstalk.com/gorgeous-celebrities-both-men-and-women-drool-over/)
+- [weddings while pregnant](https://wedding.allwomenstalk.com/gorgeous-pregnant-celebrity-brides/)
 - [7 Biggest Celebrity Weddings ...](https://wedding.allwomenstalk.com/biggest-celebrity-weddings/)
 - [7 Funkiest Celebrity Hairstyles ...](https://celebs.allwomenstalk.com/7-funkiest-celebrity-hairstyles/)
 

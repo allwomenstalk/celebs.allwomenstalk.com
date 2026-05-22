@@ -3,7 +3,7 @@ title: "These 7 Lesser Known Stories behind Male Celebrities Scars Will Blow You
 description: "Humphrey Bogart's – Lip; Sylvester Stallone – Left Side of His Face; Steve Buscemi – Cheek; Sean Bean – Arm and Left Eye; Bear Grylls – All over His Body; More ..."
 url: "https://celebs.allwomenstalk.com/these-lesser-known-stories-behind-male-celebrities-scars-will-blow-your-mind/"
 category: "celebs"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # These 7 Lesser Known Stories behind Male Celebrities Scars Will Blow Your Mind ...
@@ -60,16 +60,16 @@ vh1.com_
 
 ## Related Posts
 
-- [gay love stories movie](https://movies.allwomenstalk.com/times-hollywood-got-gay-love-right/)
-- [celebrities with red lipstick](https://celebs.allwomenstalk.com/these-celebs-prove-you-too-can-rock-a-red-lip/)
-- [famous 80s actors](https://celebs.allwomenstalk.com/and-hes-still-hot-80s-actors-who-look-even-better-now/)
-- [big bang top hair](https://music.allwomenstalk.com/kpop-stars-who-rocked-their-hair-color/)
-- [are britney spears teeth different](https://celebs.allwomenstalk.com/gorgeous-celebrities-with-gap-teeth-who-inspire-you-to-embrace-your-smile/)
-- [drew barrymore and jeremy thomas](https://celebs.allwomenstalk.com/the-downside-to-stardom-9-shockingly-short-celebrity-marriages-you-never-knew-about/)
 - [young neville longbottom](https://movies.allwomenstalk.com/neville-got-hot-and-this-is-what-the-rest-of-the-harry-potter-cast-looks-like-now/)
-- [celebrity couple goals](https://celebs.allwomenstalk.com/celebrity-couples-that-should-be-your-relationshipgoals/)
-- [emma watson gpa](https://celebs.allwomenstalk.com/beauty-brains-celebrities-that-went-back-to-school/)
 - [fame vs celebrity](https://celebs.allwomenstalk.com/why-we-all-need-to-stop-envying-celebrities/)
+- [celebrities with red lipstick](https://celebs.allwomenstalk.com/these-celebs-prove-you-too-can-rock-a-red-lip/)
+- [are britney spears teeth different](https://celebs.allwomenstalk.com/gorgeous-celebrities-with-gap-teeth-who-inspire-you-to-embrace-your-smile/)
+- [famous 80s actors](https://celebs.allwomenstalk.com/and-hes-still-hot-80s-actors-who-look-even-better-now/)
+- [celebrity couple goals](https://celebs.allwomenstalk.com/celebrity-couples-that-should-be-your-relationshipgoals/)
+- [drew barrymore and jeremy thomas](https://celebs.allwomenstalk.com/the-downside-to-stardom-9-shockingly-short-celebrity-marriages-you-never-knew-about/)
+- [emma watson gpa](https://celebs.allwomenstalk.com/beauty-brains-celebrities-that-went-back-to-school/)
+- [big bang top hair](https://music.allwomenstalk.com/kpop-stars-who-rocked-their-hair-color/)
+- [gay love stories movie](https://movies.allwomenstalk.com/times-hollywood-got-gay-love-right/)
 - [7 Greatly Astonishing Celebrity Scandals ...](https://celebs.allwomenstalk.com/greatly-astonishing-celebrity-scandals/)
 - [7 Wonderfully Remarkable Celebrity Cancer Survivor...](https://celebs.allwomenstalk.com/wonderfully-remarkable-celebrity-cancer-survivor-stories/)
 

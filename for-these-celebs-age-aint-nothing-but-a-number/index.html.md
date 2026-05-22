@@ -3,7 +3,7 @@ title: "For These Celebs Age Aint Nothing but a Number!"
 description: "Katy Perry & John Mayer; Nina Dobrev & Ian Somerhalder; Demi Lovato and Wilmer Valderrama; Nick Jonas and Delta Goodrem; Blake Lively and Ryan Reynolds; More ..."
 url: "https://celebs.allwomenstalk.com/for-these-celebs-age-aint-nothing-but-a-number/"
 category: "celebs"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # For These Celebs Age Aint Nothing but a Number!
@@ -68,15 +68,15 @@ What do you think about age gaps? How old is TOO old for you?
 
 ## Related Posts
 
-- [celebrities who support gender equality](https://celebs.allwomenstalk.com/heforshe-male-celebs-supporting-gender-equality/)
-- [dennis rodman belly button](https://celebs.allwomenstalk.com/celebrities-you-may-have-forgotten-had-facial-piercings/)
-- [how did mike tysons daughter die](https://celebs.allwomenstalk.com/male-celebrities-who-lost-children/)
 - [stars of the 1940s](https://celebs.allwomenstalk.com/reasons-to-emulate-1940s-movie-stars/)
-- [kaley cuoco bowling movie](https://celebs.allwomenstalk.com/celebrity-throwbacks-dcom-edition/)
-- [disney look alikes](https://celebs.allwomenstalk.com/whoa-celebrities-and-their-disney-lookalikes/)
-- [flynn rider irl](https://celebs.allwomenstalk.com/celebs-you-probably-forgot-voiced-disney-characters/)
-- [cast of twilight dancers](https://movies.allwomenstalk.com/worst-dancers-on-tv-and-in-the-movies/)
 - [funny ice bucket challenge](https://celebs.allwomenstalk.com/funniest-celebrity-ice-bucket-challenge-videos/)
+- [cast of twilight dancers](https://movies.allwomenstalk.com/worst-dancers-on-tv-and-in-the-movies/)
+- [disney look alikes](https://celebs.allwomenstalk.com/whoa-celebrities-and-their-disney-lookalikes/)
+- [kaley cuoco bowling movie](https://celebs.allwomenstalk.com/celebrity-throwbacks-dcom-edition/)
+- [celebrities who support gender equality](https://celebs.allwomenstalk.com/heforshe-male-celebs-supporting-gender-equality/)
+- [how did mike tysons daughter die](https://celebs.allwomenstalk.com/male-celebrities-who-lost-children/)
+- [flynn rider irl](https://celebs.allwomenstalk.com/celebs-you-probably-forgot-voiced-disney-characters/)
+- [dennis rodman belly button](https://celebs.allwomenstalk.com/celebrities-you-may-have-forgotten-had-facial-piercings/)
 - [celebrities on bereal](https://celebs.allwomenstalk.com/celebrities-and-their-honest-opinions-on-motherhood/)
 - [Play Catch-up with Your Favorite Reality Stars](https://allwomenstalk.com/play-catch-up-with-your-favorite-reality-stars/)
 - [More on Celebs amp Their Weight ...](https://allwomenstalk.com/more-on-celebs-their-weight/)

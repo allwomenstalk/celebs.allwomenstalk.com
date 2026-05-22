@@ -3,7 +3,7 @@ title: "11 Ridiculously Talented Canadian Stars to Watch out for ..."
 description: "Karine Vanasse; Ryan Gosling; Xavier Dolan; Nina Dobrev; Jessica Lucas; More ..."
 url: "https://celebs.allwomenstalk.com/ridiculously-talented-canadian-stars-to-watch-out-for/"
 category: "celebs"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 11 Ridiculously Talented Canadian Stars to Watch out for ...
@@ -80,16 +80,16 @@ From Ellen Page, Sandra Oh to Michael Cera, there are countless Canadian stars w
 
 ## Related Posts
 
-- [harry potter cast where are they now](https://movies.allwomenstalk.com/harry-potter-cast-members-and-where-they-are-now/)
-- [celebrities with the best hair](https://celebs.allwomenstalk.com/gorgeous-celebrities-with-the-best-hair/)
-- [what instruments can taylor swift play](https://music.allwomenstalk.com/pop-stars-who-can-also-play-an-instrument/)
-- [celebs on broadway](https://celebs.allwomenstalk.com/celebs-who-are-heading-to-broadway-this-year/)
-- [kijjimb](https://celebs.allwomenstalk.com/of-the-cutest-celeb-throwback-photos/)
-- [lisa kudrow iq](https://celebs.allwomenstalk.com/celebrities-who-are-more-intelligent-than-you-think/)
-- [celebrities who are also artists](https://celebs.allwomenstalk.com/celebrities-who-are-also-artists/)
 - [celebrity ad campaigns](https://fashion.allwomenstalk.com/amazing-celebrity-ad-campaigns-that-we-love/)
 - [actors who havent won an oscar](https://movies.allwomenstalk.com/amazing-actors-who-are-yet-to-win-an-oscar/)
+- [celebrities who are also artists](https://celebs.allwomenstalk.com/celebrities-who-are-also-artists/)
+- [kijjimb](https://celebs.allwomenstalk.com/of-the-cutest-celeb-throwback-photos/)
+- [celebs on broadway](https://celebs.allwomenstalk.com/celebs-who-are-heading-to-broadway-this-year/)
 - [movies actors regret](https://movies.allwomenstalk.com/actors-who-regret-their-roles/)
+- [lisa kudrow iq](https://celebs.allwomenstalk.com/celebrities-who-are-more-intelligent-than-you-think/)
+- [celebrities with the best hair](https://celebs.allwomenstalk.com/gorgeous-celebrities-with-the-best-hair/)
+- [harry potter cast where are they now](https://movies.allwomenstalk.com/harry-potter-cast-members-and-where-they-are-now/)
+- [what instruments can taylor swift play](https://music.allwomenstalk.com/pop-stars-who-can-also-play-an-instrument/)
 - [7 Inspiring Celebrities of 2011 ...](https://celebs.allwomenstalk.com/inspiring-celebrities-of/)
 - [10 Actors and Actresses to Watch out for in 2010 ....](https://allwomenstalk.com/actors-and-actresses-to-watch-in/)
 

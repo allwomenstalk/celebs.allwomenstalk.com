@@ -3,7 +3,7 @@ title: "The Hobbit Shooting in Jeopardy Once Again..."
 description: "Stay ahead, stay chic. Trusted guides on beauty, wellness, fashion, and everything that defines today's empowered woman."
 url: "https://celebs.allwomenstalk.com/the-hobbit-shooting-in-jeopardy-once-again/"
 category: "celebs"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # The Hobbit Shooting in Jeopardy Once Again...
@@ -24,16 +24,16 @@ The first instalment of the film is set for release in late 2012 and will be fol
 
 ## Related Posts
 
-- [dadt pink](https://celebs.allwomenstalk.com/stars-come-out-in-support-of-dadt-repeal/)
-- [New Year Bash Wrap-up: Part 2 ...](https://celebs.allwomenstalk.com/new-year-bash-wrap-up-part-2/)
+- [mythbusters obama](https://celebs.allwomenstalk.com/obama-on-mythbusters/)
+- [best rags to riches stories](https://celebs.allwomenstalk.com/best-from-rags-to-riches-stories/)
 - [7 People Who Shouldnt Have Been Assassinated ...](https://celebs.allwomenstalk.com/7-people-who-shouldnt-have-been-assassinated/)
+- [awesome birds](https://gardening.allwomenstalk.com/5-awesome-birds/)
+- [New Year Bash Wrap-up: Part 1 ...](https://celebs.allwomenstalk.com/new-year-bash-wrap-up-part-1/)
+- [cool butterflies](https://gardening.allwomenstalk.com/5-cool-butterflies/)
 - [Cooks Love for Mother Earth Revealed...](https://celebs.allwomenstalk.com/cooks-love-for-mother-earth-revealed/)
 - [favorite vines](https://gardening.allwomenstalk.com/5-of-my-favorite-vines/)
-- [best rags to riches stories](https://celebs.allwomenstalk.com/best-from-rags-to-riches-stories/)
-- [cool butterflies](https://gardening.allwomenstalk.com/5-cool-butterflies/)
-- [New Year Bash Wrap-up: Part 1 ...](https://celebs.allwomenstalk.com/new-year-bash-wrap-up-part-1/)
-- [awesome birds](https://gardening.allwomenstalk.com/5-awesome-birds/)
-- [mythbusters obama](https://celebs.allwomenstalk.com/obama-on-mythbusters/)
+- [New Year Bash Wrap-up: Part 2 ...](https://celebs.allwomenstalk.com/new-year-bash-wrap-up-part-2/)
+- [dadt pink](https://celebs.allwomenstalk.com/stars-come-out-in-support-of-dadt-repeal/)
 - [Harry Potter to Cast a Spell in Southern Californi...](https://travel.allwomenstalk.com/could-it-be-magic-harry-potter-to-cast-a-spell-in-southern-california/)
 - [The Oscar Race is on...](https://celebs.allwomenstalk.com/the-oscar-race-is-on/)
 

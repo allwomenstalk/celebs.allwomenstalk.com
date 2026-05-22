@@ -3,7 +3,7 @@ title: "7 Cool Celebrities with Dimples ..."
 description: "Cheryl Cole; Leonardo Di Caprio; Nicky Hilton; Alan Cummings; Camille Guaty; More ..."
 url: "https://celebs.allwomenstalk.com/cool-celebrities-with-dimples/"
 category: "celebs"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 7 Cool Celebrities with Dimples ...
@@ -45,15 +45,15 @@ Top image source: [data.whicdn.com](http://data.whicdn.com/images/10136813/tumbl
 ## Related Posts
 
 - [worst table manners](https://celebs.allwomenstalk.com/celebrities-with-awful-table-manners/)
+- [4 Celebs That Shot to Fame after Cosmetic Surgery....](https://celebs.allwomenstalk.com/celebs-that-shot-to-fame-after-cosmetic-surgery/)
+- [beta male drawing](https://celebs.allwomenstalk.com/sweetly-sexy-hollywood-beta-males/)
+- [matt damon buzz cut](https://celebs.allwomenstalk.com/celebrity-haircuts-this-week/)
+- [lucille ball debra messing](https://celebs.allwomenstalk.com/celebs-that-rock-red-hair/)
+- [renee zellweger kenny chesney wedding](https://celebs.allwomenstalk.com/famous-hollywood-divorces/)
 - [celebs who live in nyc](https://celebs.allwomenstalk.com/celebrities-who-live-in-nyc/)
 - [katharine hepburn height weight](https://celebs.allwomenstalk.com/enduring-celebrity-myths/)
-- [4 Celebs That Shot to Fame after Cosmetic Surgery....](https://celebs.allwomenstalk.com/celebs-that-shot-to-fame-after-cosmetic-surgery/)
-- [renee zellweger kenny chesney wedding](https://celebs.allwomenstalk.com/famous-hollywood-divorces/)
-- [beta male drawing](https://celebs.allwomenstalk.com/sweetly-sexy-hollywood-beta-males/)
-- [lucille ball debra messing](https://celebs.allwomenstalk.com/celebs-that-rock-red-hair/)
 - [inspiring celebrities](https://celebs.allwomenstalk.com/inspiring-celebrities-of/)
 - [olivia wilde bangs](https://celebs.allwomenstalk.com/celebrities-proving-that-bangs-are-back/)
-- [matt damon buzz cut](https://celebs.allwomenstalk.com/celebrity-haircuts-this-week/)
 - [7 of My Favorite Celebrities ...](https://celebs.allwomenstalk.com/7-of-my-favorite-celebrities/)
 - [7 Best Celebs with Indie Style ...](https://allwomenstalk.com/7-best-celebs-with-indie-style/)
 

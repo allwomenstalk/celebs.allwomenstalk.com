@@ -3,7 +3,7 @@ title: "7 Mindy Kaling Quotes That Will Make You Wish You Were Best Friends ..."
 description: "“I’m Adorable. I Look like Keira Knightley Running Errands!”; “One Friend with Whom You Have a Lot in Common is Better than Three with Whom You Struggle to Find Things to Talk about.”; “Sometimes You Just Have to Put on Lip Gloss and Pretend to Be Psyched.”; “the Chorus of 'Jack and Diane' is: Oh Yeah, Life Goes on, Long after the Thrill of Living is Gone. Are You Kidding Me? the Thrill of Living Was High School? Come on, Mr. Cougar Mellencamp. Get a Life.”; \"People Seem to Be Having These Awesome Sex Lives, and I’m Just Trying to Find a Life Partner to Go Apple Picking with. What’s Wrong with Me?\"; More ..."
 url: "https://celebs.allwomenstalk.com/mindy-kaling-quotes-that-will-make-you-wish-you-were-best-friends/"
 category: "celebs"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 7 Mindy Kaling Quotes That Will Make You Wish You Were Best Friends ...
@@ -42,16 +42,16 @@ Which of these quotes is your favorite? Do you watch The Mindy Project? Have you
 
 ## Related Posts
 
-- [aristotle on emotional intelligence](https://inspiration.allwomenstalk.com/quotes-about-emotional-intelligence-to-make-you-think/)
 - [mr feeny quote](https://movies.allwomenstalk.com/of-the-best-boy-meets-world-quotes/)
+- [love relatable quotes](https://movies.allwomenstalk.com/relatable-quotes-from-girls-that-you-will-love/)
+- [learn to be patient quotes](https://inspiration.allwomenstalk.com/quotes-about-testing-times-to-give-you-the-power-to-persevere/)
 - [never regret the decisions you made](https://inspiration.allwomenstalk.com/inspirational-quotes-that-are-actually-surprisingly-true/)
 - [everything is copy meaning](https://inspiration.allwomenstalk.com/nora-ephron-quotes-to-inspire-you-as-a-woman-and-a-writer/)
 - [fantastic quote](https://inspiration.allwomenstalk.com/fantastically-motivational-quotes-to-start-the-new-year/)
-- [fear is. so are regrets](https://inspiration.allwomenstalk.com/empowering-quotes-from-marilyn-monroe/)
-- [love relatable quotes](https://movies.allwomenstalk.com/relatable-quotes-from-girls-that-you-will-love/)
-- [learn to be patient quotes](https://inspiration.allwomenstalk.com/quotes-about-testing-times-to-give-you-the-power-to-persevere/)
-- [holding a grudge is like drinking poison quote](https://inspiration.allwomenstalk.com/profound-quotes-from-nelson-mandela/)
 - [motivational quotes by oprah winfrey](https://inspiration.allwomenstalk.com/inspirational-quotes-by-inspirational-women/)
+- [aristotle on emotional intelligence](https://inspiration.allwomenstalk.com/quotes-about-emotional-intelligence-to-make-you-think/)
+- [holding a grudge is like drinking poison quote](https://inspiration.allwomenstalk.com/profound-quotes-from-nelson-mandela/)
+- [fear is. so are regrets](https://inspiration.allwomenstalk.com/empowering-quotes-from-marilyn-monroe/)
 - [7 of My Favorite Friendship Quotes ...](https://allwomenstalk.com/7-of-my-favorite-friendship-quotes/)
 - [7 Interesting Quotes ...](https://allwomenstalk.com/interesting-quotes/)
 

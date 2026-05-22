@@ -3,7 +3,7 @@ title: "15 Celebrities Who Have Completed the Ice Bucket Challenge ..."
 description: "Cast of Grey's Anatomy; Britney Spears; Anna Kendrick; Stephen Amell; J.lo; More ..."
 url: "https://celebs.allwomenstalk.com/celebrities-who-have-completed-the-ice-bucket-challenge/"
 category: "celebs"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 15 Celebrities Who Have Completed the Ice Bucket Challenge ...
@@ -105,14 +105,14 @@ By now, SO many other celebrities have joined the fight to raise awareness to AL
 ## Related Posts
 
 - [aileen wuornos movie actress](https://movies.allwomenstalk.com/best-transformations-for-movies/)
-- [sexiest challenges](https://celebs.allwomenstalk.com/sexiest-ice-bucket-challenges-with-the-hottest-guys-in-hollywood/)
 - [alec baldwin looks like millard fillmore](https://celebs.allwomenstalk.com/whoa-do-these-celebs-have-a-historical-twin/)
-- [mr rogers sniper](https://celebs.allwomenstalk.com/celebrity-urban-legends-and-the-truth-behind-them/)
 - [celebrities who love food](https://celebs.allwomenstalk.com/celebrity-foodies-that-love-food-as-much-as-you-do/)
-- [ryan gosling tagine](https://celebs.allwomenstalk.com/celebrities-who-own-restaurants-and-bars/)
-- [celebrities who are vegetarian](https://celebs.allwomenstalk.com/celebrities-who-are-vegan/)
-- [best cameos for each character](https://movies.allwomenstalk.com/best-cameos-from-a-list-celebrities/)
 - [siblings best friends](https://celebs.allwomenstalk.com/these-celeb-siblings-also-double-as-best-friends/)
+- [celebrities who are vegetarian](https://celebs.allwomenstalk.com/celebrities-who-are-vegan/)
+- [mr rogers sniper](https://celebs.allwomenstalk.com/celebrity-urban-legends-and-the-truth-behind-them/)
+- [best cameos for each character](https://movies.allwomenstalk.com/best-cameos-from-a-list-celebrities/)
+- [ryan gosling tagine](https://celebs.allwomenstalk.com/celebrities-who-own-restaurants-and-bars/)
+- [sexiest challenges](https://celebs.allwomenstalk.com/sexiest-ice-bucket-challenges-with-the-hottest-guys-in-hollywood/)
 - [famous sidekicks in literature](https://movies.allwomenstalk.com/amazing-sidekicks-who-can-be-lead-stars/)
 - [25 Smartest Celebrities ...](https://celebs.allwomenstalk.com/25-smartest-celebrities/)
 - [15 Adorable Celebrity Dogs ...](https://allwomenstalk.com/15-adorable-celebrity-dogs/)

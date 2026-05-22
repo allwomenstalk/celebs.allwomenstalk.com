@@ -3,7 +3,7 @@ title: "9 Gorgeous Athletes to Watch for at the Olympics ..."
 description: "Alex Pietrangelo, Canadian Hockey Team; Tina Maze, Slovenia Alpine Skiing Team; Roman Josi, Swiss Hockey Team; Erik Guay, Canadian Alpine Skiing Team; Torah Bright, Australian Snowboarding Team; More ..."
 url: "https://celebs.allwomenstalk.com/gorgeous-athletes-to-watch-for-at-the-olympics/"
 category: "celebs"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 9 Gorgeous Athletes to Watch for at the Olympics ...
@@ -68,14 +68,14 @@ We’re halfway through the Olympics by now, but that doesn’t mean that there�
 
 ## Related Posts
 
-- [who is a triple threat](https://celebs.allwomenstalk.com/of-the-biggest-triple-threats-in-hollywood/)
+- [celebrities that own companies](https://celebs.allwomenstalk.com/celebrities-who-started-their-own-companies/)
+- [celebrities then and now how theyve changed](https://celebs.allwomenstalk.com/celebrities-who-changed-their-lives-drastically/)
 - [one tree hill kenzie dalton](https://movies.allwomenstalk.com/one-tree-hill-stars-and-where-they-are-now/)
-- [why did danny leave the mindy project](https://hair.allwomenstalk.com/celebrities-who-tried-a-pixie-cut/)
+- [who is a triple threat](https://celebs.allwomenstalk.com/of-the-biggest-triple-threats-in-hollywood/)
 - [j law face](https://celebs.allwomenstalk.com/j-law-moments-that-left-us-in-total-awe/)
 - [prom queen the homecoming](https://celebs.allwomenstalk.com/celebrities-who-were-homecoming-queens/)
+- [why did danny leave the mindy project](https://hair.allwomenstalk.com/celebrities-who-tried-a-pixie-cut/)
 - [most famous redheads](https://celebs.allwomenstalk.com/famous-redheads-and-their-amazing-careers/)
-- [celebrities then and now how theyve changed](https://celebs.allwomenstalk.com/celebrities-who-changed-their-lives-drastically/)
-- [celebrities that own companies](https://celebs.allwomenstalk.com/celebrities-who-started-their-own-companies/)
 - [celebrities downfall](https://celebs.allwomenstalk.com/things-we-can-learn-from-the-downfall-of-celebrities/)
 - [people that look like disney characters](https://celebs.allwomenstalk.com/celebrities-who-look-like-disney-characters-from-animated-movies/)
 - [7 Sexiest Athletes of 2011 ...](https://celebs.allwomenstalk.com/sexiest-athletes-of/)

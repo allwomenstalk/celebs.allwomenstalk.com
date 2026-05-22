@@ -3,7 +3,7 @@ title: "11 Celebrities on Dealing with Depression and Mental Disorders ..."
 description: "Wayne Brady; Ellen Degeneres; Demi Lovato; Lady Gaga; Jim Carrey; More ..."
 url: "https://celebs.allwomenstalk.com/celebrities-on-dealing-with-depression-and-mental-disorders/"
 category: "celebs"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 11 Celebrities on Dealing with Depression and Mental Disorders ...
@@ -80,16 +80,16 @@ Well, there you have it. These are just 11 out of many celebrities who have batt
 
 ## Related Posts
 
-- [paleo celebrities](https://celebs.allwomenstalk.com/celebs-that-follow-the-paleo-diet/)
-- [sara ramirez on law and order svu](https://celebs.allwomenstalk.com/celebrities-who-guest-starred-on-law-order/)
-- [tahlia hoskins](https://celebs.allwomenstalk.com/celebrities-we-said-a-sad-goodbye-to-in/)
-- [jim parson and rihanna](https://celebs.allwomenstalk.com/random-pair-of-celebrities-you-didnt-know-were-friends/)
-- [celebrities who love animals](https://celebs.allwomenstalk.com/celebrities-who-love-and-advocate-for-animals/)
-- [taylor swift favorite candle](https://music.allwomenstalk.com/celebrities-who-have-praised-taylor-swifts-new-album/)
 - [best of mean tweets](https://funny.allwomenstalk.com/this-video-of-celebs-reacting-to-mean-tweets-is-the-funniest-thing-youll-see-today/)
 - [actor that sings](https://celebs.allwomenstalk.com/celebs-who-went-from-singing-to-acting/)
+- [tahlia hoskins](https://celebs.allwomenstalk.com/celebrities-we-said-a-sad-goodbye-to-in/)
 - [sabrina carpenter boots](https://celebs.allwomenstalk.com/co-stars-who-are-also-best-friends-in-real-life/)
+- [paleo celebrities](https://celebs.allwomenstalk.com/celebs-that-follow-the-paleo-diet/)
 - [famous ryans in hollywood](https://funny.allwomenstalk.com/watch-ryan-cabrera-rank-other-famous-ryans-including-gosling-and-reynolds/)
+- [celebrities who love animals](https://celebs.allwomenstalk.com/celebrities-who-love-and-advocate-for-animals/)
+- [taylor swift favorite candle](https://music.allwomenstalk.com/celebrities-who-have-praised-taylor-swifts-new-album/)
+- [jim parson and rihanna](https://celebs.allwomenstalk.com/random-pair-of-celebrities-you-didnt-know-were-friends/)
+- [sara ramirez on law and order svu](https://celebs.allwomenstalk.com/celebrities-who-guest-starred-on-law-order/)
 - [7 Great Books on Mental Illness ...](https://health.allwomenstalk.com/great-books-on-mental-illness/)
 - [7 Celebrities with Anxiety Disorders ...](https://allwomenstalk.com/7-celebrities-with-anxiety-disorders/)
 

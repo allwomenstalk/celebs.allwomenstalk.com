@@ -3,7 +3,7 @@ title: "Whoa - Who Knew These Celebs Are the Same Age?!"
 description: "Kim K & Jessica Simpson; Sarah Hyland & Jennifer Lawrence; Lindsay Lohan & Amber Heard; Tara Reid & Kate Winslet; Megan Fox & the Olsen Twins; More ..."
 url: "https://celebs.allwomenstalk.com/whoa-who-knew-these-celebs-are-the-same-age/"
 category: "celebs"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # Whoa \- Who Knew These Celebs Are the Same Age?!
@@ -75,15 +75,15 @@ Can you think of any celebs who might not look the same age but actually are?
 ## Related Posts
 
 - [what degree does brooke shields have](https://celebs.allwomenstalk.com/intelligent-celebrities-with-ivy-league-diplomas/)
+- [shades of hunks](https://celebs.allwomenstalk.com/happy-movember-heres-bearded-hunks-to-lust-over/)
+- [independence day alicia casse](https://celebs.allwomenstalk.com/child-stars-who-quit-acting/)
+- [ian somerhalder niece](https://celebs.allwomenstalk.com/celebrity-posts-you-mightve-missed-this-weekend-3/)
+- [most freckles in the world](https://celebs.allwomenstalk.com/celebrities-with-freckles-thatll-make-you-embrace-your-own/)
+- [rumer willis wardrobe](https://celebs.allwomenstalk.com/yikes-celebs-their-wardrobe-malfunctions/)
 - [courtside celebrities](https://celebs.allwomenstalk.com/celebs-cant-get-enough-of-basketball-sightings-of-courtside-celebs/)
 - [jim carrey depression quote](https://celebs.allwomenstalk.com/celebrities-on-dealing-with-depression-and-mental-disorders/)
-- [shades of hunks](https://celebs.allwomenstalk.com/happy-movember-heres-bearded-hunks-to-lust-over/)
-- [most freckles in the world](https://celebs.allwomenstalk.com/celebrities-with-freckles-thatll-make-you-embrace-your-own/)
-- [shakira guinness world records](https://celebs.allwomenstalk.com/celebrities-with-guinness-world-records/)
-- [ian somerhalder niece](https://celebs.allwomenstalk.com/celebrity-posts-you-mightve-missed-this-weekend-3/)
 - [celebrity classes](https://celebs.allwomenstalk.com/celebrity-college-classes-youll-want-to-enroll-in/)
-- [rumer willis wardrobe](https://celebs.allwomenstalk.com/yikes-celebs-their-wardrobe-malfunctions/)
-- [independence day alicia casse](https://celebs.allwomenstalk.com/child-stars-who-quit-acting/)
+- [shakira guinness world records](https://celebs.allwomenstalk.com/celebrities-with-guinness-world-records/)
 - [Look-alikes: Angelina and Claire](https://allwomenstalk.com/look-alikes-angelina-and-claire/)
 - [20 Gorgeous Celebrities Both Men and Women Drool o...](https://celebs.allwomenstalk.com/gorgeous-celebrities-both-men-and-women-drool-over/)
 

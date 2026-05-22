@@ -3,7 +3,7 @@ title: "Eye Candy - the Hottest Male Athletes on Instagram ..."
 description: "Paul Ruggeri; Kevin Love; Giovani Dos Santos; Bruce Irons; Fabio Fognini; More ..."
 url: "https://celebs.allwomenstalk.com/eye-candy-the-hottest-male-athletes-on-instagram/"
 category: "celebs"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # Eye Candy \- the Hottest Male Athletes on Instagram ...
@@ -182,16 +182,16 @@ Need to lie down now!
 
 ## Related Posts
 
-- [viral yearbook photos](https://funny.allwomenstalk.com/you-have-to-see-why-these-yearbook-photos-went-viral/)
+- [gorgeous red heads](https://hair.allwomenstalk.com/instagram-inspo-for-girls-with-gorgeous-red-hair/)
+- [couple selfie ideas](https://love.allwomenstalk.com/selfie-ideas-for-couples-who-have-been-together-forever/)
+- [black barbie party](https://lifestyle.allwomenstalk.com/fab-photos-that-prove-blackgirlmagic-exists/)
+- [cringy selfie](https://love.allwomenstalk.com/awkward-after-sex-selfies-that-should-never-have-been-posted/)
+- [nibbles from flavor of love instagram](https://diet.allwomenstalk.com/instagram-food-porn-thatll-push-you-to-eat-healthier/)
 - [celestebarber instagram](https://funny.allwomenstalk.com/these-celeb-instagram-copycat-shots-are-hilarious/)
+- [fomo ice tea](https://lifestyle.allwomenstalk.com/these-types-of-instagram-posts-always-give-us-fomo/)
 - [detroit instagram comedian](https://books.allwomenstalk.com/nerdy-instagram-accounts-for-book-lovers-to-follow/)
 - [cheesy romantic things to say](https://love.allwomenstalk.com/cheesy-relationship-moments-that-are-always-on-instagram/)
-- [couple selfie ideas](https://love.allwomenstalk.com/selfie-ideas-for-couples-who-have-been-together-forever/)
-- [cringy selfie](https://love.allwomenstalk.com/awkward-after-sex-selfies-that-should-never-have-been-posted/)
-- [gorgeous red heads](https://hair.allwomenstalk.com/instagram-inspo-for-girls-with-gorgeous-red-hair/)
-- [nibbles from flavor of love instagram](https://diet.allwomenstalk.com/instagram-food-porn-thatll-push-you-to-eat-healthier/)
-- [fomo ice tea](https://lifestyle.allwomenstalk.com/these-types-of-instagram-posts-always-give-us-fomo/)
-- [black barbie party](https://lifestyle.allwomenstalk.com/fab-photos-that-prove-blackgirlmagic-exists/)
+- [viral yearbook photos](https://funny.allwomenstalk.com/you-have-to-see-why-these-yearbook-photos-went-viral/)
 - [5 Gorgeous Celeb Photos to Gawk at ...](https://allwomenstalk.com/5-gorgeous-celeb-photos-to-gawk-at/)
 - [7 Amazing Celebrity Beach Bodies ...](https://allwomenstalk.com/7-amazing-celebrity-beach-bodies/)
 

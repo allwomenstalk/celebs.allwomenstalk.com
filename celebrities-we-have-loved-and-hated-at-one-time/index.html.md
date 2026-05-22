@@ -3,7 +3,7 @@ title: "15 Celebrities We Have Loved and Hated at One Time ..."
 description: "Megan Fox; Miley Cyrus; Rolf Harris; Cris Brown & Rihanna; Lady Gaga; More ..."
 url: "https://celebs.allwomenstalk.com/celebrities-we-have-loved-and-hated-at-one-time/"
 category: "celebs"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 15 Celebrities We Have Loved and Hated at One Time ...
@@ -104,16 +104,16 @@ Which celebrities have taken you through the whole spectrum from love to hate?
 
 ## Related Posts
 
-- [emma watson gpa](https://celebs.allwomenstalk.com/beauty-brains-celebrities-that-went-back-to-school/)
-- [celebrities who can sing](https://celebs.allwomenstalk.com/they-can-do-it-all-celebs-you-never-knew-could-sing/)
 - [are britney spears teeth different](https://celebs.allwomenstalk.com/gorgeous-celebrities-with-gap-teeth-who-inspire-you-to-embrace-your-smile/)
-- [drew barrymore and jeremy thomas](https://celebs.allwomenstalk.com/the-downside-to-stardom-9-shockingly-short-celebrity-marriages-you-never-knew-about/)
-- [celebrity couple goals](https://celebs.allwomenstalk.com/celebrity-couples-that-should-be-your-relationshipgoals/)
 - [celebrities with red lipstick](https://celebs.allwomenstalk.com/these-celebs-prove-you-too-can-rock-a-red-lip/)
-- [famous 80s actors](https://celebs.allwomenstalk.com/and-hes-still-hot-80s-actors-who-look-even-better-now/)
+- [celebrities who can sing](https://celebs.allwomenstalk.com/they-can-do-it-all-celebs-you-never-knew-could-sing/)
 - [why does seal have facial scars](https://celebs.allwomenstalk.com/these-lesser-known-stories-behind-male-celebrities-scars-will-blow-your-mind/)
 - [overrated celebs](https://celebs.allwomenstalk.com/fame-is-overrated-heres-why-you-dont-want-to-be-a-celebrity/)
 - [young neville longbottom](https://movies.allwomenstalk.com/neville-got-hot-and-this-is-what-the-rest-of-the-harry-potter-cast-looks-like-now/)
+- [emma watson gpa](https://celebs.allwomenstalk.com/beauty-brains-celebrities-that-went-back-to-school/)
+- [celebrity couple goals](https://celebs.allwomenstalk.com/celebrity-couples-that-should-be-your-relationshipgoals/)
+- [drew barrymore and jeremy thomas](https://celebs.allwomenstalk.com/the-downside-to-stardom-9-shockingly-short-celebrity-marriages-you-never-knew-about/)
+- [famous 80s actors](https://celebs.allwomenstalk.com/and-hes-still-hot-80s-actors-who-look-even-better-now/)
 - [25 Most Messed up Celebrities ...](https://celebs.allwomenstalk.com/25-most-messed-up-celebrities/)
 - [25 Smartest Celebrities ...](https://celebs.allwomenstalk.com/25-smartest-celebrities/)
 

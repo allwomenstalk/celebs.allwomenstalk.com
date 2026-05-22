@@ -3,7 +3,7 @@ title: "7 Celebrities with a Disorder ..."
 description: "Michael Phelps; Catherine Zeta Jones; Gwyneth Paltrow; Elton John; Kurt Cobain; More ..."
 url: "https://celebs.allwomenstalk.com/celebrities-with-a-disorder/"
 category: "celebs"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 7 Celebrities with a Disorder ...
@@ -42,15 +42,15 @@ Have you had a similar situation to these celebs with a disorder? Do you know of
 
 ## Related Posts
 
-- [10 Hottest Looking Celebrities on the Red Carpet ....](https://celebs.allwomenstalk.com/hottest-looking-celebrities-on-the-red-carpet/)
-- [8 Shocking Celeb Stories from 2012 ...](https://celebs.allwomenstalk.com/shocking-celeb-stories-from/)
-- [9 Most Successful Youtube Personalities That We Lo...](https://celebs.allwomenstalk.com/most-successful-youtube-personalities-that-we-love/)
-- [9 Stylish Celebrity Couples ...](https://celebs.allwomenstalk.com/stylish-celebrity-couples/)
-- [8 Shocking Celebrity Scandals from the past Year ....](https://celebs.allwomenstalk.com/shocking-celebrity-scandals-from-the-past-year/)
-- [riche le stylo emerald](https://movies.allwomenstalk.com/celebrities-created-by-reality-shows/)
-- [riche le stylo always pearly](https://celebs.allwomenstalk.com/celebrities-who-may-have-had-plastic-surgery/)
-- [top celebrity chefs](https://movies.allwomenstalk.com/top-celebrity-chefs-i-cant-get-enough-of/)
 - [7 Movie Stars That Started on TV ...](https://movies.allwomenstalk.com/movie-stars-that-started-on-tv/)
+- [riche le stylo emerald](https://movies.allwomenstalk.com/celebrities-created-by-reality-shows/)
+- [8 Shocking Celebrity Scandals from the past Year ....](https://celebs.allwomenstalk.com/shocking-celebrity-scandals-from-the-past-year/)
+- [top celebrity chefs](https://movies.allwomenstalk.com/top-celebrity-chefs-i-cant-get-enough-of/)
+- [10 Hottest Looking Celebrities on the Red Carpet ....](https://celebs.allwomenstalk.com/hottest-looking-celebrities-on-the-red-carpet/)
+- [9 Stylish Celebrity Couples ...](https://celebs.allwomenstalk.com/stylish-celebrity-couples/)
+- [riche le stylo always pearly](https://celebs.allwomenstalk.com/celebrities-who-may-have-had-plastic-surgery/)
+- [9 Most Successful Youtube Personalities That We Lo...](https://celebs.allwomenstalk.com/most-successful-youtube-personalities-that-we-love/)
+- [8 Shocking Celeb Stories from 2012 ...](https://celebs.allwomenstalk.com/shocking-celeb-stories-from/)
 - [don draper vs harvey specter](https://movies.allwomenstalk.com/tv-characters-id-love-to-date/)
 - [7 of My Favorite Celebrities ...](https://celebs.allwomenstalk.com/7-of-my-favorite-celebrities/)
 - [7 Celebrities Who Smoke Weed ...](https://celebs.allwomenstalk.com/celebrities-who-smoke-weed/)

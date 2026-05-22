@@ -3,7 +3,7 @@ title: "7 Modern Actresses Playing Popular Style Icons Are You Convinced?"
 description: "Naomi Watts as Princess Diana; Nicole Kidman as Grace Kelly; Michelle Williams as Marilyn Monroe; Audrey Tautou as Coco Chanel; Sienna Miller as Edie Sedgwick; More ..."
 url: "https://celebs.allwomenstalk.com/modern-actresses-playing-popular-style-icons-are-you-convinced/"
 category: "celebs"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 7 Modern Actresses Playing Popular Style Icons  Are You Convinced?
@@ -56,14 +56,14 @@ These are just a few modern actresses who have all played the role of popular st
 
 ## Related Posts
 
-- [dumblonde smart hair](https://celebs.allwomenstalk.com/women-who-prove-that-there-is-no-such-thing-as-a-dumb-blonde/)
-- [best fashion magazine subscriptions](https://lifestyle.allwomenstalk.com/most-fabulous-lifestyle-magazines-for-women/)
-- [asian baddie missionary](https://inspiration.allwomenstalk.com/inspirational-american-indian-women-i-admire-and-why-you-should-too/)
 - [women are awesome](https://lifestyle.allwomenstalk.com/awesome-womens-magazines-you-need-to-buy/)
-- [ladies one](https://inspiration.allwomenstalk.com/classy-ladies-from-the-past-and-present-we-can-learn-from/)
-- [disney princess live action movie](https://celebs.allwomenstalk.com/actresses-who-should-play-disney-princesses-in-live-action-movies/)
-- [female sport movies](https://movies.allwomenstalk.com/awesome-womens-sports-movies-to-add-to-your-must-watch-list/)
 - [tvwomen r34](https://movies.allwomenstalk.com/funniest-tv-women-that-you-just-have-to-watch/)
+- [asian baddie missionary](https://inspiration.allwomenstalk.com/inspirational-american-indian-women-i-admire-and-why-you-should-too/)
+- [best fashion magazine subscriptions](https://lifestyle.allwomenstalk.com/most-fabulous-lifestyle-magazines-for-women/)
+- [ladies one](https://inspiration.allwomenstalk.com/classy-ladies-from-the-past-and-present-we-can-learn-from/)
+- [female sport movies](https://movies.allwomenstalk.com/awesome-womens-sports-movies-to-add-to-your-must-watch-list/)
+- [dumblonde smart hair](https://celebs.allwomenstalk.com/women-who-prove-that-there-is-no-such-thing-as-a-dumb-blonde/)
+- [disney princess live action movie](https://celebs.allwomenstalk.com/actresses-who-should-play-disney-princesses-in-live-action-movies/)
 - [7 Kick-Ass Celebrities Who Support Womens Rights ....](https://celebs.allwomenstalk.com/kick-ass-celebrities-who-support-womens-rights/)
 - [most loved disney princess](https://movies.allwomenstalk.com/of-the-best-disney-princesses-that-we-absolutely-adore/)
 - [8 Actresses in Fancy Shorts: Can You Pull These of...](https://allwomenstalk.com/8-actresses-in-fancy-shorts-can-you-pull-these-off/)

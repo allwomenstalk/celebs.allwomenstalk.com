@@ -3,7 +3,7 @@ title: "9 Successful Stars with Mental Disorders ..."
 description: "Howie Mandel-OCD; Paula Deen-Depression and Anxiety Disorder; Adam Levine-ADHD; Channing Tatum-ADHD; Sia-Social Anxiety Disorder, Depression; More ..."
 url: "https://celebs.allwomenstalk.com/successful-stars-with-mental-disorders/"
 category: "celebs"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 9 Successful Stars with Mental Disorders ...
@@ -68,15 +68,15 @@ I hope you've enjoyed reading this article as much as I enjoyed writing it. I on
 
 ## Related Posts
 
-- [harrison ford tom hanks](https://lifestyle.allwomenstalk.com/celebs-that-would-make-a-better-president-than-kanye/)
-- [riche le stylo glistening](https://hair.allwomenstalk.com/check-out-these-gorg-celebs-whove-rocked-rainbow-hair/)
-- [heidi gum](https://celebs.allwomenstalk.com/celebrity-bubble-gum-girls/)
-- [biggest names](https://parenting.allwomenstalk.com/the-biggest-baby-names-of/)
-- [how old is gabby union](https://movies.allwomenstalk.com/adult-actors-who-have-played-teenagers/)
-- [ex disney singers](https://music.allwomenstalk.com/former-disney-stars-that-are-dominating-the-radio/)
-- [gardening celebrities](https://gardening.allwomenstalk.com/celebrity-gardens-you-have-to-see-to-believe/)
-- [middle aged male actors](https://movies.allwomenstalk.com/these-hot-british-actors-will-get-your-pulse-racing/)
 - [david beckham swag](https://celebs.allwomenstalk.com/times-david-beckham-proved-hes-hot-hot-hot/)
+- [how old is gabby union](https://movies.allwomenstalk.com/adult-actors-who-have-played-teenagers/)
+- [heidi gum](https://celebs.allwomenstalk.com/celebrity-bubble-gum-girls/)
+- [harrison ford tom hanks](https://lifestyle.allwomenstalk.com/celebs-that-would-make-a-better-president-than-kanye/)
+- [gardening celebrities](https://gardening.allwomenstalk.com/celebrity-gardens-you-have-to-see-to-believe/)
+- [riche le stylo glistening](https://hair.allwomenstalk.com/check-out-these-gorg-celebs-whove-rocked-rainbow-hair/)
+- [middle aged male actors](https://movies.allwomenstalk.com/these-hot-british-actors-will-get-your-pulse-racing/)
+- [biggest names](https://parenting.allwomenstalk.com/the-biggest-baby-names-of/)
+- [ex disney singers](https://music.allwomenstalk.com/former-disney-stars-that-are-dominating-the-radio/)
 - [worlds sexiest sportsmen](https://fitness.allwomenstalk.com/sizzling-sportsmen-of-the-hottest-male-athletes/)
 - [9 Amazing Celebrity Families ...](https://allwomenstalk.com/9-amazing-celebrity-families/)
 - [10 Celebrities and Their Odd Phobias ...](https://allwomenstalk.com/10-celebrities-and-their-odd-phobias/)

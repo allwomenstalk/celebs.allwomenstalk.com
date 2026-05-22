@@ -3,7 +3,7 @@ title: "7 Shocking Celebrity Haircuts ..."
 description: "Keri Russell; Vanessa Hudgens; Dianna Agron; Justin Beiber; Willow Smith; More ..."
 url: "https://celebs.allwomenstalk.com/shocking-celebrity-haircuts/"
 category: "celebs"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 7 Shocking Celebrity Haircuts ...
@@ -59,15 +59,15 @@ Top Image Source: [gagaimages.org](http://gagaimages.org/displayimage.php?album=
 ## Related Posts
 
 - [famous couples in tv](https://movies.allwomenstalk.com/of-the-best-tv-couples/)
-- [hot irish actor](https://celebs.allwomenstalk.com/most-talented-irish-actors/)
-- [famous person who learned from their mistakes](https://celebs.allwomenstalk.com/celebrities-who-blew-it-and-how-not-to-repeat-their-mistakes/)
-- [celebrity overexposure](https://celebs.allwomenstalk.com/overexposed-celebrities-im-sick-of/)
-- [role models for teenagers](https://celebs.allwomenstalk.com/best-tv-teen-role-models/)
 - [girl celeb crushes](https://movies.allwomenstalk.com/celebrity-girl-crushes-on-tv/)
-- [big easy baddies](https://movies.allwomenstalk.com/top-tv-baddies-we-love/)
-- [famous eccentric person](https://celebs.allwomenstalk.com/most-eccentric-pop-stars/)
+- [famous person who learned from their mistakes](https://celebs.allwomenstalk.com/celebrities-who-blew-it-and-how-not-to-repeat-their-mistakes/)
 - [famous tv show families](https://movies.allwomenstalk.com/famous-tv-families/)
+- [role models for teenagers](https://celebs.allwomenstalk.com/best-tv-teen-role-models/)
 - [ed begley jnr](https://celebs.allwomenstalk.com/celebrities-who-care-about-the-environment/)
+- [hot irish actor](https://celebs.allwomenstalk.com/most-talented-irish-actors/)
+- [big easy baddies](https://movies.allwomenstalk.com/top-tv-baddies-we-love/)
+- [celebrity overexposure](https://celebs.allwomenstalk.com/overexposed-celebrities-im-sick-of/)
+- [famous eccentric person](https://celebs.allwomenstalk.com/most-eccentric-pop-stars/)
 - [7 Funkiest Celebrity Hairstyles ...](https://celebs.allwomenstalk.com/7-funkiest-celebrity-hairstyles/)
 - [10 Hottest Celebrity Hairstyles ...](https://hair.allwomenstalk.com/hottest-celebrity-hairstyles/)
 
