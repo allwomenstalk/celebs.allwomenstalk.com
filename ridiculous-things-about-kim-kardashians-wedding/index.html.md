@@ -3,7 +3,7 @@ title: "7 Ridiculous Things about Kim Kardashians Wedding ..."
 description: "Number 3; The Wall of Flowers; The Dress; The Expense; Intimate Wedding; More ..."
 url: "https://celebs.allwomenstalk.com/ridiculous-things-about-kim-kardashians-wedding/"
 category: "celebs"
-last_updated: "2026-05-22"
+last_updated: "2026-05-24"
 ---
 
 # 7 Ridiculous Things about Kim Kardashians Wedding ...
