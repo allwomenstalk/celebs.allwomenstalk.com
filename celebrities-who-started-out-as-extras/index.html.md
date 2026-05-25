@@ -3,7 +3,7 @@ title: "7 Celebrities Who Started out as Extras ..."
 description: "Channing Tatum; Bruce Willis; Brad Pitt; Megan Fox; Matt Damon; More ..."
 url: "https://celebs.allwomenstalk.com/celebrities-who-started-out-as-extras/"
 category: "celebs"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 7 Celebrities Who Started out as Extras ...
@@ -57,14 +57,14 @@ _elitedaily.com_
 
 - [tyler posey and miley cyrus](https://celebs.allwomenstalk.com/celebrity-couples-that-you-probably-forgot-about/)
 - [celebrities with same name](https://celebs.allwomenstalk.com/celebrities-who-changed-their-names-when-they-attained-stardom/)
-- [talented famous person](https://celebs.allwomenstalk.com/celebrities-who-are-multi-talented/)
 - [actors and musicians](https://celebs.allwomenstalk.com/talented-actors-who-are-also-musicians/)
-- [brian austin green megan fox age](https://celebs.allwomenstalk.com/cute-celebrity-couples-who-eloped/)
-- [famous celebrities you didnt know were related](https://celebs.allwomenstalk.com/pairs-of-celebrities-you-didnt-know-were-related/)
-- [actors who changed their names](https://celebs.allwomenstalk.com/celebrities-who-changed-their-appearance-for-a-role/)
-- [river phoenix and anna nicole smith](https://celebs.allwomenstalk.com/amazing-actors-who-died-before-their-time/)
-- [who lives in the same neighborhood as oprah](https://celebs.allwomenstalk.com/celebrities-who-are-neighbors-in-real-life/)
 - [kesha cotton candy](https://celebs.allwomenstalk.com/celebrities-with-cotton-candy-hair/)
+- [river phoenix and anna nicole smith](https://celebs.allwomenstalk.com/amazing-actors-who-died-before-their-time/)
+- [brian austin green megan fox age](https://celebs.allwomenstalk.com/cute-celebrity-couples-who-eloped/)
+- [talented famous person](https://celebs.allwomenstalk.com/celebrities-who-are-multi-talented/)
+- [actors who changed their names](https://celebs.allwomenstalk.com/celebrities-who-changed-their-appearance-for-a-role/)
+- [famous celebrities you didnt know were related](https://celebs.allwomenstalk.com/pairs-of-celebrities-you-didnt-know-were-related/)
+- [who lives in the same neighborhood as oprah](https://celebs.allwomenstalk.com/celebrities-who-are-neighbors-in-real-life/)
 - [7 Superstitious Celebrities ...](https://allwomenstalk.com/7-superstitious-celebrities/)
 - [7 Celebs Who Drastically Lost Weight for Roles ...](https://celebs.allwomenstalk.com/celebs-who-drastically-lost-weight-for-roles/)
 

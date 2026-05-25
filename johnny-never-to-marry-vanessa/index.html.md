@@ -3,7 +3,7 @@ title: "Johnny Never to Marry Vanessa ..."
 description: "Stay ahead, stay chic. Trusted guides on beauty, wellness, fashion, and everything that defines today's empowered woman."
 url: "https://celebs.allwomenstalk.com/johnny-never-to-marry-vanessa/"
 category: "celebs"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # Johnny Never to Marry Vanessa ...
@@ -24,16 +24,16 @@ I wonder if he’d start a new trend there too by taking on her last name instea
 
 ## Related Posts
 
-- [elin nordegren pics](https://allwomenstalk.com/tiger-may-sue-irish-mag-for-elin-nordegren-nude-pics/)
-- [Ashley Judd Now Treads a Little More Carefully](https://celebs.allwomenstalk.com/ashley-judd-rape-culture-apology/)
-- [Constant Fighting Ended Richie and Jenners Relatio...](https://allwomenstalk.com/constant-fighting-ended-richie-and-jenners-relationship/)
 - [Elton John Surprised by His Royal Invite](https://celebs.allwomenstalk.com/elton-john-surprised-by-his-royal-invite/)
+- [Ashley Judd Now Treads a Little More Carefully](https://celebs.allwomenstalk.com/ashley-judd-rape-culture-apology/)
 - [kate michelman](https://allwomenstalk.com/i-really-really-hope-that-kate-michelman-doesnt-run-for-the-senate-in-pennsylvania/)
-- [Lionel Richie Calls Himself the Greatest Porn Star](https://allwomenstalk.com/lionel-richie-calls-himself-the-greatest-porn-star/)
-- [sara evans tattoo](https://allwomenstalk.com/kenny-chesney-denies-he-had-an-affair-with-sara-evans/)
 - [britney spears sec tape](https://allwomenstalk.com/celebrity-porn-peddler-offers-100-million-for-britney-spears-sex-tape/)
+- [sara evans tattoo](https://allwomenstalk.com/kenny-chesney-denies-he-had-an-affair-with-sara-evans/)
 - [simon mills journalist](https://allwomenstalk.com/posh-spice-is-no-style-icon/)
+- [Constant Fighting Ended Richie and Jenners Relatio...](https://allwomenstalk.com/constant-fighting-ended-richie-and-jenners-relationship/)
 - [Fuck You Bitch](https://allwomenstalk.com/fuck-you-bitch-2/)
+- [Lionel Richie Calls Himself the Greatest Porn Star](https://allwomenstalk.com/lionel-richie-calls-himself-the-greatest-porn-star/)
+- [elin nordegren pics](https://allwomenstalk.com/tiger-may-sue-irish-mag-for-elin-nordegren-nude-pics/)
 - [Justin and Jesses Social Network Woes ...](https://celebs.allwomenstalk.com/justin-and-jesses-social-network-woes/)
 - [LeAnn  Eddie Not Allowed to Party....](https://celebs.allwomenstalk.com/leann-eddie-not-allowed-to-party/)
 

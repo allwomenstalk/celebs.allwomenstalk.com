@@ -3,7 +3,7 @@ title: "11 Celebrity Fashion Faux-pas That You Wont Forget ..."
 description: "Blake Lively, TIME 100 Gala, 2011; Gwyneth Paltrow, Vanity Fair 2002; Janet Jackson, Superbowl 2004; Britney Spears and Justin Timberlake, American Music Awards 2001; Lucy Liu, Paris Fashion Week 2008; More ..."
 url: "https://celebs.allwomenstalk.com/celebrity-fashion-faux-pas-that-you-wont-forget/"
 category: "celebs"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 11 Celebrity Fashion Faux\-pas That You Wont Forget ...
@@ -80,16 +80,16 @@ When all is said and done, fashion is art, and art is subjective. Therefore, Iâ€
 
 ## Related Posts
 
-- [stylewe clothing reviews](https://fashion.allwomenstalk.com/models-whose-off-duty-style-we-cant-get-enough-of/)
-- [gwen adore](https://celebs.allwomenstalk.com/of-gwen-stefanis-best-looks-that-we-adore/)
-- [fashion runway grand junction](https://fashion.allwomenstalk.com/unconventional-project-runway-outfits-you-have-to-see-to-believe/)
 - [serena van der woodsen trench coat](https://fashion.allwomenstalk.com/most-fashionable-tv-characters-who-will-inspire-you/)
-- [wardrobe malfunctions in public](https://fashion.allwomenstalk.com/hilarious-wardrobe-malfunctions-over-the-years/)
 - [ahs coven looks](https://fashion.allwomenstalk.com/witchy-fashion-pieces-inspired-by-american-horror-story-coven/)
-- [project runway outfits](https://fashion.allwomenstalk.com/project-runway-outfits-wed-love-to-wear/)
-- [loreal le smoky hollywood icon](https://celebs.allwomenstalk.com/of-hollywoods-newest-fashion-icons/)
-- [most fashionable celebrities](https://streetstyle.allwomenstalk.com/celebrities-with-the-best-street-style/)
+- [gwen adore](https://celebs.allwomenstalk.com/of-gwen-stefanis-best-looks-that-we-adore/)
+- [wardrobe malfunctions in public](https://fashion.allwomenstalk.com/hilarious-wardrobe-malfunctions-over-the-years/)
 - [fashionable celebrities](https://celebs.allwomenstalk.com/fashionable-celebrity-looks-to-be-inspired-by/)
+- [project runway outfits](https://fashion.allwomenstalk.com/project-runway-outfits-wed-love-to-wear/)
+- [stylewe clothing reviews](https://fashion.allwomenstalk.com/models-whose-off-duty-style-we-cant-get-enough-of/)
+- [most fashionable celebrities](https://streetstyle.allwomenstalk.com/celebrities-with-the-best-street-style/)
+- [loreal le smoky hollywood icon](https://celebs.allwomenstalk.com/of-hollywoods-newest-fashion-icons/)
+- [fashion runway grand junction](https://fashion.allwomenstalk.com/unconventional-project-runway-outfits-you-have-to-see-to-believe/)
 - [25 Celebrity Wardrobe Malfunctions ...](https://celebs.allwomenstalk.com/25-celebrity-wardrobe-malfunctions/)
 - [10 Ugliest Celebrity Fashion Faux Pas of 2011 ...](https://celebs.allwomenstalk.com/ugliest-celebrity-fashion-faux-pas-of/)
 

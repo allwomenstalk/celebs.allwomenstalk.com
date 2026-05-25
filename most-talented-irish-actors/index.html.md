@@ -3,7 +3,7 @@ title: "8 Most Talented Irish Actors ..."
 description: "Colin Farrell; Brendan Gleeson; Liam Neeson; Cillian Murphy; Jonathan Rhys Meyers; More ..."
 url: "https://celebs.allwomenstalk.com/most-talented-irish-actors/"
 category: "celebs"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 8 Most Talented Irish Actors ...
@@ -46,16 +46,16 @@ This collection of excellent Irish actors should show how much talent the Emeral
 
 ## Related Posts
 
-- [famous tv show families](https://movies.allwomenstalk.com/famous-tv-families/)
-- [taurus celebrities male rappers](https://movies.allwomenstalk.com/rappers-turned-actors/)
-- [role models for teenagers](https://celebs.allwomenstalk.com/best-tv-teen-role-models/)
-- [when love crossed over](https://movies.allwomenstalk.com/movie-stars-that-crossed-over-to-tv/)
-- [engaged celebrities](https://wedding.allwomenstalk.com/recently-engaged-celebrities/)
-- [teen role model](https://celebs.allwomenstalk.com/good-celebrity-teen-role-models/)
-- [best celebrity marriages](https://celebs.allwomenstalk.com/long-lasting-celebrity-marriages/)
 - [who looks like cillian murphy](https://lifestyle.allwomenstalk.com/famous-introverts/)
+- [taurus celebrities male rappers](https://movies.allwomenstalk.com/rappers-turned-actors/)
+- [teen role model](https://celebs.allwomenstalk.com/good-celebrity-teen-role-models/)
 - [celebrity overexposure](https://celebs.allwomenstalk.com/overexposed-celebrities-im-sick-of/)
+- [engaged celebrities](https://wedding.allwomenstalk.com/recently-engaged-celebrities/)
+- [famous tv show families](https://movies.allwomenstalk.com/famous-tv-families/)
+- [role models for teenagers](https://celebs.allwomenstalk.com/best-tv-teen-role-models/)
 - [worst relationship advice](https://celebs.allwomenstalk.com/celebrities-whod-give-you-the-worst-relationship-advice-ever/)
+- [when love crossed over](https://movies.allwomenstalk.com/movie-stars-that-crossed-over-to-tv/)
+- [best celebrity marriages](https://celebs.allwomenstalk.com/long-lasting-celebrity-marriages/)
 - [8 Enduring Celebrity Myths ...](https://celebs.allwomenstalk.com/enduring-celebrity-myths/)
 - [8 Most down to Earth Celebrities ...](https://celebs.allwomenstalk.com/most-down-to-earth-celebrities/)
 

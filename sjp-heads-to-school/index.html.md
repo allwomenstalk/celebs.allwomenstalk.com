@@ -3,7 +3,7 @@ title: "4 Photos of SJP Heads to School ..."
 description: "Stay ahead, stay chic. Trusted guides on beauty, wellness, fashion, and everything that defines today's empowered woman."
 url: "https://celebs.allwomenstalk.com/sjp-heads-to-school/"
 category: "celebs"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 4 Photos of SJP Heads to School ...
@@ -21,16 +21,16 @@ City: [New York](https://celebs.allwomenstalk.com/tag/new-york/)
 
 ## Related Posts
 
+- [katy perry snow white](https://celebs.allwomenstalk.com/katy-perry-channels-the-roaring-20s-for-ghd/)
 - [rihanna toned](https://celebs.allwomenstalk.com/rihannas-toned-legs/)
-- [katy naughty](https://celebs.allwomenstalk.com/katy-perry-to-get-naughty-with-ted-mosby/)
 - [christina aguilera kids](https://celebs.allwomenstalk.com/christina-takes-max-shopping/)
 - [hayden panettiere alpha and omega](https://celebs.allwomenstalk.com/hayden-panettiere-smiley-at-radio-1/)
-- [penn badgely height](https://celebs.allwomenstalk.com/blake-and-penn-still-friends/)
-- [colleen locklear](https://celebs.allwomenstalk.com/heather-locklear-takes-sis-shopping/)
-- [katy perry snow white](https://celebs.allwomenstalk.com/katy-perry-channels-the-roaring-20s-for-ghd/)
-- [4 Photos of Lilly Allens Growing Belly ...](https://celebs.allwomenstalk.com/lilly-allens-growing-belly/)
 - [mtv hot](https://celebs.allwomenstalk.com/mtv-emas-hot-hostess-eva-longoria/)
+- [katy naughty](https://celebs.allwomenstalk.com/katy-perry-to-get-naughty-with-ted-mosby/)
+- [penn badgely height](https://celebs.allwomenstalk.com/blake-and-penn-still-friends/)
 - [kanye and kim music video](https://celebs.allwomenstalk.com/kim-kardashian-makes-a-video-with-kanye-west/)
+- [4 Photos of Lilly Allens Growing Belly ...](https://celebs.allwomenstalk.com/lilly-allens-growing-belly/)
+- [colleen locklear](https://celebs.allwomenstalk.com/heather-locklear-takes-sis-shopping/)
 - [6 Beautiful Bridal Shoes for Kate Middleton ...](https://wedding.allwomenstalk.com/beautiful-bridal-shoes-for-kate-middleton/)
 - [6 Beautiful Green Givenchy High Heels ...](https://shoes.allwomenstalk.com/beautiful-green-givenchy-high-heels/)
 

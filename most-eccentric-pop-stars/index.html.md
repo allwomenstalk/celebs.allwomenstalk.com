@@ -3,7 +3,7 @@ title: "8 Most Eccentric Pop Stars ..."
 description: "Bjork; Lady GaGa; Elton John; Julian Cope; Michael Jackson; More ..."
 url: "https://celebs.allwomenstalk.com/most-eccentric-pop-stars/"
 category: "celebs"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 8 Most Eccentric Pop Stars ...
@@ -46,16 +46,16 @@ There are a lot more eccentric pop stars, but these are some who really stand ou
 
 ## Related Posts
 
-- [celebrity overexposure](https://celebs.allwomenstalk.com/overexposed-celebrities-im-sick-of/)
-- [girl celeb crushes](https://movies.allwomenstalk.com/celebrity-girl-crushes-on-tv/)
-- [famous person who learned from their mistakes](https://celebs.allwomenstalk.com/celebrities-who-blew-it-and-how-not-to-repeat-their-mistakes/)
-- [teen role model](https://celebs.allwomenstalk.com/good-celebrity-teen-role-models/)
-- [famous couples in tv](https://movies.allwomenstalk.com/of-the-best-tv-couples/)
-- [hot irish actor](https://celebs.allwomenstalk.com/most-talented-irish-actors/)
-- [role models for teenagers](https://celebs.allwomenstalk.com/best-tv-teen-role-models/)
-- [famous tv show families](https://movies.allwomenstalk.com/famous-tv-families/)
 - [big easy baddies](https://movies.allwomenstalk.com/top-tv-baddies-we-love/)
+- [famous person who learned from their mistakes](https://celebs.allwomenstalk.com/celebrities-who-blew-it-and-how-not-to-repeat-their-mistakes/)
+- [hot irish actor](https://celebs.allwomenstalk.com/most-talented-irish-actors/)
+- [famous tv show families](https://movies.allwomenstalk.com/famous-tv-families/)
+- [teen role model](https://celebs.allwomenstalk.com/good-celebrity-teen-role-models/)
+- [role models for teenagers](https://celebs.allwomenstalk.com/best-tv-teen-role-models/)
+- [celebrity overexposure](https://celebs.allwomenstalk.com/overexposed-celebrities-im-sick-of/)
+- [famous couples in tv](https://movies.allwomenstalk.com/of-the-best-tv-couples/)
 - [who looks like cillian murphy](https://lifestyle.allwomenstalk.com/famous-introverts/)
+- [girl celeb crushes](https://movies.allwomenstalk.com/celebrity-girl-crushes-on-tv/)
 - [8 Surprising Music Video Stars ...](https://celebs.allwomenstalk.com/surprising-music-video-stars/)
 - [8 Most down to Earth Celebrities ...](https://celebs.allwomenstalk.com/most-down-to-earth-celebrities/)
 

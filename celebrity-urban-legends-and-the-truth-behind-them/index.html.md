@@ -3,7 +3,7 @@ title: "7 Celebrity Urban Legends and the Truth behind Them ..."
 description: "X Celebrity Had to Have His Stomach Pumped for Semen; The Talking Horse on “Mr. Ed” Was Actually a Zebra; Sly Stallone Used to Be a Porn Star; Justin Bieber is Bisexual; “Hey, My Wife Did KISS!”; More ..."
 url: "https://celebs.allwomenstalk.com/celebrity-urban-legends-and-the-truth-behind-them/"
 category: "celebs"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 7 Celebrity Urban Legends and the Truth behind Them ...
@@ -43,16 +43,16 @@ This is really just the tip of the iceberg when it comes to celebrity urban lege
 
 ## Related Posts
 
-- [celebrities who went to college](https://celebs.allwomenstalk.com/hollywood-celebrities-with-college-degrees/)
-- [ryan gosling tagine](https://celebs.allwomenstalk.com/celebrities-who-own-restaurants-and-bars/)
 - [siblings best friends](https://celebs.allwomenstalk.com/these-celeb-siblings-also-double-as-best-friends/)
-- [celebrities who love food](https://celebs.allwomenstalk.com/celebrity-foodies-that-love-food-as-much-as-you-do/)
-- [vince vaughn spouse](https://celebs.allwomenstalk.com/celebrities-who-are-married-to-non-celebrities/)
 - [famous sidekicks in literature](https://movies.allwomenstalk.com/amazing-sidekicks-who-can-be-lead-stars/)
-- [aileen wuornos movie actress](https://movies.allwomenstalk.com/best-transformations-for-movies/)
-- [celebrities who are vegetarian](https://celebs.allwomenstalk.com/celebrities-who-are-vegan/)
+- [celebrities who love food](https://celebs.allwomenstalk.com/celebrity-foodies-that-love-food-as-much-as-you-do/)
 - [alec baldwin looks like millard fillmore](https://celebs.allwomenstalk.com/whoa-do-these-celebs-have-a-historical-twin/)
 - [romance real life](https://movies.allwomenstalk.com/some-of-the-best-real-life-romances-that-started-on-set/)
+- [ryan gosling tagine](https://celebs.allwomenstalk.com/celebrities-who-own-restaurants-and-bars/)
+- [aileen wuornos movie actress](https://movies.allwomenstalk.com/best-transformations-for-movies/)
+- [celebrities who went to college](https://celebs.allwomenstalk.com/hollywood-celebrities-with-college-degrees/)
+- [vince vaughn spouse](https://celebs.allwomenstalk.com/celebrities-who-are-married-to-non-celebrities/)
+- [celebrities who are vegetarian](https://celebs.allwomenstalk.com/celebrities-who-are-vegan/)
 - [7 Greatly Astonishing Celebrity Scandals ...](https://celebs.allwomenstalk.com/greatly-astonishing-celebrity-scandals/)
 - [6 Sad Celebrity Stories ...](https://allwomenstalk.com/6-sad-celebrity-stories/)
 

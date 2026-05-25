@@ -3,7 +3,7 @@ title: "7 Celebrities Who Used to Model before Getting Their Big Break ..."
 description: "Channing Tatum; Ian Somerhalder; Cameron Diaz; Ashton Kutcher; Josh Duhamel; More ..."
 url: "https://celebs.allwomenstalk.com/celebrities-who-used-to-model-before-getting-their-big-break/"
 category: "celebs"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 7 Celebrities Who Used to Model before Getting Their Big Break ...
@@ -56,16 +56,16 @@ Well, there you have it! These are just seven out of MANY celebrities who modele
 
 ## Related Posts
 
-- [blake lively sobriety](https://celebs.allwomenstalk.com/celebs-who-live-a-sober-lifestyle/)
-- [who did scooter braun manage](https://celebs.allwomenstalk.com/celebs-who-have-scooter-braun-as-a-manager/)
-- [kristin davis adopted child](https://celebs.allwomenstalk.com/celebrities-who-have-adopted-kids/)
-- [that wish would go away](https://celebs.allwomenstalk.com/celebrities-we-wish-would-go-away/)
-- [comedian with red hat](https://celebs.allwomenstalk.com/stars-who-died-whilst-doing-what-they-loved/)
-- [christian bale and rowan atkinson](https://movies.allwomenstalk.com/potential-actors-for-james-bonds-role-that-will-probably-never-happen/)
-- [ezra fitz brother](https://celebs.allwomenstalk.com/abc-celebrities-who-are-totally-crush-worthy/)
 - [who is ariana grande husband](https://celebs.allwomenstalk.com/celebs-who-have-praised-ariana-grandes-talent/)
+- [ezra fitz brother](https://celebs.allwomenstalk.com/abc-celebrities-who-are-totally-crush-worthy/)
+- [christian bale and rowan atkinson](https://movies.allwomenstalk.com/potential-actors-for-james-bonds-role-that-will-probably-never-happen/)
+- [kristin davis adopted child](https://celebs.allwomenstalk.com/celebrities-who-have-adopted-kids/)
+- [who did scooter braun manage](https://celebs.allwomenstalk.com/celebs-who-have-scooter-braun-as-a-manager/)
 - [jane kaczmarek husband](https://celebs.allwomenstalk.com/celebrity-mothers-who-had-their-first-baby-after-40/)
 - [celebs on tour](https://celebs.allwomenstalk.com/celebs-who-have-shown-their-support-at-mileys-tour/)
+- [comedian with red hat](https://celebs.allwomenstalk.com/stars-who-died-whilst-doing-what-they-loved/)
+- [that wish would go away](https://celebs.allwomenstalk.com/celebrities-we-wish-would-go-away/)
+- [blake lively sobriety](https://celebs.allwomenstalk.com/celebs-who-live-a-sober-lifestyle/)
 - [7 Best Celebrity Role Models ...](https://allwomenstalk.com/7-best-celebrity-role-models/)
 - [7 Celebrities Who Quit Smoking ...](https://allwomenstalk.com/celebrities-who-quit-smoking/)
 

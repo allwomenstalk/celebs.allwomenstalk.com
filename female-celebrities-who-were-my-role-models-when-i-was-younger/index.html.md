@@ -3,7 +3,7 @@ title: "7 Female Celebrities Who Were My Role Models when I Was Younger ..."
 description: "Oprah...; Princess Diana...; Joey Potter...; Natalie Portman...; Michelle Kwan....; More ..."
 url: "https://celebs.allwomenstalk.com/female-celebrities-who-were-my-role-models-when-i-was-younger/"
 category: "celebs"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 7 Female Celebrities Who Were My Role Models when I Was Younger ...
@@ -56,16 +56,16 @@ What female celebrity role models inspired you and influenced you as a young wom
 
 ## Related Posts
 
-- [black woman inspirational](https://inspiration.allwomenstalk.com/inspirational-black-women-who-changed-history/)
-- [oscar mbo child](https://celebs.allwomenstalk.com/female-watch-brand-ambassadors/)
-- [girl role models](https://parenting.allwomenstalk.com/female-role-models-for-your-daughter/)
-- [misty copeland feet](https://celebs.allwomenstalk.com/famous-ballerinas-you-should-know/)
-- [wear it to flaunt it.](https://fashion.allwomenstalk.com/women-who-wear-what-they-want-and-flaunt-it/)
 - [lena dunham marilyn monroe](https://celebs.allwomenstalk.com/influential-women-from-tv-film/)
 - [punk rock singers female](https://music.allwomenstalk.com/rocking-female-fronted-bands/)
-- [carrie bradshaw 80s outfit](https://fashion.allwomenstalk.com/fashionable-female-characters-on-tv-today/)
-- [janet esteves mickey mouse](https://lifestyle.allwomenstalk.com/women-with-huge-collections/)
+- [oscar mbo child](https://celebs.allwomenstalk.com/female-watch-brand-ambassadors/)
 - [inspirational fictional characters](https://inspiration.allwomenstalk.com/amazing-fictional-women-who-are-inspirational-in-my-life/)
+- [girl role models](https://parenting.allwomenstalk.com/female-role-models-for-your-daughter/)
+- [carrie bradshaw 80s outfit](https://fashion.allwomenstalk.com/fashionable-female-characters-on-tv-today/)
+- [misty copeland feet](https://celebs.allwomenstalk.com/famous-ballerinas-you-should-know/)
+- [janet esteves mickey mouse](https://lifestyle.allwomenstalk.com/women-with-huge-collections/)
+- [wear it to flaunt it.](https://fashion.allwomenstalk.com/women-who-wear-what-they-want-and-flaunt-it/)
+- [black woman inspirational](https://inspiration.allwomenstalk.com/inspirational-black-women-who-changed-history/)
 - [7 Strong and Inspiring Female Characters from Movi...](https://movies.allwomenstalk.com/7-strong-and-inspiring-female-characters-from-movies/)
 - [7 of My Favorite Celebrities ...](https://celebs.allwomenstalk.com/7-of-my-favorite-celebrities/)
 

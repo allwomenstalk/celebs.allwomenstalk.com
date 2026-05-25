@@ -3,7 +3,7 @@ title: "30 Photos of Scott Pilgrim Vs. the World Premiere ..."
 description: "Stay ahead, stay chic. Trusted guides on beauty, wellness, fashion, and everything that defines today's empowered woman."
 url: "https://celebs.allwomenstalk.com/scott-pilgrim-vs-the-world-premiere/"
 category: "celebs"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 30 Photos of Scott Pilgrim Vs. the World Premiere ...
@@ -91,16 +91,16 @@ My favorite look of the evening though was definitely Anna Kendrick!
 
 ## Related Posts
 
-- [women in film crystal award](https://celebs.allwomenstalk.com/women-in-film-crystal-lucy-awards/)
-- [mary lynn rajskub net worth](https://celebs.allwomenstalk.com/primetime-creative-arts-emmy-awards/)
 - [newnownext awards](https://celebs.allwomenstalk.com/newnownext-awards/)
-- [kimberly wyatt feet](https://celebs.allwomenstalk.com/teen-choice-awards/)
-- [salt premiere](https://celebs.allwomenstalk.com/salt-premiere/)
-- [Who Was Best Dressed at the Sex and the City 2 in ...](https://celebs.allwomenstalk.com/sex-and-the-city-2-in-london/)
-- [bertille sefolosha](https://celebs.allwomenstalk.com/18th-annual-espy-awards/)
+- [national movie awards 2010](https://celebs.allwomenstalk.com/national-movie-awards/)
 - [71 Photos of AmfAR Party ...](https://celebs.allwomenstalk.com/amfar-party/)
 - [mischa barton nip slip](https://celebs.allwomenstalk.com/artists-for-peace-and-justice-benefit-party/)
-- [national movie awards 2010](https://celebs.allwomenstalk.com/national-movie-awards/)
+- [bertille sefolosha](https://celebs.allwomenstalk.com/18th-annual-espy-awards/)
+- [women in film crystal award](https://celebs.allwomenstalk.com/women-in-film-crystal-lucy-awards/)
+- [kimberly wyatt feet](https://celebs.allwomenstalk.com/teen-choice-awards/)
+- [Who Was Best Dressed at the Sex and the City 2 in ...](https://celebs.allwomenstalk.com/sex-and-the-city-2-in-london/)
+- [mary lynn rajskub net worth](https://celebs.allwomenstalk.com/primetime-creative-arts-emmy-awards/)
+- [salt premiere](https://celebs.allwomenstalk.com/salt-premiere/)
 - [9 Photos of Kristen Stewart at the Runaways Premie...](https://celebs.allwomenstalk.com/9-photos-of-kristen-arrives/)
 - [16 Photos of in My Sleep Premiere ...](https://celebs.allwomenstalk.com/in-my-sleep-premiere/)
 

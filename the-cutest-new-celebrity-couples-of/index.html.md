@@ -3,7 +3,7 @@ title: "The Cutest New Celebrity Couples of 2015 ..."
 description: "Taylor Swift and Calvin Harris; Gigi Hadid and Joe Jonas; Russell Wilson and Ciara; Selena Gomez and Zedd; Big Sean and Ariana Grande; More ..."
 url: "https://celebs.allwomenstalk.com/the-cutest-new-celebrity-couples-of/"
 category: "celebs"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # The Cutest New Celebrity Couples of 2015 ...
@@ -56,14 +56,14 @@ Who’s your favorite new couple of 2015? Were you surprised that any of these c
 
 ## Related Posts
 
-- [riche le stylo glistening](https://hair.allwomenstalk.com/check-out-these-gorg-celebs-whove-rocked-rainbow-hair/)
-- [celebs in open marriages](https://celebs.allwomenstalk.com/inspiring-celeb-marriages-that-are-actually-long-lasting/)
 - [david beckham swag](https://celebs.allwomenstalk.com/times-david-beckham-proved-hes-hot-hot-hot/)
+- [celebs in open marriages](https://celebs.allwomenstalk.com/inspiring-celeb-marriages-that-are-actually-long-lasting/)
 - [how old is gabby union](https://movies.allwomenstalk.com/adult-actors-who-have-played-teenagers/)
-- [ariana grande workout clothes](https://fitness.allwomenstalk.com/sweat-in-style-check-out-these-celebs-in-workout-gear/)
 - [gardening celebrities](https://gardening.allwomenstalk.com/celebrity-gardens-you-have-to-see-to-believe/)
-- [sensational beginnings](https://movies.allwomenstalk.com/actors-with-terrible-tv-beginnings/)
 - [heidi gum](https://celebs.allwomenstalk.com/celebrity-bubble-gum-girls/)
+- [ariana grande workout clothes](https://fitness.allwomenstalk.com/sweat-in-style-check-out-these-celebs-in-workout-gear/)
+- [riche le stylo glistening](https://hair.allwomenstalk.com/check-out-these-gorg-celebs-whove-rocked-rainbow-hair/)
+- [sensational beginnings](https://movies.allwomenstalk.com/actors-with-terrible-tv-beginnings/)
 - [whoopi goldberg avpd](https://celebs.allwomenstalk.com/successful-stars-with-mental-disorders/)
 - [middle aged male actors](https://movies.allwomenstalk.com/these-hot-british-actors-will-get-your-pulse-racing/)
 - [20 Cutest Celebrity Kids ...](https://allwomenstalk.com/20-cutest-celebrity-kids/)

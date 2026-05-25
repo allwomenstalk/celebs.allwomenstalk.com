@@ -3,7 +3,7 @@ title: "Top 22 Men to Drool over under the Age of 30 You Want to See ..."
 description: "Liam Hemsworth, 25; Colton Haynes, 26; Tyler Hoechlin, 29; Nicholas Hoult, 25; Zac Efron, 27; More ..."
 url: "https://celebs.allwomenstalk.com/top-men-to-drool-over-under-the-age-of-30-you-want-to-see/"
 category: "celebs"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # Top 22 Men to Drool over  under the Age of 30 You Want to See ...
@@ -38,7 +38,7 @@ Nicholas is absolutely striking with his 6’3 frame, piercing blue eyes and dar
 
 ![t shirt, male, outerwear, arm, black hair,](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/al/yp/ofhsw6xi595b94557c3e9736906747_500x300.jpg)
 
-No list about [hot actors](https://movies.allwomenstalk.com/top-actors-with-the-hottest-bodies/) under 30 would be complete without a nod to Zac Efron! Since his debut in High School Musical (2006), Zac has captured the hearts of millions of girls around the world. Though his hair and personal style have improved a lot throughout the years, his twinkling blue eyes and infectious smile have stayed consistent and helped him maintain a successful career in Hollywood.
+No list about hot actors under 30 would be complete without a nod to Zac Efron! Since his debut in High School Musical (2006), Zac has captured the hearts of millions of girls around the world. Though his hair and personal style have improved a lot throughout the years, his twinkling blue eyes and infectious smile have stayed consistent and helped him maintain a successful career in Hollywood.
 
 ## 6. Dave Franco, 30
 
@@ -146,15 +146,15 @@ There you have it, our 20 favorite hot male actors under 30! Of course there is 
 
 ## Related Posts
 
-- [how to make your bf jealous over text](https://love.allwomenstalk.com/things-our-boyfriends-do-that-make-us-jealous/)
-- [cheesy romantic things](https://love.allwomenstalk.com/cute-but-cheesy-things-girls-want-in-a-relationship/)
-- [what do you wish people would do more often](https://love.allwomenstalk.com/things-we-wish-guys-did-more-often/)
-- [overlooks like a flaw](https://love.allwomenstalk.com/flaws-the-right-guy-will-overlook/)
-- [types of guys on dating apps](https://apps.allwomenstalk.com/types-of-guys-youll-meet-on-tinder/)
-- [6 types of men](https://love.allwomenstalk.com/types-of-toxic-men-to-avoid/)
 - [learn about men](https://lifestyle.allwomenstalk.com/things-women-can-learn-from-men-2/)
+- [how to make your bf jealous over text](https://love.allwomenstalk.com/things-our-boyfriends-do-that-make-us-jealous/)
 - [The Reasons Why Men Pay for Sex for Curious Girls ...](https://love.allwomenstalk.com/the-reasons-why-men-pay-for-sex/)
+- [types of guys on dating apps](https://apps.allwomenstalk.com/types-of-guys-youll-meet-on-tinder/)
+- [overlooks like a flaw](https://love.allwomenstalk.com/flaws-the-right-guy-will-overlook/)
+- [what do you wish people would do more often](https://love.allwomenstalk.com/things-we-wish-guys-did-more-often/)
+- [cheesy romantic things](https://love.allwomenstalk.com/cute-but-cheesy-things-girls-want-in-a-relationship/)
 - [destroyed realities](https://love.allwomenstalk.com/the-realities-of-being-the-other-woman/)
+- [6 types of men](https://love.allwomenstalk.com/types-of-toxic-men-to-avoid/)
 - [meaning of guys](https://love.allwomenstalk.com/things-guys-say-and-what-they-really-mean/)
 - [28 Celebrity Beach Bodies ...](https://allwomenstalk.com/celebrity-beach-bodies-of/)
 - [10 Hottest Guys of 2010 ...](https://allwomenstalk.com/hottest-guys-of/)

@@ -3,7 +3,7 @@ title: "9 Worst Celebrity Publicity Stunts We Have Ever Seen ..."
 description: "Joe Jonas & Demi Lovato’s Relationship; Paris Hilton’s Sex Tape; Kanye West’s 2009 VMA Interruption; Charlie Sheen’s Melt down; Frank Ocean’s Sexuality Reveal; More ..."
 url: "https://celebs.allwomenstalk.com/worst-celebrity-publicity-stunts-we-have-ever-seen/"
 category: "celebs"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 9 Worst Celebrity Publicity Stunts We Have Ever Seen ...
@@ -68,16 +68,16 @@ One thing’s for sure, there’s never a dull moment in Hollywood. It seems lik
 
 ## Related Posts
 
-- [polydactyly celebrities](https://celebs.allwomenstalk.com/celebrities-with-body-deformities-that-will-shock-you/)
 - [most scandalous celebrities](https://celebs.allwomenstalk.com/scandalous-celebrity-murders-that-shook-hollywood/)
-- [twins who are both actors](https://celebs.allwomenstalk.com/celebrities-you-didnt-know-were-twins-thatll-surprise-you/)
-- [celebrity bffs](https://celebs.allwomenstalk.com/celebrity-bffs-who-are-the-real-deal/)
-- [late bloomer celebrities](https://celebs.allwomenstalk.com/celebrities-who-found-success-later-in-life/)
-- [jamie lynn weight gain](https://celebs.allwomenstalk.com/dramatic-celebrity-weight-loss-stories/)
-- [black haired female actresses](https://celebs.allwomenstalk.com/funniest-female-actresses-in-hollywood/)
-- [lucy pinder toppless](https://celebs.allwomenstalk.com/good-hearted-celebrities-who-took-adopted-children-under-their-wings/)
 - [stylish celebrities](https://fashion.allwomenstalk.com/stylish-celebrities-under-20-who-have-style-beyond-their-years/)
+- [twins who are both actors](https://celebs.allwomenstalk.com/celebrities-you-didnt-know-were-twins-thatll-surprise-you/)
+- [late bloomer celebrities](https://celebs.allwomenstalk.com/celebrities-who-found-success-later-in-life/)
+- [black haired female actresses](https://celebs.allwomenstalk.com/funniest-female-actresses-in-hollywood/)
 - [real life tv couples](https://movies.allwomenstalk.com/adorable-tv-couples-you-wish-were-dating-in-real-life/)
+- [lucy pinder toppless](https://celebs.allwomenstalk.com/good-hearted-celebrities-who-took-adopted-children-under-their-wings/)
+- [celebrity bffs](https://celebs.allwomenstalk.com/celebrity-bffs-who-are-the-real-deal/)
+- [polydactyly celebrities](https://celebs.allwomenstalk.com/celebrities-with-body-deformities-that-will-shock-you/)
+- [jamie lynn weight gain](https://celebs.allwomenstalk.com/dramatic-celebrity-weight-loss-stories/)
 - [7 Greatly Astonishing Celebrity Scandals ...](https://celebs.allwomenstalk.com/greatly-astonishing-celebrity-scandals/)
 - [9 Most Shocking Celebrity Scandals of 2009...rity ...](https://allwomenstalk.com/most-shocking-celebrity-scandals-of/)
 

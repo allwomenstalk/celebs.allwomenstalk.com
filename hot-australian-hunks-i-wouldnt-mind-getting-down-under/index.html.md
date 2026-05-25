@@ -3,7 +3,7 @@ title: "Hot Australian Hunks I Wouldnt Mind Getting down under ..."
 description: "Alex O’Loughlin; Chris Hemsworth; Liam Hemsworth; Hugh Jackman; Ryan Kwanten; More ..."
 url: "https://celebs.allwomenstalk.com/hot-australian-hunks-i-wouldnt-mind-getting-down-under/"
 category: "celebs"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # Hot Australian Hunks I Wouldnt Mind Getting down under ...
@@ -68,16 +68,16 @@ I wouldn’t describe him as hot and hunky per se, but I happen to have a bit of
 
 ## Related Posts
 
-- [martun luther king](https://lifestyle.allwomenstalk.com/great-leaders-in-history-who-have-changed-the-world/)
-- [brain game shows](https://movies.allwomenstalk.com/watch-these-things-on-netflix-to-boost-your-brain-power/)
 - [ambivantly](https://inspiration.allwomenstalk.com/im-forever-ambivalently-yours/)
-- [scariest rollercoaster ride](https://travel.allwomenstalk.com/terrifying-theme-park-rides-most-people-wont-dare-to-go-on/)
-- [harry potter bar toronto](https://movies.allwomenstalk.com/a-harry-potter-themed-bar-just-opened-its-doors/)
-- [2 disney characters](https://movies.allwomenstalk.com/disney-characters-who-would-make-the-best-dates/)
-- [funny bone youtube](https://funny.allwomenstalk.com/youtube-channels-guaranteed-to-tickle-your-funny-bone/)
-- [game of thrones meme gif](https://fashion.allwomenstalk.com/here-are-the-game-of-thrones-gifs-thatll-describe-your-life-perfectly/)
-- [vikki carr songs](https://music.allwomenstalk.com/types-of-dances-to-learn-before-you-die/)
 - [real wizards](https://lifestyle.allwomenstalk.com/real-wizards-who-would-have-been-a-match-for-harry-potter/)
+- [vikki carr songs](https://music.allwomenstalk.com/types-of-dances-to-learn-before-you-die/)
+- [scariest rollercoaster ride](https://travel.allwomenstalk.com/terrifying-theme-park-rides-most-people-wont-dare-to-go-on/)
+- [game of thrones meme gif](https://fashion.allwomenstalk.com/here-are-the-game-of-thrones-gifs-thatll-describe-your-life-perfectly/)
+- [funny bone youtube](https://funny.allwomenstalk.com/youtube-channels-guaranteed-to-tickle-your-funny-bone/)
+- [harry potter bar toronto](https://movies.allwomenstalk.com/a-harry-potter-themed-bar-just-opened-its-doors/)
+- [martun luther king](https://lifestyle.allwomenstalk.com/great-leaders-in-history-who-have-changed-the-world/)
+- [2 disney characters](https://movies.allwomenstalk.com/disney-characters-who-would-make-the-best-dates/)
+- [brain game shows](https://movies.allwomenstalk.com/watch-these-things-on-netflix-to-boost-your-brain-power/)
 - [On Southern Boys ...](https://allwomenstalk.com/on-southern-boys/)
 - [Tasteful Nudes ...](https://allwomenstalk.com/tasteful-nudes/)
 

@@ -3,7 +3,7 @@ title: "Lets Celebrate Jack Nicholsons 80th Birthday ..."
 description: "A Few Good Men; Batman; Five Easy Pieces; Anger Management; Chinatown; More ..."
 url: "https://celebs.allwomenstalk.com/lets-celebrate-jack-nicholsons-80th-birthday/"
 category: "celebs"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # Lets Celebrate Jack Nicholsons 80th Birthday ...
@@ -92,16 +92,16 @@ Do you have a favorite Jack Nicholson movie? Mine is As Good As It Gets.
 
 ## Related Posts
 
+- [american horror story hh holmes](https://movies.allwomenstalk.com/real-american-horror-stories/)
+- [on screen kisses](https://movies.allwomenstalk.com/epic-on-screen-kisses-to-hit-you-in-the-feels/)
+- [duplass brothers](https://celebs.allwomenstalk.com/the-time-i-met-the-duplass-brothers/)
+- [provocative stories](https://books.allwomenstalk.com/a-short-story-provocative-part-one/)
+- [titus andromedon gif](https://movies.allwomenstalk.com/of-the-best-moments-of-titus-andromedon-from-the-unbreakable-kimmy-schmidt/)
+- [best short series](https://movies.allwomenstalk.com/mini-series-to-binge-watch/)
 - [lowkey fangirling](https://celebs.allwomenstalk.com/the-stages-of-being-a-fangirl-only-hard-core-fans-can-relate-to/)
 - [asmr magic](https://inspiration.allwomenstalk.com/best-asmrtists-to-follow-on-youtube/)
-- [best short series](https://movies.allwomenstalk.com/mini-series-to-binge-watch/)
 - [something about love that drives me crazy](https://love.allwomenstalk.com/ways-men-drive-us-crazy/)
-- [american horror story hh holmes](https://movies.allwomenstalk.com/real-american-horror-stories/)
-- [duplass brothers](https://celebs.allwomenstalk.com/the-time-i-met-the-duplass-brothers/)
-- [on screen kisses](https://movies.allwomenstalk.com/epic-on-screen-kisses-to-hit-you-in-the-feels/)
-- [titus andromedon gif](https://movies.allwomenstalk.com/of-the-best-moments-of-titus-andromedon-from-the-unbreakable-kimmy-schmidt/)
 - [shelly knotek movie where to watch](https://lifestyle.allwomenstalk.com/podcasts-about-true-crimes/)
-- [provocative stories](https://books.allwomenstalk.com/a-short-story-provocative-part-one/)
 - [Leslie Nielsen Passes Away at 84 ...](https://celebs.allwomenstalk.com/leslie-nielsen-passes-away-at-84/)
 - [Oscar Frock Horrors - CQs Letters to the Stars ...](https://allwomenstalk.com/oscar-frock-horrors-cqs-letters-to-the-stars/)
 

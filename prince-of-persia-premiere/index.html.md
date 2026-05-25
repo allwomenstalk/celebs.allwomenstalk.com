@@ -3,7 +3,7 @@ title: "Whos Excited to See the Prince of Persia?"
 description: "Stay ahead, stay chic. Trusted guides on beauty, wellness, fashion, and everything that defines today's empowered woman."
 url: "https://celebs.allwomenstalk.com/prince-of-persia-premiere/"
 category: "celebs"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # Whos Excited to See the Prince of Persia?

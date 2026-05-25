@@ -3,7 +3,7 @@ title: "15 Most Stupid Quotes by Politicians ..."
 description: "Barack Obama on Bowling; Sarah Palin on the Koreas; Joe Biden on Hillary Clinton; More from Joe Biden; Donald Rumsfeld on Intelligence; More ..."
 url: "https://celebs.allwomenstalk.com/most-stupid-quotes-by-politicians/"
 category: "celebs"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 15 Most Stupid Quotes by Politicians ...
@@ -74,16 +74,16 @@ Well, this is just a very small selection of many – after having read this, yo
 
 ## Related Posts
 
-- [random expressions](https://lifestyle.allwomenstalk.com/commonly-misused-words-and-expressions/)
-- [absquatulate sentence](https://lifestyle.allwomenstalk.com/new-words-to-use-this-week/)
-- [sayings like awesome sauce](https://lifestyle.allwomenstalk.com/phrases-and-words-people-need-to-stop-using/)
-- [english words that come from other languages](https://books.allwomenstalk.com/common-english-words-adopted-from-other-languages/)
 - [gheegle in a sentence](https://travel.allwomenstalk.com/fantastic-untranslatable-words/)
-- [the ball is in your court relationship](https://love.allwomenstalk.com/things-to-say-or-not-to-say-when-texting-boys/)
-- [paris color primped previous](https://lifestyle.allwomenstalk.com/more-idioms-you-should-know/)
+- [j adore meaning](https://parenting.allwomenstalk.com/unusual-baby-names/)
 - [wet blanket expression](https://lifestyle.allwomenstalk.com/idioms-you-need-to-know/)
 - [cute apology](https://love.allwomenstalk.com/cute-ways-to-say-sorry/)
-- [j adore meaning](https://parenting.allwomenstalk.com/unusual-baby-names/)
+- [sayings like awesome sauce](https://lifestyle.allwomenstalk.com/phrases-and-words-people-need-to-stop-using/)
+- [absquatulate sentence](https://lifestyle.allwomenstalk.com/new-words-to-use-this-week/)
+- [english words that come from other languages](https://books.allwomenstalk.com/common-english-words-adopted-from-other-languages/)
+- [paris color primped previous](https://lifestyle.allwomenstalk.com/more-idioms-you-should-know/)
+- [random expressions](https://lifestyle.allwomenstalk.com/commonly-misused-words-and-expressions/)
+- [the ball is in your court relationship](https://love.allwomenstalk.com/things-to-say-or-not-to-say-when-texting-boys/)
 - [8 Worst Books Written by Celebs ...](https://celebs.allwomenstalk.com/8-worst-books-written-by-celebs/)
 - [The Kaiser of Quotable Quotes ...](https://allwomenstalk.com/the-kaiser-of-quotable-quotes/)
 

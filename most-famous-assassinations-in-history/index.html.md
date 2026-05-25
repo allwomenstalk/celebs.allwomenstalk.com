@@ -3,7 +3,7 @@ title: "7 Most Famous Assassinations in History ..."
 description: "John Fitzgerald Kennedy; Mahatma Gandhi; Benazir Bhutto; John Lennon; Martin Luther King Jr; More ..."
 url: "https://celebs.allwomenstalk.com/most-famous-assassinations-in-history/"
 category: "celebs"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 7 Most Famous Assassinations in History ...
@@ -56,16 +56,16 @@ Assassinations are sad and scary, and often they’re shrouded in conspiracy. Ev
 
 ## Related Posts
 
-- [sci fi villain](https://movies.allwomenstalk.com/best-science-fiction-villains/)
-- [amazing tv shows](https://movies.allwomenstalk.com/amazing-tv-shows-for-hiatus-season/)
-- [most watched ted talks](https://inspiration.allwomenstalk.com/most-watched-ted-talks-to-stir-up-your-curiosity/)
 - [celebrities in cars getting coffee](https://movies.allwomenstalk.com/must-see-interviews-on-comedians-in-cars-getting-coffee/)
 - [tv shows with cristina yang](https://movies.allwomenstalk.com/things-we-will-miss-about-cristina-yang-on-greys-anatomy/)
+- [most watched ted talks](https://inspiration.allwomenstalk.com/most-watched-ted-talks-to-stir-up-your-curiosity/)
 - [rick mayle](https://celebs.allwomenstalk.com/best-performances-of-rik-mayall-as-a-tribute-to-a-comedy-great/)
-- [alan partridge farmers](https://movies.allwomenstalk.com/of-alan-partridges-craziest-moments/)
-- [i never went to college](https://money.allwomenstalk.com/impressive-entrepreneurs-who-never-went-to-college/)
-- [cute fictional couples](https://movies.allwomenstalk.com/cutest-tv-couples-that-give-us-goosebumps/)
+- [amazing tv shows](https://movies.allwomenstalk.com/amazing-tv-shows-for-hiatus-season/)
 - [teen witch kiss scene](https://love.allwomenstalk.com/of-the-cutest-kissing-scenes-recently-on-television/)
+- [sci fi villain](https://movies.allwomenstalk.com/best-science-fiction-villains/)
+- [cute fictional couples](https://movies.allwomenstalk.com/cutest-tv-couples-that-give-us-goosebumps/)
+- [i never went to college](https://money.allwomenstalk.com/impressive-entrepreneurs-who-never-went-to-college/)
+- [alan partridge farmers](https://movies.allwomenstalk.com/of-alan-partridges-craziest-moments/)
 - [7 Special Forces Operations ...](https://lifestyle.allwomenstalk.com/special-forces-operations/)
 - [7 Terrible Man-Made Disasters ...](https://allwomenstalk.com/7-worst-man-made-disasters/)
 

@@ -3,7 +3,7 @@ title: "What if Your Favorite Fictional Characters Had Tinder?"
 description: "Augustus Waters; Edward Cullen; Tom Riddle; Dorian Gray; Fitzwilliam Darcy; More ..."
 url: "https://celebs.allwomenstalk.com/what-if-your-favorite-fictional-characters-had-tinder/"
 category: "celebs"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # What if Your Favorite Fictional Characters Had Tinder?
@@ -68,16 +68,16 @@ Which one of these fictional characters would you date?
 
 ## Related Posts
 
-- [what your favorite christmas movie says about you](https://movies.allwomenstalk.com/what-does-your-favorite-christmas-movie-say-about-you/)
-- [what kind of lover are you quiz](https://love.allwomenstalk.com/what-kind-of-lover-are-you/)
-- [the first year of marriage](https://love.allwomenstalk.com/what-will-your-first-year-of-marriage-really-be-like/)
 - [Why  Are You Attracted to Assholes](https://love.allwomenstalk.com/why-are-you-attracted-to-assholes/)
-- [paris color stylo smoky eye shadow pearly pink](https://hair.allwomenstalk.com/are-you-really-ready-for-rainbow-hair/)
-- [what is an optimist](https://funny.allwomenstalk.com/are-you-an-optimist-or-a-pessimist/)
-- [what to do when your crush doesnt like you back](https://love.allwomenstalk.com/is-this-why-your-crush-doesnt-like-you-back/)
-- [is it better to sleep with clothes on](https://health.allwomenstalk.com/ever-wondered-if-it-is-better-to-sleep-naked/)
-- [where do you put deodorant](https://beauty.allwomenstalk.com/where-should-you-actually-be-applying-deodorant/)
 - [pegan ruled](https://diet.allwomenstalk.com/is-the-pegan-diet-right-for-you/)
+- [the first year of marriage](https://love.allwomenstalk.com/what-will-your-first-year-of-marriage-really-be-like/)
+- [what is an optimist](https://funny.allwomenstalk.com/are-you-an-optimist-or-a-pessimist/)
+- [what your favorite christmas movie says about you](https://movies.allwomenstalk.com/what-does-your-favorite-christmas-movie-say-about-you/)
+- [where do you put deodorant](https://beauty.allwomenstalk.com/where-should-you-actually-be-applying-deodorant/)
+- [paris color stylo smoky eye shadow pearly pink](https://hair.allwomenstalk.com/are-you-really-ready-for-rainbow-hair/)
+- [what to do when your crush doesnt like you back](https://love.allwomenstalk.com/is-this-why-your-crush-doesnt-like-you-back/)
+- [what kind of lover are you quiz](https://love.allwomenstalk.com/what-kind-of-lover-are-you/)
+- [is it better to sleep with clothes on](https://health.allwomenstalk.com/ever-wondered-if-it-is-better-to-sleep-naked/)
 - [A Besotted Fairy Tale](https://allwomenstalk.com/a-besotted-fairy-tale/)
 - [Virtual Boyfriend](https://allwomenstalk.com/virtual-boyfriend/)
 

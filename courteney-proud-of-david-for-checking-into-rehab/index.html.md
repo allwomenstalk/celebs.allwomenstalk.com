@@ -3,7 +3,7 @@ title: "Courteney Proud of David for Checking into Rehab..."
 description: "Stay ahead, stay chic. Trusted guides on beauty, wellness, fashion, and everything that defines today's empowered woman."
 url: "https://celebs.allwomenstalk.com/courteney-proud-of-david-for-checking-into-rehab/"
 category: "celebs"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # Courteney Proud of David for Checking into Rehab...
@@ -22,15 +22,15 @@ I just hope these two can sort their mess out and work things out. For some reas
 
 ## Related Posts
 
-- [Michael Moore Plays Hero to WikiLeaks Cofounder...](https://celebs.allwomenstalk.com/michael-moore-plays-hero-to-wikileaks-cofounder/)
+- [Kyle Richards Not Sure about Being a Housewife](https://celebs.allwomenstalk.com/kyle-richards-not-sure-about-being-a-housewife/)
+- [twitter leann rimes](https://celebs.allwomenstalk.com/leann-rimes-cibrian-tweets-her-happiness/)
+- [LeAnn  Eddie Not Allowed to Party....](https://celebs.allwomenstalk.com/leann-eddie-not-allowed-to-party/)
 - [take a risk chris brown](https://celebs.allwomenstalk.com/chris-brown-to-collaborate-with-justin-bieber/)
 - [Johnny Never to Marry Vanessa ...](https://celebs.allwomenstalk.com/johnny-never-to-marry-vanessa/)
-- [LeAnn  Eddie Not Allowed to Party....](https://celebs.allwomenstalk.com/leann-eddie-not-allowed-to-party/)
+- [Michael Moore Plays Hero to WikiLeaks Cofounder...](https://celebs.allwomenstalk.com/michael-moore-plays-hero-to-wikileaks-cofounder/)
 - [Howard K Stern Freed by the Law ...](https://celebs.allwomenstalk.com/howard-k-stern-freed-by-the-law/)
-- [twitter leann rimes](https://celebs.allwomenstalk.com/leann-rimes-cibrian-tweets-her-happiness/)
 - [Elton John Surprised by His Royal Invite](https://celebs.allwomenstalk.com/elton-john-surprised-by-his-royal-invite/)
 - [wedding lauren miller rogen](https://celebs.allwomenstalk.com/seth-rogen-bares-his-soul-to-stern/)
-- [Kyle Richards Not Sure about Being a Housewife](https://celebs.allwomenstalk.com/kyle-richards-not-sure-about-being-a-housewife/)
 - [Britney Tweets about Jasons Beatings ...](https://celebs.allwomenstalk.com/britney-tweets-about-jasons-beatings/)
 - [Tawny Kitean Enters Drug Rehab Program](https://allwomenstalk.com/tawny-kitean-enters-drug-rehab-program/)
 - [Wholl Be Forced into Rehab Next](https://allwomenstalk.com/wholl-be-forced-into-rehab-next/)

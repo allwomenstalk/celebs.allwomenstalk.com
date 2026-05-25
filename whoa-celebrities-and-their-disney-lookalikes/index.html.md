@@ -3,7 +3,7 @@ title: "Whoa! 12 Celebrities and Their Disney Lookalikes ..."
 description: "Elizabeth Olsen as Anna; Amanda Seyfried as Rapunzel; Shay Mitchell as Pocahontas; Elle Fanning as Elsa; Rachelle Lefevre as Merida; More ..."
 url: "https://celebs.allwomenstalk.com/whoa-celebrities-and-their-disney-lookalikes/"
 category: "celebs"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # Whoa! 12 Celebrities and Their Disney Lookalikes ...
@@ -86,16 +86,16 @@ Are there any other celebrities you can think of that look just like Disney char
 
 ## Related Posts
 
+- [cute pairings](https://celebs.allwomenstalk.com/adorable-pairings-of-celebrity-best-friends/)
 - [celebrities on bereal](https://celebs.allwomenstalk.com/celebrities-and-their-honest-opinions-on-motherhood/)
 - [famous actors with parkinsons](https://celebs.allwomenstalk.com/celebrities-with-parkinsons-disease/)
 - [flynn rider irl](https://celebs.allwomenstalk.com/celebs-you-probably-forgot-voiced-disney-characters/)
-- [wedding dress magazines free](https://wedding.allwomenstalk.com/gorgeous-celebrities-who-have-covered-wedding-magazines/)
-- [handsome david beckham](https://celebs.allwomenstalk.com/of-the-hunkiest-celebrity-dads-around/)
-- [strange facts about celebrities](https://celebs.allwomenstalk.com/little-known-facts-about-your-favorite-celebrities/)
-- [cute pairings](https://celebs.allwomenstalk.com/adorable-pairings-of-celebrity-best-friends/)
-- [pregnant celebrities on red carpet](https://fashion.allwomenstalk.com/celebrities-that-made-red-carpet-baby-bumps-look-amazing/)
 - [dennis rodman belly button](https://celebs.allwomenstalk.com/celebrities-you-may-have-forgotten-had-facial-piercings/)
+- [handsome david beckham](https://celebs.allwomenstalk.com/of-the-hunkiest-celebrity-dads-around/)
 - [ellen pompeo and patrick dempsey bts](https://celebs.allwomenstalk.com/tgit-shondaland-celebrities-you-should-be-following-on-twitter/)
+- [strange facts about celebrities](https://celebs.allwomenstalk.com/little-known-facts-about-your-favorite-celebrities/)
+- [pregnant celebrities on red carpet](https://fashion.allwomenstalk.com/celebrities-that-made-red-carpet-baby-bumps-look-amazing/)
+- [wedding dress magazines free](https://wedding.allwomenstalk.com/gorgeous-celebrities-who-have-covered-wedding-magazines/)
 - [12 Hottest Actors from TV Shows ...](https://celebs.allwomenstalk.com/hottest-actors-from-tv-shows/)
 - [8 Iconic Red Carpet Celebrity Looks ...](https://celebs.allwomenstalk.com/iconic-red-carpet-celebrity-looks/)
 

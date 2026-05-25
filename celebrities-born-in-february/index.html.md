@@ -3,7 +3,7 @@ title: "Celebs Born in February Part 1 of 4 ..."
 description: "Michael C. Hall (Feb 1.); Shakira (Feb 2.); Isla Fisher (Feb 3.); Alice Cooper (Feb. 4); Michael Sheen (Feb 5.); More ..."
 url: "https://celebs.allwomenstalk.com/celebrities-born-in-february/"
 category: "celebs"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # Celebs Born in February Part 1 of 4 ...
@@ -56,16 +56,16 @@ So these are the first seven celebrities born in February. Make sure to watch ou
 
 ## Related Posts
 
-- [what toothpaste do celebrities use](https://beauty.allwomenstalk.com/perfect-ways-to-get-a-celebrity-smile/)
 - [laurence fishburne ex-wife](https://celebs.allwomenstalk.com/celebrity-couples-who-split-in-2018/)
-- [brazilian asian baby](https://celebs.allwomenstalk.com/dont-hate-me-cause-im-cute-adorable-celeb-kids-we-love/)
-- [lake como celebrities](https://travel.allwomenstalk.com/where-celebrities-go-on-vacation/)
-- [90s heartthrobs actors](https://celebs.allwomenstalk.com/heartthrobs-of-the-1990s/)
-- [robert downey jr oscar winner](https://movies.allwomenstalk.com/incredible-actors-who-are-yet-to-win-an-oscar/)
 - [celebrities born february 18](https://celebs.allwomenstalk.com/celebrities-born-in-february-3/)
-- [celebrities born on february 4th](https://celebs.allwomenstalk.com/celebrities-born-in-february-4/)
+- [brazilian asian baby](https://celebs.allwomenstalk.com/dont-hate-me-cause-im-cute-adorable-celeb-kids-we-love/)
+- [robert downey jr oscar winner](https://movies.allwomenstalk.com/incredible-actors-who-are-yet-to-win-an-oscar/)
 - [celebrities born on february 2](https://celebs.allwomenstalk.com/celebrities-born-in-february-2/)
+- [what toothpaste do celebrities use](https://beauty.allwomenstalk.com/perfect-ways-to-get-a-celebrity-smile/)
 - [wokest celebrities](https://celebs.allwomenstalk.com/who-are-the-most-charitable-celebrities/)
+- [90s heartthrobs actors](https://celebs.allwomenstalk.com/heartthrobs-of-the-1990s/)
+- [lake como celebrities](https://travel.allwomenstalk.com/where-celebrities-go-on-vacation/)
+- [celebrities born on february 4th](https://celebs.allwomenstalk.com/celebrities-born-in-february-4/)
 - [7 Inspiring Celebrities of 2011 ...](https://celebs.allwomenstalk.com/inspiring-celebrities-of/)
 - [10 Gorgeous Full-Figured Celebrities ...](https://celebs.allwomenstalk.com/gorgeous-full-figured-celebrities/)
 

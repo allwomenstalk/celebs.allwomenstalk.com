@@ -3,7 +3,7 @@ title: "Inspiring Celeb Marriages That Are Actually Long Lasting ..."
 description: "Kevin Bacon & Kyra Sedgwick; John Travolta & Kelly Preston; Tom Hanks & Rita Wilson; Will Smith & Jada Pinkett Smith; Ozzy & Sharon Osbourne; More ..."
 url: "https://celebs.allwomenstalk.com/inspiring-celeb-marriages-that-are-actually-long-lasting/"
 category: "celebs"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # Inspiring Celeb Marriages That Are Actually Long Lasting ...
@@ -62,16 +62,16 @@ Marriage takes work. And for those couples who are willing to do the work, marri
 
 ## Related Posts
 
-- [sensational beginnings](https://movies.allwomenstalk.com/actors-with-terrible-tv-beginnings/)
-- [whoopi goldberg avpd](https://celebs.allwomenstalk.com/successful-stars-with-mental-disorders/)
-- [harrison ford tom hanks](https://lifestyle.allwomenstalk.com/celebs-that-would-make-a-better-president-than-kanye/)
-- [middle aged male actors](https://movies.allwomenstalk.com/these-hot-british-actors-will-get-your-pulse-racing/)
-- [ariana grande workout clothes](https://fitness.allwomenstalk.com/sweat-in-style-check-out-these-celebs-in-workout-gear/)
-- [david beckham swag](https://celebs.allwomenstalk.com/times-david-beckham-proved-hes-hot-hot-hot/)
-- [how old is gabby union](https://movies.allwomenstalk.com/adult-actors-who-have-played-teenagers/)
-- [riche le stylo glistening](https://hair.allwomenstalk.com/check-out-these-gorg-celebs-whove-rocked-rainbow-hair/)
 - [gardening celebrities](https://gardening.allwomenstalk.com/celebrity-gardens-you-have-to-see-to-believe/)
+- [sensational beginnings](https://movies.allwomenstalk.com/actors-with-terrible-tv-beginnings/)
+- [how old is gabby union](https://movies.allwomenstalk.com/adult-actors-who-have-played-teenagers/)
+- [middle aged male actors](https://movies.allwomenstalk.com/these-hot-british-actors-will-get-your-pulse-racing/)
+- [harrison ford tom hanks](https://lifestyle.allwomenstalk.com/celebs-that-would-make-a-better-president-than-kanye/)
+- [ariana grande workout clothes](https://fitness.allwomenstalk.com/sweat-in-style-check-out-these-celebs-in-workout-gear/)
+- [whoopi goldberg avpd](https://celebs.allwomenstalk.com/successful-stars-with-mental-disorders/)
+- [riche le stylo glistening](https://hair.allwomenstalk.com/check-out-these-gorg-celebs-whove-rocked-rainbow-hair/)
 - [heidi gum](https://celebs.allwomenstalk.com/celebrity-bubble-gum-girls/)
+- [david beckham swag](https://celebs.allwomenstalk.com/times-david-beckham-proved-hes-hot-hot-hot/)
 - [20 Shortest Celebrity Marriages ...](https://allwomenstalk.com/20-shortest-celebrity-marriages/)
 - [12 Celebrity Couples Still Going Strong ...](https://allwomenstalk.com/12-celebrity-couples-still-going-strong/)
 

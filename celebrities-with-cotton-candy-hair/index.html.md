@@ -3,7 +3,7 @@ title: "7 Celebrities with Cotton Candy Hair ..."
 description: "Vanessa Hudgens; Kesha; Nicole Richie; Katy Perry; Rihanna; More ..."
 url: "https://celebs.allwomenstalk.com/celebrities-with-cotton-candy-hair/"
 category: "celebs"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 7 Celebrities with Cotton Candy Hair ...
@@ -32,7 +32,7 @@ Nicole Richie recently dyed her hair a sweet lavender color and I've been obsess
 
 ![Katy Perry](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/l5/yw/y0765dpt_600x753.jpg)
 
-Katy Perry's always been one to experiment with [different hair colors](https://hair.allwomenstalk.com/interesting-hair-color-meanings/). She's had blue hair, pink hair, purple hair, etc. Now, she's rocking a slime green color. I actually think it looks really cute! I think it's definitely a less common color so if you feel like being different from the crowd, choose a soft green color for your hair!
+Katy Perry's always been one to experiment with different hair colors. She's had blue hair, pink hair, purple hair, etc. Now, she's rocking a slime green color. I actually think it looks really cute! I think it's definitely a less common color so if you feel like being different from the crowd, choose a soft green color for your hair!
 
 ## 5. Rihanna
 
@@ -56,16 +56,16 @@ Well, there you have it! These are just seven out of many celebrities who have r
 
 ## Related Posts
 
-- [actors and musicians](https://celebs.allwomenstalk.com/talented-actors-who-are-also-musicians/)
-- [celebrities who are best friends](https://celebs.allwomenstalk.com/celebrity-best-friends-we-should-aspire-to-be-like/)
 - [celebrity astrology signs](https://celebs.allwomenstalk.com/celebrities-and-their-astrological-signs/)
 - [amy winehouse swimsuit](https://celebs.allwomenstalk.com/celebrity-faces-destroyed-by-drugs/)
+- [celebrities who are best friends](https://celebs.allwomenstalk.com/celebrity-best-friends-we-should-aspire-to-be-like/)
+- [james blunt net worth](https://celebs.allwomenstalk.com/celebrities-who-have-praised-ed-sheerans-new-album/)
+- [miley cyrus scandal video](https://celebs.allwomenstalk.com/of-the-biggest-miley-cyrus-scandals/)
 - [fit blonde actresses](https://celebs.allwomenstalk.com/hottest-blonde-celebrities-from-yesterday-and-today/)
 - [pauly d child](https://celebs.allwomenstalk.com/celebrity-babies-who-seem-more-famous-than-their-parents/)
-- [james blunt net worth](https://celebs.allwomenstalk.com/celebrities-who-have-praised-ed-sheerans-new-album/)
-- [famous celebrities as kids](https://celebs.allwomenstalk.com/child-celebrities-who-are-no-longer-famous/)
-- [miley cyrus scandal video](https://celebs.allwomenstalk.com/of-the-biggest-miley-cyrus-scandals/)
 - [why should celebrities be role models](https://celebs.allwomenstalk.com/reasons-why-some-celebrities-are-bad-role-models/)
+- [actors and musicians](https://celebs.allwomenstalk.com/talented-actors-who-are-also-musicians/)
+- [famous celebrities as kids](https://celebs.allwomenstalk.com/child-celebrities-who-are-no-longer-famous/)
 - [7 Funkiest Celebrity Hairstyles ...](https://celebs.allwomenstalk.com/7-funkiest-celebrity-hairstyles/)
 - [7 Cool Celebrities with Dimples ...](https://celebs.allwomenstalk.com/cool-celebrities-with-dimples/)
 

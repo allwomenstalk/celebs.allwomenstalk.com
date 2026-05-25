@@ -3,7 +3,7 @@ title: "The Oscar Race is on..."
 description: "Stay ahead, stay chic. Trusted guides on beauty, wellness, fashion, and everything that defines today's empowered woman."
 url: "https://celebs.allwomenstalk.com/the-oscar-race-is-on/"
 category: "celebs"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # The Oscar Race is on...
@@ -119,16 +119,16 @@ And in case you are interested in the remaining categories of nominations, you c
 
 ## Related Posts
 
-- [Gorgeous Makeup at the Emmys](https://allwomenstalk.com/gorgeous-makeup-at-the-emmys-2/)
-- [2007 Golden Globes: Back to the Makeup Chair for Y...](https://allwomenstalk.com/golden-globes-back-to-the-makeup-chair-for-you/)
 - [gwen palthrow](https://allwomenstalk.com/hits-misses-at-the-golden-globes/)
+- [2007 Golden Globes: Back to the Makeup Chair for Y...](https://allwomenstalk.com/golden-globes-back-to-the-makeup-chair-for-you/)
 - [So There I Was All Ready to Blog the Oscars to P.....](https://allwomenstalk.com/so-there-i-was-all-ready-to-blog-the-oscars-to-p/)
 - [The Red Carpet or just Another Day on the Job.](https://allwomenstalk.com/the-red-carpet-or-just-another-day-on-the-job/)
 - [Surprise Glam Holds Blog Awards](https://allwomenstalk.com/surprise-glam-holds-blog-awards/)
-- [The Stars Dressed up or Got Dressing-downs](https://allwomenstalk.com/the-stars-dressed-up-or-got-dressing-downs/)
 - [B Glam Nominated for SIX Awards](https://allwomenstalk.com/b-glam-nominated-for-six-awards-bglam/)
 - [10 Golden Globes Looks for Less ...](https://celebs.allwomenstalk.com/golden-globes-looks-for-less/)
+- [Gorgeous Makeup at the Emmys](https://allwomenstalk.com/gorgeous-makeup-at-the-emmys-2/)
 - [vanity fair best dressed](https://celebs.allwomenstalk.com/people-who-made-it-on-vanity-fairs-best-dressed-list/)
+- [The Stars Dressed up or Got Dressing-downs](https://allwomenstalk.com/the-stars-dressed-up-or-got-dressing-downs/)
 - [The Kings Speech Leads the SAG Nominations...](https://celebs.allwomenstalk.com/the-kings-speech-leads-the-sag-nominations/)
 - [The Hobbit Shooting in Jeopardy Once Again...](https://celebs.allwomenstalk.com/the-hobbit-shooting-in-jeopardy-once-again/)
 

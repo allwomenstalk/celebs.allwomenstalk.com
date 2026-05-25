@@ -3,7 +3,7 @@ title: "Michael Brea Was Doing Gods Bidding ..."
 description: "Stay ahead, stay chic. Trusted guides on beauty, wellness, fashion, and everything that defines today's empowered woman."
 url: "https://celebs.allwomenstalk.com/michael-brea-was-doing-gods-bidding/"
 category: "celebs"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # Michael Brea Was Doing Gods Bidding ...
@@ -24,16 +24,16 @@ Brea is being held on charges of 2nd degree murder and criminal possession of a 
 
 ## Related Posts
 
-- [mythbusters obama](https://celebs.allwomenstalk.com/obama-on-mythbusters/)
+- [favorite vines](https://gardening.allwomenstalk.com/5-of-my-favorite-vines/)
+- [New Year Bash Wrap-up: Part 1 ...](https://celebs.allwomenstalk.com/new-year-bash-wrap-up-part-1/)
+- [dadt pink](https://celebs.allwomenstalk.com/stars-come-out-in-support-of-dadt-repeal/)
+- [The Hobbit Shooting in Jeopardy Once Again...](https://celebs.allwomenstalk.com/the-hobbit-shooting-in-jeopardy-once-again/)
+- [cool butterflies](https://gardening.allwomenstalk.com/5-cool-butterflies/)
+- [daniello carting](https://celebs.allwomenstalk.com/ramsays-trash-talk/)
 - [New Year Bash Wrap-up: Part 2 ...](https://celebs.allwomenstalk.com/new-year-bash-wrap-up-part-2/)
 - [best rags to riches stories](https://celebs.allwomenstalk.com/best-from-rags-to-riches-stories/)
-- [cool butterflies](https://gardening.allwomenstalk.com/5-cool-butterflies/)
 - [Cooks Love for Mother Earth Revealed...](https://celebs.allwomenstalk.com/cooks-love-for-mother-earth-revealed/)
-- [The Hobbit Shooting in Jeopardy Once Again...](https://celebs.allwomenstalk.com/the-hobbit-shooting-in-jeopardy-once-again/)
-- [dadt pink](https://celebs.allwomenstalk.com/stars-come-out-in-support-of-dadt-repeal/)
-- [New Year Bash Wrap-up: Part 1 ...](https://celebs.allwomenstalk.com/new-year-bash-wrap-up-part-1/)
-- [favorite vines](https://gardening.allwomenstalk.com/5-of-my-favorite-vines/)
-- [daniello carting](https://celebs.allwomenstalk.com/ramsays-trash-talk/)
+- [mythbusters obama](https://celebs.allwomenstalk.com/obama-on-mythbusters/)
 - [George Michael Ready to Start Again ...](https://celebs.allwomenstalk.com/george-michael-ready-to-start-again/)
 - [Michael Lohan Doesnt Mind Lindsay Movie...](https://celebs.allwomenstalk.com/michael-lohan-doesnt-mind-lindsay-movie/)
 

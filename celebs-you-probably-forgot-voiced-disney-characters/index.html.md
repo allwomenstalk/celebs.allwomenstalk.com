@@ -3,7 +3,7 @@ title: "10 Celebs You Probably Forgot Voiced Disney Characters ..."
 description: "Zachary Levi; Scott Weinger; Tony Goldwyn; Miley Cyrus; Matthew Broderick; More ..."
 url: "https://celebs.allwomenstalk.com/celebs-you-probably-forgot-voiced-disney-characters/"
 category: "celebs"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 10 Celebs You Probably Forgot Voiced Disney Characters ...
@@ -75,15 +75,15 @@ Were you surprised by any of the names on this list?
 ## Related Posts
 
 - [ellen pompeo and patrick dempsey bts](https://celebs.allwomenstalk.com/tgit-shondaland-celebrities-you-should-be-following-on-twitter/)
-- [handsome david beckham](https://celebs.allwomenstalk.com/of-the-hunkiest-celebrity-dads-around/)
 - [strange facts about celebrities](https://celebs.allwomenstalk.com/little-known-facts-about-your-favorite-celebrities/)
-- [cute pairings](https://celebs.allwomenstalk.com/adorable-pairings-of-celebrity-best-friends/)
-- [famous actors with parkinsons](https://celebs.allwomenstalk.com/celebrities-with-parkinsons-disease/)
-- [dennis rodman belly button](https://celebs.allwomenstalk.com/celebrities-you-may-have-forgotten-had-facial-piercings/)
-- [pregnant celebrities on red carpet](https://fashion.allwomenstalk.com/celebrities-that-made-red-carpet-baby-bumps-look-amazing/)
-- [wedding dress magazines free](https://wedding.allwomenstalk.com/gorgeous-celebrities-who-have-covered-wedding-magazines/)
-- [celebrities giving back](https://inspiration.allwomenstalk.com/these-charitable-celebrity-couples-are-all-about-giving-back/)
 - [celebrities on bereal](https://celebs.allwomenstalk.com/celebrities-and-their-honest-opinions-on-motherhood/)
+- [famous actors with parkinsons](https://celebs.allwomenstalk.com/celebrities-with-parkinsons-disease/)
+- [wedding dress magazines free](https://wedding.allwomenstalk.com/gorgeous-celebrities-who-have-covered-wedding-magazines/)
+- [dennis rodman belly button](https://celebs.allwomenstalk.com/celebrities-you-may-have-forgotten-had-facial-piercings/)
+- [cute pairings](https://celebs.allwomenstalk.com/adorable-pairings-of-celebrity-best-friends/)
+- [pregnant celebrities on red carpet](https://fashion.allwomenstalk.com/celebrities-that-made-red-carpet-baby-bumps-look-amazing/)
+- [celebrities giving back](https://inspiration.allwomenstalk.com/these-charitable-celebrity-couples-are-all-about-giving-back/)
+- [handsome david beckham](https://celebs.allwomenstalk.com/of-the-hunkiest-celebrity-dads-around/)
 - [7 Most Loved Disney Characters ...](https://allwomenstalk.com/7-most-loved-disney-characters/)
 - [8 Writers Who Made a Cameo Appearance ...](https://movies.allwomenstalk.com/writers-who-made-a-cameo-appearance/)
 

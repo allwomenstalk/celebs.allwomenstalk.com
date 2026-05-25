@@ -3,7 +3,7 @@ title: "11 Floral Red Carpet Looks from the Celebrities Who Wore It Best?"
 description: "Hailee Steinfeld; Allison Williams; Taylor Swift; Kerry Washington; Michelle Dockery; More ..."
 url: "https://celebs.allwomenstalk.com/floral-red-carpet-looks-from-the-celebrities-who-wore-it-best/"
 category: "celebs"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 11 Floral Red Carpet Looks from the Celebrities  Who Wore It Best?
@@ -80,16 +80,16 @@ These are just some celebrities we’ve seen sporting florals on the red carpet.
 
 ## Related Posts
 
-- [what color lipstick to wear with a navy blue dress](https://celebs.allwomenstalk.com/celebrities-wearing-navy-outfits-who-wore-it-best-2/)
-- [celebrities in black turtlenecks](https://fashion.allwomenstalk.com/celebs-who-rocked-turtlenecks-who-wore-it-best/)
-- [green haired celebrities](https://celebs.allwomenstalk.com/celebrities-with-rainbow-hair-who-wore-it-best/)
-- [celebrity travel outfits](https://celebs.allwomenstalk.com/stylish-and-wearable-celebrity-airport-outfits-who-wore-it-best/)
-- [lady gaga seashell bikini](https://celebs.allwomenstalk.com/of-lady-gagas-best-looks-in/)
-- [celebrities in coats](https://celebs.allwomenstalk.com/celebrities-wearing-colourful-coats-who-wore-it-best/)
 - [short celebrity sequin dress](https://celebs.allwomenstalk.com/celebrities-wearing-sparkly-sequin-dresses-who-wore-it-best/)
-- [celebs in sweaters](https://celebs.allwomenstalk.com/celebrities-wearing-printed-sweaters-who-wore-it-best/)
+- [what color lipstick to wear with a navy blue dress](https://celebs.allwomenstalk.com/celebrities-wearing-navy-outfits-who-wore-it-best-2/)
 - [celebrity see through clothes](https://celebs.allwomenstalk.com/most-revealing-celebrity-outfits-from-the-red-carpet/)
+- [green haired celebrities](https://celebs.allwomenstalk.com/celebrities-with-rainbow-hair-who-wore-it-best/)
+- [celebrities in black turtlenecks](https://fashion.allwomenstalk.com/celebs-who-rocked-turtlenecks-who-wore-it-best/)
+- [celebrity travel outfits](https://celebs.allwomenstalk.com/stylish-and-wearable-celebrity-airport-outfits-who-wore-it-best/)
+- [celebrities in coats](https://celebs.allwomenstalk.com/celebrities-wearing-colourful-coats-who-wore-it-best/)
+- [celebs in sweaters](https://celebs.allwomenstalk.com/celebrities-wearing-printed-sweaters-who-wore-it-best/)
 - [characters that wear camo](https://celebs.allwomenstalk.com/celebrities-wearing-camouflage-prints-who-wore-it-best/)
+- [lady gaga seashell bikini](https://celebs.allwomenstalk.com/of-lady-gagas-best-looks-in/)
 - [10 Celebrities in Red Dresses  Who Wore It Best](https://celebs.allwomenstalk.com/celebrities-in-red-dresses-who-wore-it-best/)
 - [10 Celebrities in Chequered Clothes  Who Wore It B...](https://celebs.allwomenstalk.com/celebrities-in-chequered-clothes-who-wore-it-best/)
 

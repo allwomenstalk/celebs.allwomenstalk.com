@@ -3,7 +3,7 @@ title: "13 Celebrities Who Went to High School Together ..."
 description: "John Krasinski and B.j Novak; Cameron Diaz & Snoop Dogg; Baron Davis, Kate Hudson, and Cash Warren; Eddie Redmayne & Prince William; Freddie Prinze Jr & Neil Patrick Harris; More ..."
 url: "https://celebs.allwomenstalk.com/celebrities-who-went-to-high-school-together/"
 category: "celebs"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 13 Celebrities Who Went to High School Together ...
@@ -92,16 +92,16 @@ Well, there you have it. Surprisingly, these are just some of many awesome celeb
 
 ## Related Posts
 
-- [florence welch natural hair color](https://hair.allwomenstalk.com/these-fiery-celeb-redheads-will-finally-convince-you-to-take-the-plunge/)
-- [la maximalist eyeshadow primped previous](https://celebs.allwomenstalk.com/whoa-who-knew-these-celebs-are-the-same-age/)
-- [most freckles in the world](https://celebs.allwomenstalk.com/celebrities-with-freckles-thatll-make-you-embrace-your-own/)
-- [barrie james oneill height](https://celebs.allwomenstalk.com/celebrity-couples-who-split-in/)
-- [celebrities just like us](https://celebs.allwomenstalk.com/just-like-us-celebrity-couples-who-love-a-little-pda/)
 - [what would you do if you meet your favourite celeb...](https://celebs.allwomenstalk.com/tricks-that-might-help-you-meet-your-favorite-celebrity/)
 - [selena gomez no makeup selfie](https://celebs.allwomenstalk.com/what-do-these-celebrities-look-like-without-makeup/)
+- [barrie james oneill height](https://celebs.allwomenstalk.com/celebrity-couples-who-split-in/)
 - [celebrities with cat](https://celebs.allwomenstalk.com/celebrities-who-are-major-cat-ladies/)
+- [la maximalist eyeshadow primped previous](https://celebs.allwomenstalk.com/whoa-who-knew-these-celebs-are-the-same-age/)
 - [most influential teenagers](https://celebs.allwomenstalk.com/in-case-you-missed-it-these-are-times-most-influential-teens/)
+- [celebrities just like us](https://celebs.allwomenstalk.com/just-like-us-celebrity-couples-who-love-a-little-pda/)
+- [most freckles in the world](https://celebs.allwomenstalk.com/celebrities-with-freckles-thatll-make-you-embrace-your-own/)
 - [celebrities photobombing](https://celebs.allwomenstalk.com/celebrity-photobombs-thatll-make-you-lol/)
+- [florence welch natural hair color](https://hair.allwomenstalk.com/these-fiery-celeb-redheads-will-finally-convince-you-to-take-the-plunge/)
 - [7 Celebrities Who Dropped out of High School ...](https://allwomenstalk.com/8-celebrities-that-dropped-out-of-highschool/)
 - [17 Famous Celebrities Who Look Alike ...](https://allwomenstalk.com/celebrities-who-look-alike/)
 

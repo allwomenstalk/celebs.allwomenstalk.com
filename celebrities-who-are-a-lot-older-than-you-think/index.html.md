@@ -3,7 +3,7 @@ title: "15 Celebrities Who Are a Lot Older than You Think ..."
 description: "Alyson Hannigan; M.I.a; Gwen Stefani; Seth Green; Salma Hayek; More ..."
 url: "https://celebs.allwomenstalk.com/celebrities-who-are-a-lot-older-than-you-think/"
 category: "celebs"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 15 Celebrities Who Are a Lot Older than You Think ...
@@ -92,7 +92,7 @@ My absolute favorite actor - and he simply doesn't age. In fact, he might look b
 
 ![Sarah Hyland](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/Hz/rt/b29ePc2vGfxi4E91Otr4l7GZ_562x744.jpg)
 
-Her young looks mean she can play a high school girl on television, but in real life, Sarah is actually [23 years old](https://lifestyle.allwomenstalk.com/things-you-learn-when-hanging-out-with-a-23-year-old/). I sure hope her luck holds out because she's absolutely lovely!
+Her young looks mean she can play a high school girl on television, but in real life, Sarah is actually 23 years old. I sure hope her luck holds out because she's absolutely lovely!
 
 ## 15. Cress Williams
 
@@ -106,16 +106,16 @@ This article written in collaboration with editor, Eliza Martinez
 
 ## Related Posts
 
-- [tina fey daughter alice](https://celebs.allwomenstalk.com/celebrity-kids-who-looks-like-their-parents/)
-- [greedy famous person](https://celebs.allwomenstalk.com/celebrities-who-embody-the-7-deadly-sins/)
-- [bikram yoga celebrities](https://celebs.allwomenstalk.com/celebrities-who-love-yoga/)
 - [hottest greys anatomy characters](https://movies.allwomenstalk.com/hottest-guys-on-greys-anatomy-that-we-cant-help-but-love/)
-- [historic actors](https://movies.allwomenstalk.com/celebrities-who-played-historical-figures-perfectly/)
+- [brittany murphy deces](https://celebs.allwomenstalk.com/of-the-most-sudden-celebrity-deaths/)
 - [coolest celebrity tattoos](https://celebs.allwomenstalk.com/best-celebrity-tattoos-that-youre-sure-to-love/)
 - [celebs with big hair](https://celebs.allwomenstalk.com/celebrities-who-cut-their-long-hair-short/)
-- [british actors that do american accents](https://movies.allwomenstalk.com/british-actors-who-can-do-american-accents-perfectly/)
-- [brittany murphy deces](https://celebs.allwomenstalk.com/of-the-most-sudden-celebrity-deaths/)
+- [bikram yoga celebrities](https://celebs.allwomenstalk.com/celebrities-who-love-yoga/)
+- [greedy famous person](https://celebs.allwomenstalk.com/celebrities-who-embody-the-7-deadly-sins/)
+- [historic actors](https://movies.allwomenstalk.com/celebrities-who-played-historical-figures-perfectly/)
 - [hard actors to guess](https://movies.allwomenstalk.com/actors-who-turned-down-legendary-roles/)
+- [tina fey daughter alice](https://celebs.allwomenstalk.com/celebrity-kids-who-looks-like-their-parents/)
+- [british actors that do american accents](https://movies.allwomenstalk.com/british-actors-who-can-do-american-accents-perfectly/)
 - [25 Smartest Celebrities ...](https://celebs.allwomenstalk.com/25-smartest-celebrities/)
 - [8 Celebrities That Look Older than Their True Age ...](https://celebs.allwomenstalk.com/celebrities-that-look-older-than-their-true-age/)
 

@@ -3,7 +3,7 @@ title: "8 Stylish Celebrity Airport Outfits ..."
 description: "Rosie Huntington-Whiteley; Taylor Swift; Ashley Greene; Kirsten Dunst; Miranda Kerr; More ..."
 url: "https://celebs.allwomenstalk.com/stylish-celebrity-airport-outfits/"
 category: "celebs"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 8 Stylish Celebrity Airport Outfits ...
@@ -26,7 +26,7 @@ Taylor Swift works a casual travel look in a striped sweater, cropped jeans, and
 
 ![Ashley Greene](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/celebs/2012/06/3_ashley-greene_290x580.jpg)
 
-This outfit of jeans, camel cardigan and [nude pumps](https://shoes.allwomenstalk.com/best-nude-pumps/) is timeless. What I like about Ashley Greene’s celebrity airport style is that while she’s dressed up in designer threads, she also manages to keep it real by carrying a sporty gym bag. While I’m not too keen on the idea of trekking through airports in high heels, you could always keep them in your hand luggage to pop on at the last minute.
+This outfit of jeans, camel cardigan and nude pumps is timeless. What I like about Ashley Greene’s celebrity airport style is that while she’s dressed up in designer threads, she also manages to keep it real by carrying a sporty gym bag. While I’m not too keen on the idea of trekking through airports in high heels, you could always keep them in your hand luggage to pop on at the last minute.
 
 ## 4. Kirsten Dunst
 
@@ -64,15 +64,15 @@ Top Image Source: [pinterest.com](https://www.pinterest.com/pin/2274318499017010
 
 ## Related Posts
 
+- [iconic moments in fashion](https://fashion.allwomenstalk.com/incredible-iconic-fashion-moments/)
 - [fashionable video](https://fashion.allwomenstalk.com/top-fashion-videos-of-all-time/)
 - [french fashion icons](https://fashion.allwomenstalk.com/amazing-french-fashion-icons/)
-- [beach looks](https://fashion.allwomenstalk.com/beach-fashion-looks-to-steal/)
-- [plus size model curvy](https://fashion.allwomenstalk.com/gorgeous-plus-size-models/)
-- [popular fashion photographers](https://fashion.allwomenstalk.com/iconic-fashion-photographers/)
 - [great fashion designers](https://fashion.allwomenstalk.com/most-iconic-fashion-designers-of-all-time/)
-- [best street style photographers](https://fashion.allwomenstalk.com/amazing-street-style-photographers/)
 - [unconventional british fashion design](https://fashion.allwomenstalk.com/quirky-british-fashion-labels/)
-- [iconic moments in fashion](https://fashion.allwomenstalk.com/incredible-iconic-fashion-moments/)
+- [beach looks](https://fashion.allwomenstalk.com/beach-fashion-looks-to-steal/)
+- [popular fashion photographers](https://fashion.allwomenstalk.com/iconic-fashion-photographers/)
+- [plus size model curvy](https://fashion.allwomenstalk.com/gorgeous-plus-size-models/)
+- [best street style photographers](https://fashion.allwomenstalk.com/amazing-street-style-photographers/)
 - [uniquemovies](https://fashion.allwomenstalk.com/unique-movies-for-fashion-inspiration/)
 - [8 Celebrities with Excellent off-Duty Style ...](https://celebs.allwomenstalk.com/celebrities-with-excellent-off-duty-style/)
 - [8 Inspiring Street Fashion Looks ...](https://fashion.allwomenstalk.com/inspiring-street-fashion-looks/)

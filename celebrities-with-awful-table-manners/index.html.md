@@ -3,7 +3,7 @@ title: "8 Celebrities with Awful Table Manners ..."
 description: "Julia Roberts; Sean Penn; Ellen Barkin; Courtney Love; Gary Collins; More ..."
 url: "https://celebs.allwomenstalk.com/celebrities-with-awful-table-manners/"
 category: "celebs"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 8 Celebrities with Awful Table Manners ...
@@ -48,16 +48,16 @@ Top Photo Credit: [hrw worcester](https://www.flickr.com/photos/hrwworcester/326
 
 ## Related Posts
 
-- [inspiring celebrities](https://celebs.allwomenstalk.com/inspiring-celebrities-of/)
-- [lucille ball debra messing](https://celebs.allwomenstalk.com/celebs-that-rock-red-hair/)
-- [matt damon buzz cut](https://celebs.allwomenstalk.com/celebrity-haircuts-this-week/)
-- [4 Celebs That Shot to Fame after Cosmetic Surgery....](https://celebs.allwomenstalk.com/celebs-that-shot-to-fame-after-cosmetic-surgery/)
-- [katharine hepburn height weight](https://celebs.allwomenstalk.com/enduring-celebrity-myths/)
-- [7 Awesomely Impressive Celebrity Entrepreneurs ...](https://celebs.allwomenstalk.com/awesomely-impressive-celebrity-entrepreneurs/)
 - [weather girl wardrobe malfunctions](https://celebs.allwomenstalk.com/25-celebrity-wardrobe-malfunctions/)
-- [olivia wilde bangs](https://celebs.allwomenstalk.com/celebrities-proving-that-bangs-are-back/)
+- [inspiring celebrities](https://celebs.allwomenstalk.com/inspiring-celebrities-of/)
+- [katharine hepburn height weight](https://celebs.allwomenstalk.com/enduring-celebrity-myths/)
 - [christopher walken angelina jolie](https://celebs.allwomenstalk.com/surprising-music-video-stars/)
+- [olivia wilde bangs](https://celebs.allwomenstalk.com/celebrities-proving-that-bangs-are-back/)
 - [beautiful actress under 25](https://celebs.allwomenstalk.com/25-hottest-female-celebrities-under-25/)
+- [lucille ball debra messing](https://celebs.allwomenstalk.com/celebs-that-rock-red-hair/)
+- [4 Celebs That Shot to Fame after Cosmetic Surgery....](https://celebs.allwomenstalk.com/celebs-that-shot-to-fame-after-cosmetic-surgery/)
+- [7 Awesomely Impressive Celebrity Entrepreneurs ...](https://celebs.allwomenstalk.com/awesomely-impressive-celebrity-entrepreneurs/)
+- [matt damon buzz cut](https://celebs.allwomenstalk.com/celebrity-haircuts-this-week/)
 - [7 Celebrities with Addictions ...](https://celebs.allwomenstalk.com/celebrities-with-addictions/)
 - [8 Most down to Earth Celebrities ...](https://celebs.allwomenstalk.com/most-down-to-earth-celebrities/)
 

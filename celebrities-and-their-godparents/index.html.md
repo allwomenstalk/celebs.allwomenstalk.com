@@ -3,7 +3,7 @@ title: "7 Celebrities and Their Godparents ..."
 description: "Nicole Richie and Michael Jackson; Gwyneth Paltrow and Steven Spielberg; Drew Barrymore and Sophia Loren; Jake Gyllenhaal and Jamie Lee Curtis; Miley Cyrus and Dolly Parton; More ..."
 url: "https://celebs.allwomenstalk.com/celebrities-and-their-godparents/"
 category: "celebs"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 7 Celebrities and Their Godparents ...
@@ -59,15 +59,15 @@ Working in the same business really brings people together, which is why most of
 ## Related Posts
 
 - [brunette actress with big eyes](https://celebs.allwomenstalk.com/actresses-with-beautiful-eyes-that-mesmerize/)
-- [toby regbo shirtless](https://celebs.allwomenstalk.com/teen-celebrities-worth-fangirling-over/)
-- [sean faris and robbie amell](https://celebs.allwomenstalk.com/celebs-from-cws-arrow-that-are-social-on-twitter/)
+- [mean girls anniversary](https://celebs.allwomenstalk.com/celebs-who-celebrated-mean-girls-10-year-anniversary/)
+- [does will smith have dyslexia](https://celebs.allwomenstalk.com/famous-people-with-dyslexia/)
+- [tattoo celebrity male](https://celebs.allwomenstalk.com/hot-celebs-with-tattoos-who-look-great-shirtless/)
 - [anna chlumsky swimsuit](https://celebs.allwomenstalk.com/child-stars-and-where-they-are-now/)
 - [celebrities who started from the bottom](https://celebs.allwomenstalk.com/celebrities-who-started-from-the-bottom-and-rose-to-the-top/)
-- [miley cyrus coachella outfit](https://celebs.allwomenstalk.com/celebrities-who-looked-fab-at-coachella/)
-- [does will smith have dyslexia](https://celebs.allwomenstalk.com/famous-people-with-dyslexia/)
-- [mean girls anniversary](https://celebs.allwomenstalk.com/celebs-who-celebrated-mean-girls-10-year-anniversary/)
-- [tattoo celebrity male](https://celebs.allwomenstalk.com/hot-celebs-with-tattoos-who-look-great-shirtless/)
+- [sean faris and robbie amell](https://celebs.allwomenstalk.com/celebs-from-cws-arrow-that-are-social-on-twitter/)
 - [his three daughters cast](https://celebs.allwomenstalk.com/celebrities-with-more-than-3-children/)
+- [toby regbo shirtless](https://celebs.allwomenstalk.com/teen-celebrities-worth-fangirling-over/)
+- [miley cyrus coachella outfit](https://celebs.allwomenstalk.com/celebrities-who-looked-fab-at-coachella/)
 - [7 of My Favorite Celebrities ...](https://celebs.allwomenstalk.com/7-of-my-favorite-celebrities/)
 - [7 Most Recent Celebrity Moms ...](https://celebs.allwomenstalk.com/most-recent-celebrity-moms/)
 

@@ -3,7 +3,7 @@ title: "James Franco Interviews Stars for the VMAs ..."
 description: "Stay ahead, stay chic. Trusted guides on beauty, wellness, fashion, and everything that defines today's empowered woman."
 url: "https://celebs.allwomenstalk.com/james-franco-interviews-stars-for-the-vmas/"
 category: "celebs"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # James Franco Interviews Stars for the VMAs ...
@@ -14,16 +14,16 @@ Which part was your favorite?
 
 ## Related Posts
 
-- [america singer red dress](https://fashion.allwomenstalk.com/who-had-the-best-red-carpet-fashion-at-the-american-music-awards/)
-- [famous people nide](https://celebs.allwomenstalk.com/epic-naked-celeb-photos-whos-the-fairest-of-them-all/)
-- [alfonso ribeiro dwts winner](https://movies.allwomenstalk.com/dancing-with-the-stars-crowns-their-season-champs/)
-- [beyonce with a ponytail](https://hair.allwomenstalk.com/celebrities-wearing-ponytails-who-wore-it-best/)
 - [oprah met gala](https://fashion.allwomenstalk.com/a-look-at-oscar-de-la-rentas-most-iconic-red-carpet-gowns/)
 - [redheads in emerald green](https://hair.allwomenstalk.com/celebrities-with-red-hair-who-wore-it-best/)
+- [alfonso ribeiro dwts winner](https://movies.allwomenstalk.com/dancing-with-the-stars-crowns-their-season-champs/)
 - [emma watson white jumpsuit](https://fashion.allwomenstalk.com/red-carpet-looks-from-the-british-fashion-awards-whos-your-favorite/)
-- [fashion dresses 2014](https://fashion.allwomenstalk.com/ooh-la-la-here-are-the-best-red-carpet-dresses-of/)
-- [2015 oscar best movie nominees](https://movies.allwomenstalk.com/whos-your-money-on-of-the-top-oscar-nominees/)
 - [bafta 2015 nominations](https://movies.allwomenstalk.com/of-the-top-bafta-nominees-for/)
+- [2015 oscar best movie nominees](https://movies.allwomenstalk.com/whos-your-money-on-of-the-top-oscar-nominees/)
+- [beyonce with a ponytail](https://hair.allwomenstalk.com/celebrities-wearing-ponytails-who-wore-it-best/)
+- [famous people nide](https://celebs.allwomenstalk.com/epic-naked-celeb-photos-whos-the-fairest-of-them-all/)
+- [fashion dresses 2014](https://fashion.allwomenstalk.com/ooh-la-la-here-are-the-best-red-carpet-dresses-of/)
+- [america singer red dress](https://fashion.allwomenstalk.com/who-had-the-best-red-carpet-fashion-at-the-american-music-awards/)
 - [Seth Rogen Bares His Soul to Stern...](https://celebs.allwomenstalk.com/seth-rogen-bares-his-soul-to-stern/)
 - [Kate Winslets Hollywood Life ...](https://allwomenstalk.com/kate-winslets-hollywood-life/)
 

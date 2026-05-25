@@ -3,7 +3,7 @@ title: "8 Enduring Celebrity Myths ..."
 description: "Richard Gere; Marilyn Manson's Wonder Years; Marisa Tomei's Accidental Oscar; Walt Disney is a Popsicle; Mama Cass's Ham Sandwich; More ..."
 url: "https://celebs.allwomenstalk.com/enduring-celebrity-myths/"
 category: "celebs"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 8 Enduring Celebrity Myths ...
@@ -76,16 +76,16 @@ Top Photo Credit: [Iconista](https://www.flickr.com/photos/iconista/2931316986/)
 
 ## Related Posts
 
-- [matt damon buzz cut](https://celebs.allwomenstalk.com/celebrity-haircuts-this-week/)
-- [lucille ball debra messing](https://celebs.allwomenstalk.com/celebs-that-rock-red-hair/)
-- [weather girl wardrobe malfunctions](https://celebs.allwomenstalk.com/25-celebrity-wardrobe-malfunctions/)
-- [7 Awesomely Impressive Celebrity Entrepreneurs ...](https://celebs.allwomenstalk.com/awesomely-impressive-celebrity-entrepreneurs/)
 - [inspiring celebrities](https://celebs.allwomenstalk.com/inspiring-celebrities-of/)
 - [beautiful actress under 25](https://celebs.allwomenstalk.com/25-hottest-female-celebrities-under-25/)
-- [4 Celebs That Shot to Fame after Cosmetic Surgery....](https://celebs.allwomenstalk.com/celebs-that-shot-to-fame-after-cosmetic-surgery/)
-- [olivia wilde bangs](https://celebs.allwomenstalk.com/celebrities-proving-that-bangs-are-back/)
+- [weather girl wardrobe malfunctions](https://celebs.allwomenstalk.com/25-celebrity-wardrobe-malfunctions/)
+- [7 Awesomely Impressive Celebrity Entrepreneurs ...](https://celebs.allwomenstalk.com/awesomely-impressive-celebrity-entrepreneurs/)
 - [model off duty look](https://celebs.allwomenstalk.com/celebrities-with-excellent-off-duty-style/)
+- [4 Celebs That Shot to Fame after Cosmetic Surgery....](https://celebs.allwomenstalk.com/celebs-that-shot-to-fame-after-cosmetic-surgery/)
+- [lucille ball debra messing](https://celebs.allwomenstalk.com/celebs-that-rock-red-hair/)
 - [christopher walken angelina jolie](https://celebs.allwomenstalk.com/surprising-music-video-stars/)
+- [matt damon buzz cut](https://celebs.allwomenstalk.com/celebrity-haircuts-this-week/)
+- [olivia wilde bangs](https://celebs.allwomenstalk.com/celebrities-proving-that-bangs-are-back/)
 - [8 Surprisingly Good Books by Celebrities ...](https://celebs.allwomenstalk.com/surprisingly-good-books-by-celebrities/)
 - [8 Most down to Earth Celebrities ...](https://celebs.allwomenstalk.com/most-down-to-earth-celebrities/)
 

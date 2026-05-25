@@ -3,7 +3,7 @@ title: "Golden Globe 2011 Nominations ..."
 description: "Stay ahead, stay chic. Trusted guides on beauty, wellness, fashion, and everything that defines today's empowered woman."
 url: "https://celebs.allwomenstalk.com/golden-globe-nominations/"
 category: "celebs"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # Golden Globe 2011 Nominations ...
@@ -201,14 +201,14 @@ Cecil B. DeMille Lifetime Achievement Award: Robert De Niro
 
 ## Related Posts
 
-- [10 Golden Globes Looks for Less ...](https://celebs.allwomenstalk.com/golden-globes-looks-for-less/)
-- [most stylish actresses](https://celebs.allwomenstalk.com/most-stylish-female-celebrities-of/)
 - [The Red Carpet or just Another Day on the Job.](https://allwomenstalk.com/the-red-carpet-or-just-another-day-on-the-job/)
 - [vanity fair best dressed](https://celebs.allwomenstalk.com/people-who-made-it-on-vanity-fairs-best-dressed-list/)
-- [The Kings Speech Leads the SAG Nominations...](https://celebs.allwomenstalk.com/the-kings-speech-leads-the-sag-nominations/)
-- [emma watson harry potter premiere outfits](https://celebs.allwomenstalk.com/emma-watsons-red-carpet-looks-for-harry-potter/)
+- [most stylish actresses](https://celebs.allwomenstalk.com/most-stylish-female-celebrities-of/)
 - [Grammy 2011 Nominations: Eminems Leads the Way ...](https://celebs.allwomenstalk.com/grammy-nominations-eminems-leads-the-way/)
 - [25 Oscar Nominees Who Should Win This Year ...](https://bilbr.com/25-oscar-nominees-who-should-win-this-year/)
+- [10 Golden Globes Looks for Less ...](https://celebs.allwomenstalk.com/golden-globes-looks-for-less/)
+- [emma watson harry potter premiere outfits](https://celebs.allwomenstalk.com/emma-watsons-red-carpet-looks-for-harry-potter/)
+- [The Kings Speech Leads the SAG Nominations...](https://celebs.allwomenstalk.com/the-kings-speech-leads-the-sag-nominations/)
 - [iconic red carpet outfits](https://celebs.allwomenstalk.com/iconic-red-carpet-celebrity-looks/)
 - [The Oscar Race is on...](https://celebs.allwomenstalk.com/the-oscar-race-is-on/)
 - [10 Romantic Movies of 2011 ...](https://7fun.net/romantic-movies-of-2011/)

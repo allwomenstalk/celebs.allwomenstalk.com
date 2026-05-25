@@ -3,7 +3,7 @@ title: "10 Ugliest Celebrity Fashion Faux Pas of 2011 ..."
 description: "Katy Perry's Smurf Dress; Emma Stone's Hot Pink Disaster; Ginnifer Goodwin's Yellow Celebrity Fashion Faux Pas; Melissa George's Night Gown; Oliva Munn's Dotty Dress; More ..."
 url: "https://celebs.allwomenstalk.com/ugliest-celebrity-fashion-faux-pas-of/"
 category: "celebs"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 10 Ugliest Celebrity Fashion Faux Pas of 2011 ...
@@ -76,16 +76,16 @@ Top Image Source: [weheartit.com](https://weheartit.com/entry/12496968)
 
 ## Related Posts
 
+- [nf face makeup](https://celebs.allwomenstalk.com/celebrity-fashion-face-off-pick-your-winners/)
+- [iconic red carpet outfits](https://celebs.allwomenstalk.com/iconic-red-carpet-celebrity-looks/)
+- [The Kings Speech Leads the SAG Nominations...](https://celebs.allwomenstalk.com/the-kings-speech-leads-the-sag-nominations/)
 - [golden globes 2011](https://celebs.allwomenstalk.com/golden-globe-nominations/)
+- [Grammy 2011 Nominations: Eminems Leads the Way ...](https://celebs.allwomenstalk.com/grammy-nominations-eminems-leads-the-way/)
+- [vanity fair best dressed](https://celebs.allwomenstalk.com/people-who-made-it-on-vanity-fairs-best-dressed-list/)
 - [most stylish actresses](https://celebs.allwomenstalk.com/most-stylish-female-celebrities-of/)
+- [25 Oscar Nominees Who Should Win This Year ...](https://bilbr.com/25-oscar-nominees-who-should-win-this-year/)
 - [The Oscar Race is on...](https://celebs.allwomenstalk.com/the-oscar-race-is-on/)
 - [emma watson harry potter premiere outfits](https://celebs.allwomenstalk.com/emma-watsons-red-carpet-looks-for-harry-potter/)
-- [Grammy 2011 Nominations: Eminems Leads the Way ...](https://celebs.allwomenstalk.com/grammy-nominations-eminems-leads-the-way/)
-- [iconic red carpet outfits](https://celebs.allwomenstalk.com/iconic-red-carpet-celebrity-looks/)
-- [vanity fair best dressed](https://celebs.allwomenstalk.com/people-who-made-it-on-vanity-fairs-best-dressed-list/)
-- [nf face makeup](https://celebs.allwomenstalk.com/celebrity-fashion-face-off-pick-your-winners/)
-- [25 Oscar Nominees Who Should Win This Year ...](https://bilbr.com/25-oscar-nominees-who-should-win-this-year/)
-- [The Kings Speech Leads the SAG Nominations...](https://celebs.allwomenstalk.com/the-kings-speech-leads-the-sag-nominations/)
 - [Pick Worst Dressed at the Chanel FallWinter 2010-1...](https://celebs.allwomenstalk.com/chanel-fallwinter/)
 - [The Best Dressed Women of 2010 ...](https://celebs.allwomenstalk.com/the-best-dressed-women-of/)
 

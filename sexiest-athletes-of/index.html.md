@@ -3,7 +3,7 @@ title: "7 Sexiest Athletes of 2011 ..."
 description: "Johnny Weir; Anna Kournikova; Marlon Stockinger; Rachel Unitt; Vera Zvonareva; More ..."
 url: "https://celebs.allwomenstalk.com/sexiest-athletes-of/"
 category: "celebs"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 7 Sexiest Athletes of 2011 ...
@@ -57,15 +57,15 @@ Top Photo Credit: lh4.ggpht.com_
 ## Related Posts
 
 - [celebrity marriage proposals](https://celebs.allwomenstalk.com/inspiring-and-sweet-celebrity-marriage-proposals/)
-- [best celebrity diets](https://celebs.allwomenstalk.com/top-bizarre-celebrity-diets/)
-- [8 Celebrity Pictures to Enjoy Today ...](https://celebs.allwomenstalk.com/celebrity-pictures-to-enjoy-today/)
-- [down to earth actresses](https://celebs.allwomenstalk.com/most-down-to-earth-celebrities/)
-- [men who look better with age](https://celebs.allwomenstalk.com/celebrity-men-that-look-better-with-age/)
-- [famous people who smoke weed](https://celebs.allwomenstalk.com/celebrities-who-smoke-weed/)
-- [female celebrity smokers uk](https://celebs.allwomenstalk.com/women-celebrities-who-smoke/)
-- [7 Celebrities I Would like to Hang with ...](https://celebs.allwomenstalk.com/7-celebrities-i-would-like-to-hang-with/)
-- [celebrity wedding favors](https://celebs.allwomenstalk.com/celebrity-weddings-to-watch-for-in/)
 - [philantrophists](https://celebs.allwomenstalk.com/top-celebrity-philantrophists/)
+- [celebrity wedding favors](https://celebs.allwomenstalk.com/celebrity-weddings-to-watch-for-in/)
+- [famous people who smoke weed](https://celebs.allwomenstalk.com/celebrities-who-smoke-weed/)
+- [8 Celebrity Pictures to Enjoy Today ...](https://celebs.allwomenstalk.com/celebrity-pictures-to-enjoy-today/)
+- [7 Celebrities I Would like to Hang with ...](https://celebs.allwomenstalk.com/7-celebrities-i-would-like-to-hang-with/)
+- [female celebrity smokers uk](https://celebs.allwomenstalk.com/women-celebrities-who-smoke/)
+- [men who look better with age](https://celebs.allwomenstalk.com/celebrity-men-that-look-better-with-age/)
+- [down to earth actresses](https://celebs.allwomenstalk.com/most-down-to-earth-celebrities/)
+- [best celebrity diets](https://celebs.allwomenstalk.com/top-bizarre-celebrity-diets/)
 - [7 Inspiring Celebrities of 2011 ...](https://celebs.allwomenstalk.com/inspiring-celebrities-of/)
 - [7 Fashionable Celebrities to Watch in 2012 ...](https://celebs.allwomenstalk.com/fashionable-celebrities-to-watch-in/)
 

@@ -3,7 +3,7 @@ title: "The 20 Heartthrobs of the 90s We All Still Love ..."
 description: "Leonardo DiCaprio; Antonio Banderas; Matt Damon; Brad Pitt; Ben Affleck; More ..."
 url: "https://celebs.allwomenstalk.com/heartthrobs-of-the-1990s/"
 category: "celebs"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # The 20 Heartthrobs of the 90s We All Still Love ...
@@ -20,7 +20,7 @@ This multilingual, animal saving hunk was known for making his obsessive fangirl
 
 ![person, chin, forehead, professional, profession,](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/jd/u6/j102bnzo5ae9a372ea4e4839060004_600x857.jpg)
 
-Saving [pretty girls](https://beauty.allwomenstalk.com/secrets-that-pretty-girls-wont-tell-you/) and poor peasant men from the evil Spanish empire in Zorro, Antonio Banderas and his sexy Spanish accent and mysterious masked face made us curious about the man underneath the mask.
+Saving pretty girls and poor peasant men from the evil Spanish empire in Zorro, Antonio Banderas and his sexy Spanish accent and mysterious masked face made us curious about the man underneath the mask.
 
 ## 3. Matt Damon
 
@@ -133,15 +133,15 @@ Stunning blue eyes and a posh British accent, what could go wrong?
 ## Related Posts
 
 - [best mym models](https://inspiration.allwomenstalk.com/meet-your-model-exclusive-content-from-your-favourite-personalities/)
+- [robert downey jr oscar winner](https://movies.allwomenstalk.com/incredible-actors-who-are-yet-to-win-an-oscar/)
+- [laurence fishburne ex-wife](https://celebs.allwomenstalk.com/celebrity-couples-who-split-in-2018/)
+- [lake como celebrities](https://travel.allwomenstalk.com/where-celebrities-go-on-vacation/)
 - [wokest celebrities](https://celebs.allwomenstalk.com/who-are-the-most-charitable-celebrities/)
-- [greasy bear davis](https://allwomenstalk.com/hollywood-march-madness-nicole-v-paris-jacko-v-greasy-bear/)
 - [celebrities with assault charges](https://allwomenstalk.com/celebs-accused-with-charges-of-sexual-assault/)
 - [gal gadot brother](https://celebs.allwomenstalk.com/yaron-versano/)
 - [what toothpaste do celebrities use](https://beauty.allwomenstalk.com/perfect-ways-to-get-a-celebrity-smile/)
 - [brazilian asian baby](https://celebs.allwomenstalk.com/dont-hate-me-cause-im-cute-adorable-celeb-kids-we-love/)
-- [robert downey jr oscar winner](https://movies.allwomenstalk.com/incredible-actors-who-are-yet-to-win-an-oscar/)
-- [lake como celebrities](https://travel.allwomenstalk.com/where-celebrities-go-on-vacation/)
-- [laurence fishburne ex-wife](https://celebs.allwomenstalk.com/celebrity-couples-who-split-in-2018/)
+- [greasy bear davis](https://allwomenstalk.com/hollywood-march-madness-nicole-v-paris-jacko-v-greasy-bear/)
 - [10 Hottest Men in Hollywood ...](https://celebs.allwomenstalk.com/hottest-men-in-hollywood/)
 - [20 Cutest Celebrity Kids ...](https://allwomenstalk.com/20-cutest-celebrity-kids/)
 

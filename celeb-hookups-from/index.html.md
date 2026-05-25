@@ -3,7 +3,7 @@ title: "16 Celeb Hookups from 2012 ..."
 description: "Lea Michele & Cory Monteith; Adele & Simon Konecki; Michelle Williams & Jason Segel; Avril Lavigne & Chad Kroeger; Kim Kardashian & Kanye West; More ..."
 url: "https://celebs.allwomenstalk.com/celeb-hookups-from/"
 category: "celebs"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 16 Celeb Hookups from 2012 ...
@@ -78,16 +78,16 @@ Any of these hookups you loved, wish lasted, or wished you had never heard about
 
 ## Related Posts
 
+- [8 Shocking Celebrity Scandals from the past Year ....](https://celebs.allwomenstalk.com/shocking-celebrity-scandals-from-the-past-year/)
+- [riche le stylo emerald](https://movies.allwomenstalk.com/celebrities-created-by-reality-shows/)
+- [7 Things Celebs Buy That You Can Buy Too ...](https://celebs.allwomenstalk.com/things-celebs-buy-that-you-can-buy-too/)
+- [7 Celebrities with a Disorder ...](https://celebs.allwomenstalk.com/celebrities-with-a-disorder/)
+- [top celebrity chefs](https://movies.allwomenstalk.com/top-celebrity-chefs-i-cant-get-enough-of/)
 - [9 Stylish Celebrity Couples ...](https://celebs.allwomenstalk.com/stylish-celebrity-couples/)
 - [8 Shocking Celeb Stories from 2012 ...](https://celebs.allwomenstalk.com/shocking-celeb-stories-from/)
-- [7 Celebrities with a Disorder ...](https://celebs.allwomenstalk.com/celebrities-with-a-disorder/)
-- [10 Hottest Looking Celebrities on the Red Carpet ....](https://celebs.allwomenstalk.com/hottest-looking-celebrities-on-the-red-carpet/)
-- [riche le stylo emerald](https://movies.allwomenstalk.com/celebrities-created-by-reality-shows/)
-- [top celebrity chefs](https://movies.allwomenstalk.com/top-celebrity-chefs-i-cant-get-enough-of/)
-- [7 Things Celebs Buy That You Can Buy Too ...](https://celebs.allwomenstalk.com/things-celebs-buy-that-you-can-buy-too/)
 - [don draper vs harvey specter](https://movies.allwomenstalk.com/tv-characters-id-love-to-date/)
+- [10 Hottest Looking Celebrities on the Red Carpet ....](https://celebs.allwomenstalk.com/hottest-looking-celebrities-on-the-red-carpet/)
 - [7 Movie Stars That Started on TV ...](https://movies.allwomenstalk.com/movie-stars-that-started-on-tv/)
-- [8 Shocking Celebrity Scandals from the past Year ....](https://celebs.allwomenstalk.com/shocking-celebrity-scandals-from-the-past-year/)
 - [Top 8 Romantic Comedies of 2012 ...](https://movies.allwomenstalk.com/top-romantic-comedies-of-2012/)
 - [12 Hottest Actors from TV Shows ...](https://celebs.allwomenstalk.com/hottest-actors-from-tv-shows/)
 

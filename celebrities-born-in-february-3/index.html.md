@@ -3,7 +3,7 @@ title: "Celebs Born in February Part 3 of 4 ..."
 description: "Chris Farley (Feb. 15); Elizabeth Olsen (Feb. 16); Joseph Gordon-Levitt (Feb. 17); John Travolta (Feb. 18); Benicio Del Toro (Feb. 19); More ..."
 url: "https://celebs.allwomenstalk.com/celebrities-born-in-february-3/"
 category: "celebs"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # Celebs  Born in February Part 3 of 4 ...
@@ -56,16 +56,16 @@ The last part of this list, 22nd to 28th, will be posted soon.
 
 ## Related Posts
 
-- [90s heartthrobs actors](https://celebs.allwomenstalk.com/heartthrobs-of-the-1990s/)
-- [what toothpaste do celebrities use](https://beauty.allwomenstalk.com/perfect-ways-to-get-a-celebrity-smile/)
 - [laurence fishburne ex-wife](https://celebs.allwomenstalk.com/celebrity-couples-who-split-in-2018/)
-- [lake como celebrities](https://travel.allwomenstalk.com/where-celebrities-go-on-vacation/)
-- [robert downey jr oscar winner](https://movies.allwomenstalk.com/incredible-actors-who-are-yet-to-win-an-oscar/)
-- [celebrities with assault charges](https://allwomenstalk.com/celebs-accused-with-charges-of-sexual-assault/)
-- [best mym models](https://inspiration.allwomenstalk.com/meet-your-model-exclusive-content-from-your-favourite-personalities/)
-- [brazilian asian baby](https://celebs.allwomenstalk.com/dont-hate-me-cause-im-cute-adorable-celeb-kids-we-love/)
-- [wokest celebrities](https://celebs.allwomenstalk.com/who-are-the-most-charitable-celebrities/)
+- [what toothpaste do celebrities use](https://beauty.allwomenstalk.com/perfect-ways-to-get-a-celebrity-smile/)
 - [gal gadot brother](https://celebs.allwomenstalk.com/yaron-versano/)
+- [robert downey jr oscar winner](https://movies.allwomenstalk.com/incredible-actors-who-are-yet-to-win-an-oscar/)
+- [best mym models](https://inspiration.allwomenstalk.com/meet-your-model-exclusive-content-from-your-favourite-personalities/)
+- [wokest celebrities](https://celebs.allwomenstalk.com/who-are-the-most-charitable-celebrities/)
+- [lake como celebrities](https://travel.allwomenstalk.com/where-celebrities-go-on-vacation/)
+- [brazilian asian baby](https://celebs.allwomenstalk.com/dont-hate-me-cause-im-cute-adorable-celeb-kids-we-love/)
+- [celebrities with assault charges](https://allwomenstalk.com/celebs-accused-with-charges-of-sexual-assault/)
+- [90s heartthrobs actors](https://celebs.allwomenstalk.com/heartthrobs-of-the-1990s/)
 - [10 Amazing British Movie Stars ...](https://movies.allwomenstalk.com/amazing-british-movie-stars/)
 - [Top Celebrity Philantrophists ...](https://celebs.allwomenstalk.com/top-celebrity-philantrophists/)
 

@@ -3,7 +3,7 @@ title: "7 Degrassi Celebrities to Follow on Instagram ..."
 description: "Alexa Steele; Christine Prosperi; Luke Bilyk; Annie Clark; Jessica Tyler; More ..."
 url: "https://celebs.allwomenstalk.com/degrassi-celebrities-to-follow-on-instagram/"
 category: "celebs"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 7 Degrassi Celebrities to Follow on Instagram ...
@@ -56,16 +56,16 @@ Well, there you have it! These are just seven out of MANY awesome Degrassi celeb
 
 ## Related Posts
 
-- [celebrities suffering from anxiety](https://celebs.allwomenstalk.com/celebrities-with-anxiety-disorders/)
-- [njbc gossip girl](https://movies.allwomenstalk.com/most-adorable-on-screen-couples/)
-- [is ricco barrino related to fantasia](https://celebs.allwomenstalk.com/celebrities-who-are-related-to-someone-famous/)
 - [julia roberts jon bon jovi](https://celebs.allwomenstalk.com/celebrities-who-are-terrible-to-work-with/)
-- [sophie turner and taylor swift](https://celebs.allwomenstalk.com/celebrities-who-are-great-friends-with-taylor-swift/)
-- [celebrities nyc apartments](https://celebs.allwomenstalk.com/amazing-celebrity-apartments-you-need-to-see/)
 - [mickey mouse club mouseketeers list](https://celebs.allwomenstalk.com/former-disney-mouseketeers-who-now-made-names-for-themselves/)
+- [sophie turner and taylor swift](https://celebs.allwomenstalk.com/celebrities-who-are-great-friends-with-taylor-swift/)
+- [njbc gossip girl](https://movies.allwomenstalk.com/most-adorable-on-screen-couples/)
 - [celebrities who abandoned their child](https://celebs.allwomenstalk.com/celebrities-who-abandoned-fame/)
 - [surprising celebrity couples](https://celebs.allwomenstalk.com/celebrity-couples-that-you-never-knew-about/)
+- [celebrities suffering from anxiety](https://celebs.allwomenstalk.com/celebrities-with-anxiety-disorders/)
+- [celebrities nyc apartments](https://celebs.allwomenstalk.com/amazing-celebrity-apartments-you-need-to-see/)
 - [crazy actor transformations](https://movies.allwomenstalk.com/actors-who-transformed-their-bodies-for-a-movie-role/)
+- [is ricco barrino related to fantasia](https://celebs.allwomenstalk.com/celebrities-who-are-related-to-someone-famous/)
 - [7 Celebrities I Would like to Hang with ...](https://celebs.allwomenstalk.com/7-celebrities-i-would-like-to-hang-with/)
 - [7 of My Favorite Celebrities ...](https://celebs.allwomenstalk.com/7-of-my-favorite-celebrities/)
 

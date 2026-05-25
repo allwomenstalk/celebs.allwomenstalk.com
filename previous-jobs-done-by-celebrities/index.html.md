@@ -3,7 +3,7 @@ title: "8 Previous Jobs Done by Celebrities ..."
 description: "Whoopi Goldberg, Mortuary Beautician; Brad Pitt, Chicken Mascot for El Pollo Loco; Christopher Walken, Lion Tamer; Matthew McConaughey, Chicken Coop Cleaner; Gene Simmons, Elementary School Teacher; More ..."
 url: "https://celebs.allwomenstalk.com/previous-jobs-done-by-celebrities/"
 category: "celebs"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 8 Previous Jobs Done by Celebrities ...
@@ -62,16 +62,16 @@ Many of us have done some fairly unenjoyable jobs in our time, and celebrities a
 
 ## Related Posts
 
-- [most famous british actors](https://movies.allwomenstalk.com/underrated-british-actors-i-want-to-see-more-of/)
-- [good luck with bookin that stage](https://celebs.allwomenstalk.com/most-scandalous-celebrity-twitter-feuds-that-will-evoke-a-facepalm/)
-- [eva longoria and jennifer lopez](https://celebs.allwomenstalk.com/best-celebrity-friendships-that-didnt-last-forever/)
-- [wino forever meaning](https://celebs.allwomenstalk.com/worst-celebrity-tattoos-that-make-us-cringe/)
 - [blonde hair 50s](https://celebs.allwomenstalk.com/celebrities-with-trend-setting-hair-to-copy-happily/)
-- [browns chicken steve carell](https://celebs.allwomenstalk.com/old-commercials-with-now-famous-actors-that-will-blow-your-mind/)
+- [wino forever meaning](https://celebs.allwomenstalk.com/worst-celebrity-tattoos-that-make-us-cringe/)
+- [good luck with bookin that stage](https://celebs.allwomenstalk.com/most-scandalous-celebrity-twitter-feuds-that-will-evoke-a-facepalm/)
+- [most famous british actors](https://movies.allwomenstalk.com/underrated-british-actors-i-want-to-see-more-of/)
 - [famous duos characters](https://inspiration.allwomenstalk.com/top-american-tv-duos-of-all-time/)
-- [chace crawford liam hemsworth](https://celebs.allwomenstalk.com/hottest-guys-of-that-we-cant-stop-drooling-over/)
-- [why are celebrities stripping down](https://celebs.allwomenstalk.com/inspiring-celebrities-whove-stripped-off-for-charity/)
+- [browns chicken steve carell](https://celebs.allwomenstalk.com/old-commercials-with-now-famous-actors-that-will-blow-your-mind/)
 - [jon heder lds](https://celebs.allwomenstalk.com/famous-celebrities-with-a-twin-that-will-probably-surprise-you/)
+- [why are celebrities stripping down](https://celebs.allwomenstalk.com/inspiring-celebrities-whove-stripped-off-for-charity/)
+- [eva longoria and jennifer lopez](https://celebs.allwomenstalk.com/best-celebrity-friendships-that-didnt-last-forever/)
+- [chace crawford liam hemsworth](https://celebs.allwomenstalk.com/hottest-guys-of-that-we-cant-stop-drooling-over/)
 - [8 Celebrities Who Have Aged Beautifully ...](https://celebs.allwomenstalk.com/celebrities-who-have-aged-beautifully/)
 - [8 Random Celeb News to Check out ...](https://allwomenstalk.com/8-random-celeb-news-to-check-out/)
 

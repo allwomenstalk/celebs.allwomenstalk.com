@@ -3,7 +3,7 @@ title: "9 Celebrities Rocking the Classic White Shirt - Who Wore It Best?"
 description: "Julianne Hough; Nikki Reed; Cara Delevingne; Elizabeth Olsen; Elle Fanning; More ..."
 url: "https://celebs.allwomenstalk.com/celebrities-rocking-the-classic-white-shirt-who-wore-it-best/"
 category: "celebs"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 9 Celebrities Rocking the Classic White Shirt \- Who Wore It Best?
@@ -68,16 +68,16 @@ These are just some of the celebrities we’ve spotted wearing the classic white
 
 ## Related Posts
 
-- [wide leg jeans celebrity](https://celebs.allwomenstalk.com/celebrities-wearing-wide-leg-pants-who-wore-it-best/)
 - [wearing plaid](https://celebs.allwomenstalk.com/celebrities-wearing-plaid-who-wore-it-best/)
-- [tilda swinton style](https://celebs.allwomenstalk.com/of-tilda-swintons-best-looks/)
 - [celebrities wearing skirts](https://celebs.allwomenstalk.com/celebrities-wearing-skater-skirts-who-wore-it-best/)
+- [peplum top 2013](https://celebs.allwomenstalk.com/celebrities-wearing-peplum-who-wore-it-best/)
 - [striped t shirts](https://celebs.allwomenstalk.com/celebrities-wearing-a-striped-t-shirt-who-wore-it-best/)
 - [who wore it best](https://celebs.allwomenstalk.com/celebrities-wearing-navy-outfits-who-wore-it-best/)
+- [tilda swinton style](https://celebs.allwomenstalk.com/of-tilda-swintons-best-looks/)
 - [jt double denim](https://celebs.allwomenstalk.com/celebrities-wearing-double-denim-who-wore-it-best/)
-- [festival clothing 2013](https://celebs.allwomenstalk.com/great-celebrity-festival-outfits-from/)
-- [peplum top 2013](https://celebs.allwomenstalk.com/celebrities-wearing-peplum-who-wore-it-best/)
+- [wide leg jeans celebrity](https://celebs.allwomenstalk.com/celebrities-wearing-wide-leg-pants-who-wore-it-best/)
 - [tartan trousers womens](https://celebs.allwomenstalk.com/celebrities-wearing-the-tartan-trend-who-wore-it-best/)
+- [festival clothing 2013](https://celebs.allwomenstalk.com/great-celebrity-festival-outfits-from/)
 - [10 Celebrities in Chequered Clothes  Who Wore It B...](https://celebs.allwomenstalk.com/celebrities-in-chequered-clothes-who-wore-it-best/)
 - [10 Celebrities Wearing Yellow  Who Wore It Best](https://celebs.allwomenstalk.com/celebrities-wearing-yellow-who-wore-it-best/)
 
