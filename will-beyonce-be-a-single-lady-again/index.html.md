@@ -18,16 +18,16 @@ Whatever happens, we should only hope that they're both happy, and that little B
 
 ## Related Posts
 
-- [Chris Browns Pre-VMAs Party Got Dangerous ...](https://celebs.allwomenstalk.com/chris-browns-pre-vmas-party-got-dangerous/)
-- [Joan Rivers Had a Serious Health Scare ...](https://celebs.allwomenstalk.com/joan-rivers-had-a-serious-health-scare/)
-- [Robin Williams Daughter Has a Message for Women St...](https://inspiration.allwomenstalk.com/robin-williams-daughter-has-a-message-for-women-struggling-with-depression/)
-- [Potty-Mouth Princesses Break the Silence on Domest...](https://inspiration.allwomenstalk.com/potty-mouth-princesses-break-the-silence-on-domestic-violence/)
-- [Sorry Ladies Benedict Cumberbatch is Officially of...](https://celebs.allwomenstalk.com/sorry-ladies-benedict-cumberbatch-is-officially-off-the-market/)
-- [Brangelina Finally Make It Official ...](https://celebs.allwomenstalk.com/brangelina-finally-make-it-official/)
-- [Nick Cannon Wont Always Be Mariah Careys Baby ...](https://celebs.allwomenstalk.com/nick-cannon-wont-always-be-mariah-careys-baby/)
-- [Brittany Murphy Biopic Officially Happening ...](https://celebs.allwomenstalk.com/brittany-murphy-biopic-officially-happening/)
-- [stylo violet amour](https://lifestyle.allwomenstalk.com/a-mother-was-reunited-with-her-baby-in-the-nice-attack-after-a-facebook-post-when-viral/)
 - [Jennifer Aniston  Lisa Kudrow Battle It out on cel...](https://funny.allwomenstalk.com/watch-jennifer-aniston-vs-lisa-kudrow-in-celebrity-curse-off/)
+- [Brangelina Finally Make It Official ...](https://celebs.allwomenstalk.com/brangelina-finally-make-it-official/)
+- [Brittany Murphy Biopic Officially Happening ...](https://celebs.allwomenstalk.com/brittany-murphy-biopic-officially-happening/)
+- [Robin Williams Daughter Has a Message for Women St...](https://inspiration.allwomenstalk.com/robin-williams-daughter-has-a-message-for-women-struggling-with-depression/)
+- [Sorry Ladies Benedict Cumberbatch is Officially of...](https://celebs.allwomenstalk.com/sorry-ladies-benedict-cumberbatch-is-officially-off-the-market/)
+- [Nick Cannon Wont Always Be Mariah Careys Baby ...](https://celebs.allwomenstalk.com/nick-cannon-wont-always-be-mariah-careys-baby/)
+- [Potty-Mouth Princesses Break the Silence on Domest...](https://inspiration.allwomenstalk.com/potty-mouth-princesses-break-the-silence-on-domestic-violence/)
+- [Chris Browns Pre-VMAs Party Got Dangerous ...](https://celebs.allwomenstalk.com/chris-browns-pre-vmas-party-got-dangerous/)
+- [stylo violet amour](https://lifestyle.allwomenstalk.com/a-mother-was-reunited-with-her-baby-in-the-nice-attack-after-a-facebook-post-when-viral/)
+- [Joan Rivers Had a Serious Health Scare ...](https://celebs.allwomenstalk.com/joan-rivers-had-a-serious-health-scare/)
 - [Britney Spears Wont Need Sheryl Crows Help ...](https://allwomenstalk.com/britney-spears-wont-need-sheryl-crows-help/)
 - [Britneys Lost the Plot ...](https://allwomenstalk.com/britneys-lost-the-plot/)
 

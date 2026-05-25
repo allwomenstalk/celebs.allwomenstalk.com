@@ -42,16 +42,16 @@ Well, there you have it. These are just seven out of many awesome reasons to lov
 
 ## Related Posts
 
-- [shah of sunset asa](https://movies.allwomenstalk.com/reasons-to-watch-shahs-of-sunset/)
 - [whitney nicole richie](https://celebs.allwomenstalk.com/awesome-reasons-to-love-nicole-richie/)
-- [hank royal pains](https://movies.allwomenstalk.com/reasons-to-watch-royal-pains-this-summer/)
 - [what has emilie de ravin been in](https://celebs.allwomenstalk.com/fantastic-reasons-to-love-emilie-de-ravin/)
-- [jennifer morrison hair](https://celebs.allwomenstalk.com/awesome-reasons-to-love-jennifer-morrison/)
-- [rachel bilson shows](https://celebs.allwomenstalk.com/awesome-reasons-to-love-rachel-bilson/)
-- [where can u watch maleficent](https://movies.allwomenstalk.com/reasons-to-watch-maleficent-right-away/)
-- [define bibliophile](https://love.allwomenstalk.com/sweet-reasons-to-date-a-bibliophile/)
-- [tv series zombie](https://movies.allwomenstalk.com/reasons-why-the-walking-dead-is-the-best-zombie-series-of-recent-times/)
 - [melissa mccarthy curly hair](https://celebs.allwomenstalk.com/reasons-melissa-mccarthy-is-an-amazing-role-model/)
+- [rachel bilson shows](https://celebs.allwomenstalk.com/awesome-reasons-to-love-rachel-bilson/)
+- [define bibliophile](https://love.allwomenstalk.com/sweet-reasons-to-date-a-bibliophile/)
+- [where can u watch maleficent](https://movies.allwomenstalk.com/reasons-to-watch-maleficent-right-away/)
+- [shah of sunset asa](https://movies.allwomenstalk.com/reasons-to-watch-shahs-of-sunset/)
+- [jennifer morrison hair](https://celebs.allwomenstalk.com/awesome-reasons-to-love-jennifer-morrison/)
+- [hank royal pains](https://movies.allwomenstalk.com/reasons-to-watch-royal-pains-this-summer/)
+- [tv series zombie](https://movies.allwomenstalk.com/reasons-why-the-walking-dead-is-the-best-zombie-series-of-recent-times/)
 - [10 Reasons to Love Jennifer Aniston ...](https://allwomenstalk.com/10-reasons-to-love-jennifer-aniston/)
 - [10 Reasons to Love Kate Winslet ...](https://allwomenstalk.com/10-reasons-to-love-kate-winslet/)
 

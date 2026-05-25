@@ -56,16 +56,16 @@ What makes these celebs so great for hair inspiration is that they all use their
 
 ## Related Posts
 
+- [kijjimb](https://celebs.allwomenstalk.com/of-the-cutest-celeb-throwback-photos/)
+- [celebrities who are also artists](https://celebs.allwomenstalk.com/celebrities-who-are-also-artists/)
+- [movies actors regret](https://movies.allwomenstalk.com/actors-who-regret-their-roles/)
+- [celebs on broadway](https://celebs.allwomenstalk.com/celebs-who-are-heading-to-broadway-this-year/)
+- [hollywood bachelors](https://celebs.allwomenstalk.com/of-hollywoods-hottest-bachelors-and-bachelorettes/)
+- [celebrity ad campaigns](https://fashion.allwomenstalk.com/amazing-celebrity-ad-campaigns-that-we-love/)
+- [javier bardem and jeffrey dean morgan meet](https://celebs.allwomenstalk.com/celebrity-couples-who-look-alike/)
 - [actors who havent won an oscar](https://movies.allwomenstalk.com/amazing-actors-who-are-yet-to-win-an-oscar/)
 - [what instruments can taylor swift play](https://music.allwomenstalk.com/pop-stars-who-can-also-play-an-instrument/)
-- [javier bardem and jeffrey dean morgan meet](https://celebs.allwomenstalk.com/celebrity-couples-who-look-alike/)
-- [movies actors regret](https://movies.allwomenstalk.com/actors-who-regret-their-roles/)
 - [lisa kudrow iq](https://celebs.allwomenstalk.com/celebrities-who-are-more-intelligent-than-you-think/)
-- [celebrity ad campaigns](https://fashion.allwomenstalk.com/amazing-celebrity-ad-campaigns-that-we-love/)
-- [celebs on broadway](https://celebs.allwomenstalk.com/celebs-who-are-heading-to-broadway-this-year/)
-- [kijjimb](https://celebs.allwomenstalk.com/of-the-cutest-celeb-throwback-photos/)
-- [hollywood bachelors](https://celebs.allwomenstalk.com/of-hollywoods-hottest-bachelors-and-bachelorettes/)
-- [celebrities who are also artists](https://celebs.allwomenstalk.com/celebrities-who-are-also-artists/)
 - [7 Funkiest Celebrity Hairstyles ...](https://celebs.allwomenstalk.com/7-funkiest-celebrity-hairstyles/)
 - [8 Sexiest Badass Celebrity Hair Styles ...](https://celebs.allwomenstalk.com/sexiest-badass-celebrity-hair-styles/)
 

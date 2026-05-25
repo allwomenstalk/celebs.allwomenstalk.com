@@ -56,16 +56,16 @@ Well, there you have it! These are just seven out of many of Lorde's best looks 
 
 ## Related Posts
 
-- [paris color stylo hollywood icon](https://fashion.allwomenstalk.com/of-olivia-palermos-best-looks-that-prove-shes-a-style-icon/)
-- [sibling knitwear](https://streetstyle.allwomenstalk.com/fashion-trends-that-wouldnt-exist-without-street-style-blogs/)
-- [reese witherspoons styles](https://celebs.allwomenstalk.com/things-to-adore-about-reese-witherspoons-style/)
-- [olivia pope white suit](https://fashion.allwomenstalk.com/of-olivia-popes-best-looks/)
-- [christian dior fall 2005](https://fashion.allwomenstalk.com/jaw-dropping-fashion-show-sets/)
 - [miranda kerr stockings](https://streetstyle.allwomenstalk.com/streetstyle-looks-from-miranda-kerr-to-recreate/)
+- [gossip girl fashion serena](https://streetstyle.allwomenstalk.com/streetstyle-looks-from-gossip-girl-to-recreate/)
+- [christian dior fall 2005](https://fashion.allwomenstalk.com/jaw-dropping-fashion-show-sets/)
+- [cool clothes for musicians](https://fashion.allwomenstalk.com/musicians-with-their-own-clothing-lines/)
+- [paris color stylo hollywood icon](https://fashion.allwomenstalk.com/of-olivia-palermos-best-looks-that-prove-shes-a-style-icon/)
+- [reese witherspoons styles](https://celebs.allwomenstalk.com/things-to-adore-about-reese-witherspoons-style/)
 - [demi lovato up skirt](https://streetstyle.allwomenstalk.com/cool-street-style-looks-from-demi-lovato-to-recreate/)
 - [selena gomez simple outfits](https://streetstyle.allwomenstalk.com/amazing-street-style-looks-from-selena-gomez-to-recreate/)
-- [gossip girl fashion serena](https://streetstyle.allwomenstalk.com/streetstyle-looks-from-gossip-girl-to-recreate/)
-- [cool clothes for musicians](https://fashion.allwomenstalk.com/musicians-with-their-own-clothing-lines/)
+- [olivia pope white suit](https://fashion.allwomenstalk.com/of-olivia-popes-best-looks/)
+- [sibling knitwear](https://streetstyle.allwomenstalk.com/fashion-trends-that-wouldnt-exist-without-street-style-blogs/)
 - [7 of the Hottest High-Waisted Looks around ...](https://allwomenstalk.com/7-of-the-hottest-high-waisted-looks-around/)
 - [7 Unlikely Style Icons ...](https://allwomenstalk.com/7-unlikely-style-icons/)
 

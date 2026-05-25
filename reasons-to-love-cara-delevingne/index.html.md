@@ -56,16 +56,16 @@ Cara, Cara, Cara, how are you so bloody cool? Seriously, I think I’ve started 
 
 ## Related Posts
 
-- [7 Striking Reasons to Watch Revenge ...](https://movies.allwomenstalk.com/striking-reasons-to-watch-revenge/)
-- [reasons to go to barcelona](https://travel.allwomenstalk.com/wonderful-reasons-to-love-barcelona/)
-- [mila kunis personality type](https://celebs.allwomenstalk.com/reasons-ashton-kutcher-and-mila-kunis-are-the-perfect-couple/)
-- [7 Reasons to Be Excited for the Entourage Film ...](https://movies.allwomenstalk.com/reasons-to-be-excited-for-the-entourage-film/)
-- [girls hbo](https://movies.allwomenstalk.com/awesome-reasons-to-watch-hbos-girls/)
-- [dr .oz](https://celebs.allwomenstalk.com/understandable-reasons-why-we-love-dr-oz/)
 - [7 Reasons to Be Excited about ABCs Resurrection .....](https://movies.allwomenstalk.com/reasons-to-be-excited-about-abcs-resurrection/)
-- [7 Reasons to Get Excited for Pitch Perfect 2 ...](https://movies.allwomenstalk.com/reasons-to-get-excited-for-pitch-perfect-2/)
-- [loreal riche le eye garnet](https://travel.allwomenstalk.com/positive-things-to-love-about-the-midwest/)
+- [reasons to go to barcelona](https://travel.allwomenstalk.com/wonderful-reasons-to-love-barcelona/)
+- [girls hbo](https://movies.allwomenstalk.com/awesome-reasons-to-watch-hbos-girls/)
 - [7 Reasons Why Google Glass is Amazing ...](https://gadgets.allwomenstalk.com/reasons-why-google-glass-is-amazing/)
+- [7 Reasons to Get Excited for Pitch Perfect 2 ...](https://movies.allwomenstalk.com/reasons-to-get-excited-for-pitch-perfect-2/)
+- [7 Reasons to Be Excited for the Entourage Film ...](https://movies.allwomenstalk.com/reasons-to-be-excited-for-the-entourage-film/)
+- [loreal riche le eye garnet](https://travel.allwomenstalk.com/positive-things-to-love-about-the-midwest/)
+- [7 Striking Reasons to Watch Revenge ...](https://movies.allwomenstalk.com/striking-reasons-to-watch-revenge/)
+- [mila kunis personality type](https://celebs.allwomenstalk.com/reasons-ashton-kutcher-and-mila-kunis-are-the-perfect-couple/)
+- [dr .oz](https://celebs.allwomenstalk.com/understandable-reasons-why-we-love-dr-oz/)
 - [7 Reasons I Adore Lady Gaga ...](https://celebs.allwomenstalk.com/7-reasons-i-adore-lady-gaga/)
 - [10 Reasons to Love Kate Winslet ...](https://allwomenstalk.com/10-reasons-to-love-kate-winslet/)
 

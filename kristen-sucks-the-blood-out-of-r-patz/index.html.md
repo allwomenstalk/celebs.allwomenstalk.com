@@ -18,16 +18,16 @@ Glad to know that it was nothing more than a lovers' spat and also that beneath 
 
 ## Related Posts
 
-- [Kyle Richards Not Sure about Being a Housewife](https://celebs.allwomenstalk.com/kyle-richards-not-sure-about-being-a-housewife/)
-- [Howard K Stern Freed by the Law ...](https://celebs.allwomenstalk.com/howard-k-stern-freed-by-the-law/)
-- [Courteney Proud of David for Checking into Rehab.....](https://celebs.allwomenstalk.com/courteney-proud-of-david-for-checking-into-rehab/)
-- [Michael Moore Plays Hero to WikiLeaks Cofounder...](https://celebs.allwomenstalk.com/michael-moore-plays-hero-to-wikileaks-cofounder/)
-- [daughter wedgie](https://celebs.allwomenstalk.com/mark-wahlberg-to-give-bieber-a-wedgie/)
-- [claire miley](https://celebs.allwomenstalk.com/miley-sorry-for-not-being-a-better-role-model/)
-- [twitter leann rimes](https://celebs.allwomenstalk.com/leann-rimes-cibrian-tweets-her-happiness/)
-- [Britney Tweets about Jasons Beatings ...](https://celebs.allwomenstalk.com/britney-tweets-about-jasons-beatings/)
-- [LeAnn  Eddie Not Allowed to Party....](https://celebs.allwomenstalk.com/leann-eddie-not-allowed-to-party/)
 - [take a risk chris brown](https://celebs.allwomenstalk.com/chris-brown-to-collaborate-with-justin-bieber/)
+- [Kyle Richards Not Sure about Being a Housewife](https://celebs.allwomenstalk.com/kyle-richards-not-sure-about-being-a-housewife/)
+- [twitter leann rimes](https://celebs.allwomenstalk.com/leann-rimes-cibrian-tweets-her-happiness/)
+- [Courteney Proud of David for Checking into Rehab.....](https://celebs.allwomenstalk.com/courteney-proud-of-david-for-checking-into-rehab/)
+- [daughter wedgie](https://celebs.allwomenstalk.com/mark-wahlberg-to-give-bieber-a-wedgie/)
+- [LeAnn  Eddie Not Allowed to Party....](https://celebs.allwomenstalk.com/leann-eddie-not-allowed-to-party/)
+- [Britney Tweets about Jasons Beatings ...](https://celebs.allwomenstalk.com/britney-tweets-about-jasons-beatings/)
+- [Michael Moore Plays Hero to WikiLeaks Cofounder...](https://celebs.allwomenstalk.com/michael-moore-plays-hero-to-wikileaks-cofounder/)
+- [claire miley](https://celebs.allwomenstalk.com/miley-sorry-for-not-being-a-better-role-model/)
+- [Howard K Stern Freed by the Law ...](https://celebs.allwomenstalk.com/howard-k-stern-freed-by-the-law/)
 - [A Biography on Kristen Stewart](https://twilight.allwomenstalk.com/a-biography-on-kristen-stewart/)
 - [MUST KNOW: Robert Pattinson and Kristen Stewart Le...](https://twilight.allwomenstalk.com/must-know-robert-pattinson-and-kristen-stewart-leave-the-love-nest/)
 

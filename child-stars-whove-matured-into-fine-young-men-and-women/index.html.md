@@ -56,15 +56,15 @@ The list of former child stars who have matured as fine men and women is longer.
 
 ## Related Posts
 
-- [Happy Tuesday Heres What Celebs Posted Today](https://celebs.allwomenstalk.com/happy-tuesday-heres-what-celebs-posted-today/)
-- [TBT Wrap-up: What Celebrities Posted This Week](https://celebs.allwomenstalk.com/tbt-wrap-up-what-celebrities-posted-this-week/)
-- [Fan-girling Mania: Celebrities do It Too](https://celebs.allwomenstalk.com/fan-girling-mania-celebrities-do-it-too/)
-- [These Popular Celebrities Are Also Best Selling Au...](https://celebs.allwomenstalk.com/celebrities-who-are-best-selling-authors/)
-- [Todays Wrap up: What Celebrities Posted on Instagr...](https://celebs.allwomenstalk.com/todays-wrap-up-what-celebrities-posted-on-instagram/)
-- [Todays Roundup: What Celebrities Posted on Instagr...](https://celebs.allwomenstalk.com/todays-roundup-what-celebrities-posted-on-instagram/)
 - [27 celebrities that everyone agrees are impossible...](https://celebs.allwomenstalk.com/these-celebs-are-just-impossible-to-hate/)
-- [7 Iconic Personalities in Asian American Culture ....](https://celebs.allwomenstalk.com/iconic-personalities-in-asian-american-culture/)
+- [Happy Tuesday Heres What Celebs Posted Today](https://celebs.allwomenstalk.com/happy-tuesday-heres-what-celebs-posted-today/)
+- [Fan-girling Mania: Celebrities do It Too](https://celebs.allwomenstalk.com/fan-girling-mania-celebrities-do-it-too/)
+- [Todays Roundup: What Celebrities Posted on Instagr...](https://celebs.allwomenstalk.com/todays-roundup-what-celebrities-posted-on-instagram/)
+- [Todays Wrap up: What Celebrities Posted on Instagr...](https://celebs.allwomenstalk.com/todays-wrap-up-what-celebrities-posted-on-instagram/)
+- [TBT Wrap-up: What Celebrities Posted This Week](https://celebs.allwomenstalk.com/tbt-wrap-up-what-celebrities-posted-this-week/)
+- [These Popular Celebrities Are Also Best Selling Au...](https://celebs.allwomenstalk.com/celebrities-who-are-best-selling-authors/)
 - [Chris Pratt Continues Being Awesome ...](https://celebs.allwomenstalk.com/chris-pratt-continues-being-awesome/)
+- [7 Iconic Personalities in Asian American Culture ....](https://celebs.allwomenstalk.com/iconic-personalities-in-asian-american-culture/)
 - [Interview Magazine Spotlights 6 Stars on September...](https://celebs.allwomenstalk.com/interview-magazine-spotlights-stars-on-september-cover/)
 - [8 Celebrities That Look Older than Their True Age ...](https://celebs.allwomenstalk.com/celebrities-that-look-older-than-their-true-age/)
 - [8 Celebrities Who Have Aged Beautifully ...](https://celebs.allwomenstalk.com/celebrities-who-have-aged-beautifully/)

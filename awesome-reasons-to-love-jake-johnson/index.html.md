@@ -42,16 +42,16 @@ Well, there you have it. These are just seven out of MANY awesome reasons to lov
 
 ## Related Posts
 
+- [is dolly parton a nice person](https://celebs.allwomenstalk.com/surprising-reasons-to-admire-dolly-parton/)
+- [agents of shield first episode](https://movies.allwomenstalk.com/reasons-why-marvel-agents-of-shield-is-the-greatest-show/)
+- [chloe moretz smoking](https://celebs.allwomenstalk.com/fantastic-reasons-to-love-chloe-moretz/)
+- [alexz](https://celebs.allwomenstalk.com/cool-reasons-to-love-alexz-johnson/)
+- [phoebe tonkin skincare](https://celebs.allwomenstalk.com/awesome-reasons-to-love-phoebe-tonkin/)
 - [why are vampires popular](https://movies.allwomenstalk.com/reasons-why-we-love-vampires/)
 - [is twd a good show](https://movies.allwomenstalk.com/reasons-to-watch-the-walking-dead/)
-- [is dolly parton a nice person](https://celebs.allwomenstalk.com/surprising-reasons-to-admire-dolly-parton/)
-- [two kinds amy tan story](https://books.allwomenstalk.com/reasons-to-read-amy-tan/)
 - [stephen fry prison sentence](https://celebs.allwomenstalk.com/reasons-to-love-stephen-fry/)
-- [phoebe tonkin skincare](https://celebs.allwomenstalk.com/awesome-reasons-to-love-phoebe-tonkin/)
 - [where to watch riot](https://movies.allwomenstalk.com/awesome-reasons-to-watch-riot-on-fox/)
-- [chloe moretz smoking](https://celebs.allwomenstalk.com/fantastic-reasons-to-love-chloe-moretz/)
-- [agents of shield first episode](https://movies.allwomenstalk.com/reasons-why-marvel-agents-of-shield-is-the-greatest-show/)
-- [alexz](https://celebs.allwomenstalk.com/cool-reasons-to-love-alexz-johnson/)
+- [two kinds amy tan story](https://books.allwomenstalk.com/reasons-to-read-amy-tan/)
 - [5 Reasons to Love Edward ...](https://twilight.allwomenstalk.com/5-reasons-to-love-edward/)
 - [5 Reasons to Love Your Vampire Boyfriend ...](https://twilight.allwomenstalk.com/5-reasons-to-love-your-vampire-boyfriend/)
 

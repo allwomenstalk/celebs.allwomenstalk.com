@@ -42,16 +42,16 @@ Ultimately, celebrities are people just like the rest of us; they just happen to
 
 ## Related Posts
 
-- [celebrities with criminal records](https://celebs.allwomenstalk.com/celebrities-with-criminal-records-before-making-it-big/)
-- [hollywood homewreckers](https://celebs.allwomenstalk.com/most-notorious-home-wreckers-in-hollywood/)
 - [fit blonde actresses](https://celebs.allwomenstalk.com/hottest-blonde-celebrities-from-yesterday-and-today/)
-- [all blonde dreads](https://celebs.allwomenstalk.com/fierce-celebrities-with-dreadlocks-who-rocked-that-look/)
-- [images of celebrities](https://celebs.allwomenstalk.com/stunning-celebrity-black-white-photos/)
+- [hollywood homewreckers](https://celebs.allwomenstalk.com/most-notorious-home-wreckers-in-hollywood/)
 - [fit celeb](https://celebs.allwomenstalk.com/fit-celebrities-wholl-inspire-you-this-summer/)
+- [images of celebrities](https://celebs.allwomenstalk.com/stunning-celebrity-black-white-photos/)
+- [celebrities with criminal records](https://celebs.allwomenstalk.com/celebrities-with-criminal-records-before-making-it-big/)
+- [all blonde dreads](https://celebs.allwomenstalk.com/fierce-celebrities-with-dreadlocks-who-rocked-that-look/)
 - [pale skin women](https://celebs.allwomenstalk.com/beautiful-pale-skinned-celebrities-who-embrace-their-look/)
-- [actresses of the silver screen](https://movies.allwomenstalk.com/totally-ace-actors-from-scandinavia/)
 - [funny impersonations to do](https://celebs.allwomenstalk.com/funniest-celebrity-impersonations-that-will-make-you-roar-with-laughter/)
 - [celebs board](https://celebs.allwomenstalk.com/celebrity-pinterest-boards-youll-want-to-follow/)
+- [actresses of the silver screen](https://movies.allwomenstalk.com/totally-ace-actors-from-scandinavia/)
 - [5 Reasons a Twilight Obsession is Not Good ...](https://twilight.allwomenstalk.com/5-reasons-a-twilight-obsession-is-not-good/)
 - [7 Reasons to Ignore Advice on Parenting ...](https://parenting.allwomenstalk.com/7-reasons-to-ignore-advice-on-parenting/)
 

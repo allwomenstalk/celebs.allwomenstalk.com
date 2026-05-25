@@ -28,16 +28,16 @@ Let's just hope all of this gets laid to rest at the earliest.
 
 ## Related Posts
 
+- [Johnny Never to Marry Vanessa ...](https://celebs.allwomenstalk.com/johnny-never-to-marry-vanessa/)
+- [Ashley Judd Now Treads a Little More Carefully](https://celebs.allwomenstalk.com/ashley-judd-rape-culture-apology/)
 - [Britney Tweets about Jasons Beatings ...](https://celebs.allwomenstalk.com/britney-tweets-about-jasons-beatings/)
 - [Elton John Surprised by His Royal Invite](https://celebs.allwomenstalk.com/elton-john-surprised-by-his-royal-invite/)
-- [Fuck You Bitch](https://allwomenstalk.com/fuck-you-bitch-2/)
-- [Johnny Never to Marry Vanessa ...](https://celebs.allwomenstalk.com/johnny-never-to-marry-vanessa/)
+- [wedding lauren miller rogen](https://celebs.allwomenstalk.com/seth-rogen-bares-his-soul-to-stern/)
 - [LeAnn  Eddie Not Allowed to Party....](https://celebs.allwomenstalk.com/leann-eddie-not-allowed-to-party/)
 - [twitter leann rimes](https://celebs.allwomenstalk.com/leann-rimes-cibrian-tweets-her-happiness/)
 - [kate michelman](https://allwomenstalk.com/i-really-really-hope-that-kate-michelman-doesnt-run-for-the-senate-in-pennsylvania/)
-- [Ashley Judd Now Treads a Little More Carefully](https://celebs.allwomenstalk.com/ashley-judd-rape-culture-apology/)
 - [Michael Moore Plays Hero to WikiLeaks Cofounder...](https://celebs.allwomenstalk.com/michael-moore-plays-hero-to-wikileaks-cofounder/)
-- [wedding lauren miller rogen](https://celebs.allwomenstalk.com/seth-rogen-bares-his-soul-to-stern/)
+- [Fuck You Bitch](https://allwomenstalk.com/fuck-you-bitch-2/)
 - [Larry King Live Ends after 25 Years ...](https://celebs.allwomenstalk.com/larry-king-live-ends-after-25-years/)
 - [Kathy Griffin Escapes Plane Crash](https://allwomenstalk.com/kathy-griffin-escapes-plane-crash/)
 

@@ -78,16 +78,16 @@ You can also follow Haylie's @realgirlskitchen account!
 
 ## Related Posts
 
-- [yummy burrito](https://food.allwomenstalk.com/yummy-burritos-you-can-make-anytime-a-craving-strikes/)
-- [rare herbs and spices](https://food.allwomenstalk.com/uncommon-spices-and-herbs-that-will-liven-up-your-meals/)
-- [examples of antipasto](https://food.allwomenstalk.com/delicious-antipasto-arrangements-for-your-next-party/)
-- [rice additions](https://food.allwomenstalk.com/savory-additions-to-rice-you-just-have-to-try/)
-- [sweet apples chart](https://food.allwomenstalk.com/sweetest-and-most-unique-varieties-of-apples-to-put-on-your-plate/)
-- [cheese and cracker snack pack](https://food.allwomenstalk.com/cheese-and-crackers-ideas-youre-going-to-love/)
 - [santa fe stuffed peppers](https://food.allwomenstalk.com/stuffed-peppers-youll-want-to-eat-for-dinner-tonight/)
+- [cheese and cracker snack pack](https://food.allwomenstalk.com/cheese-and-crackers-ideas-youre-going-to-love/)
+- [yummy burrito](https://food.allwomenstalk.com/yummy-burritos-you-can-make-anytime-a-craving-strikes/)
 - [pear appetizer recipes](https://food.allwomenstalk.com/yummy-things-to-do-with-pears/)
-- [what should i put apple butter on](https://food.allwomenstalk.com/yummy-ways-to-use-apple-butter-you-simply-must-try/)
+- [sweet apples chart](https://food.allwomenstalk.com/sweetest-and-most-unique-varieties-of-apples-to-put-on-your-plate/)
 - [extra cucumbers from garden](https://food.allwomenstalk.com/delicious-ideas-for-cucumbers-so-you-can-use-your-gardens-bounty/)
+- [examples of antipasto](https://food.allwomenstalk.com/delicious-antipasto-arrangements-for-your-next-party/)
+- [what should i put apple butter on](https://food.allwomenstalk.com/yummy-ways-to-use-apple-butter-you-simply-must-try/)
+- [rare herbs and spices](https://food.allwomenstalk.com/uncommon-spices-and-herbs-that-will-liven-up-your-meals/)
+- [rice additions](https://food.allwomenstalk.com/savory-additions-to-rice-you-just-have-to-try/)
 - [Drool Worthy Recipes for Girls Looking to Use Thei...](https://food.allwomenstalk.com/mouthwatering-things-to-make-with-your-summer-harvest/)
 - [The Ultimate Clean Eating Inspo Right at Your Fing...](https://food.allwomenstalk.com/the-ultimate-clean-eating-inspo-right-at-your-fingertips/)
 

@@ -104,15 +104,15 @@ See, there really are nice celebrities out there! Obviously there are many more 
 
 ## Related Posts
 
-- [celebrity holiday cards](https://allwomenstalk.com/celebrity-holiday-cards-pick-your-favorite/)
-- [what celebrity named their kid pillow](https://celebs.allwomenstalk.com/off-the-wall-celebrity-baby-names/)
-- [hottest teen](https://allwomenstalk.com/15-hottest-teen-celebrities_/)
-- [waking up dehydrated meme](https://celebs.allwomenstalk.com/annoying-things-celebrities-do/)
-- [hot peopel](https://allwomenstalk.com/guess-who-the-sexiest-men-celebrities-are/)
 - [renee zellweger weight loss diet](https://celebs.allwomenstalk.com/celebs-who-drastically-lost-weight-for-roles/)
-- [embarrassing moments celebrities](https://celebs.allwomenstalk.com/most-embarrassing-celeb-moments-youve-got-to-hear-about/)
-- [steve o back tatto](https://celebs.allwomenstalk.com/worst-celebrity-tattoos/)
+- [hot peopel](https://allwomenstalk.com/guess-who-the-sexiest-men-celebrities-are/)
 - [7 Sexy Leading Men from Britain ...](https://movies.allwomenstalk.com/sexy-leading-men-from-britain/)
+- [hottest teen](https://allwomenstalk.com/15-hottest-teen-celebrities_/)
+- [what celebrity named their kid pillow](https://celebs.allwomenstalk.com/off-the-wall-celebrity-baby-names/)
+- [embarrassing moments celebrities](https://celebs.allwomenstalk.com/most-embarrassing-celeb-moments-youve-got-to-hear-about/)
+- [waking up dehydrated meme](https://celebs.allwomenstalk.com/annoying-things-celebrities-do/)
+- [steve o back tatto](https://celebs.allwomenstalk.com/worst-celebrity-tattoos/)
+- [celebrity holiday cards](https://allwomenstalk.com/celebrity-holiday-cards-pick-your-favorite/)
 - [celebrities favorite snacks](https://celebs.allwomenstalk.com/celebrity-snack-cravings/)
 - [8 Most down to Earth Celebrities ...](https://celebs.allwomenstalk.com/most-down-to-earth-celebrities/)
 - [6 Celebrities Doing Good ...](https://allwomenstalk.com/6-celebrities-doing-good/)

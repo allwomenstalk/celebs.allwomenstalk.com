@@ -16,16 +16,16 @@ There's no doubt that this kid's night was made. How sweet is Justin? Class act,
 
 ## Related Posts
 
-- [pop a nosh](https://allwomenstalk.com/pop-nosh-britney-spears-quickie-break/)
 - [Anna Nicoles Journey Home to Daniel](https://allwomenstalk.com/anna-nicoles-journey-home-to-daniel/)
-- [Blame Andre ...](https://allwomenstalk.com/blame-andre/)
-- [Britneys Ex: She Definitely Had a Problem with Dru...](https://allwomenstalk.com/britneys-ex-she-definitely-had-a-problem-with-drugs/)
-- [Britney Likely Suffers from Post Partum Depression...](https://allwomenstalk.com/britney-likely-suffers-from-post-partum-depression/)
 - [Nicole amp Joel Getting Engaged](https://allwomenstalk.com/nicole-joel-getting-engaged/)
-- [Another One to Leave DWTS](https://allwomenstalk.com/another-one-to-leave-dwts/)
-- [American Idol Men Disappoint Once Again](https://allwomenstalk.com/american-idol-men-disappoint-once-again/)
 - [chris benoit text](https://allwomenstalk.com/wwe-releases-benoit-text-messages/)
+- [Britney Likely Suffers from Post Partum Depression...](https://allwomenstalk.com/britney-likely-suffers-from-post-partum-depression/)
+- [pop a nosh](https://allwomenstalk.com/pop-nosh-britney-spears-quickie-break/)
+- [Britneys Ex: She Definitely Had a Problem with Dru...](https://allwomenstalk.com/britneys-ex-she-definitely-had-a-problem-with-drugs/)
 - [Another Reason Why Britney Might Have Ditched Reha...](https://allwomenstalk.com/another-reason-why-britney-might-have-ditched-rehab-last-week/)
+- [American Idol Men Disappoint Once Again](https://allwomenstalk.com/american-idol-men-disappoint-once-again/)
+- [Blame Andre ...](https://allwomenstalk.com/blame-andre/)
+- [Another One to Leave DWTS](https://allwomenstalk.com/another-one-to-leave-dwts/)
 - [Justin Timberlakes Futuresexloveshow ...](https://allwomenstalk.com/justin-timberlakes-futuresexloveshow/)
 - [Jennifer Lopez Night at American Idol ...](https://allwomenstalk.com/jennifer-lopez-night-at-american-idol/)
 

@@ -50,16 +50,16 @@ Honestly, this list could go on and on. Actors like Russell Crowe, Steven Martin
 
 ## Related Posts
 
-- [amy winehouse swimsuit](https://celebs.allwomenstalk.com/celebrity-faces-destroyed-by-drugs/)
-- [celebrities who are best friends](https://celebs.allwomenstalk.com/celebrity-best-friends-we-should-aspire-to-be-like/)
 - [fit blonde actresses](https://celebs.allwomenstalk.com/hottest-blonde-celebrities-from-yesterday-and-today/)
-- [celebrity astrology signs](https://celebs.allwomenstalk.com/celebrities-and-their-astrological-signs/)
-- [why should celebrities be role models](https://celebs.allwomenstalk.com/reasons-why-some-celebrities-are-bad-role-models/)
-- [miley cyrus scandal video](https://celebs.allwomenstalk.com/of-the-biggest-miley-cyrus-scandals/)
 - [pauly d child](https://celebs.allwomenstalk.com/celebrity-babies-who-seem-more-famous-than-their-parents/)
+- [celebrities who are best friends](https://celebs.allwomenstalk.com/celebrity-best-friends-we-should-aspire-to-be-like/)
+- [celebrity astrology signs](https://celebs.allwomenstalk.com/celebrities-and-their-astrological-signs/)
 - [james blunt net worth](https://celebs.allwomenstalk.com/celebrities-who-have-praised-ed-sheerans-new-album/)
-- [hollywood homewreckers](https://celebs.allwomenstalk.com/most-notorious-home-wreckers-in-hollywood/)
+- [why should celebrities be role models](https://celebs.allwomenstalk.com/reasons-why-some-celebrities-are-bad-role-models/)
+- [amy winehouse swimsuit](https://celebs.allwomenstalk.com/celebrity-faces-destroyed-by-drugs/)
 - [famous celebrities as kids](https://celebs.allwomenstalk.com/child-celebrities-who-are-no-longer-famous/)
+- [miley cyrus scandal video](https://celebs.allwomenstalk.com/of-the-biggest-miley-cyrus-scandals/)
+- [hollywood homewreckers](https://celebs.allwomenstalk.com/most-notorious-home-wreckers-in-hollywood/)
 - [9 Actors Who Cant Actually Act ...](https://allwomenstalk.com/9-actors-who-cant-actually-act/)
 - [9 Celebrities Who Are into Photography ...](https://allwomenstalk.com/9-celebrities-who-are-into-photography/)
 

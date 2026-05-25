@@ -56,15 +56,15 @@ Well, there you have it! These celebs all play/or will play very important roles
 
 ## Related Posts
 
-- [kelly osbourne skinny](https://celebs.allwomenstalk.com/celebrities-that-had-a-major-weight-loss-transformation/)
 - [famous people on twitter](https://celebs.allwomenstalk.com/of-the-most-followed-celebrities-on-twitter/)
-- [reese witherspoon as june carter](https://celebs.allwomenstalk.com/celebrities-who-look-exactly-like-who-they-portrayed-in-a-biopic/)
-- [carrie underwood prego](https://fashion.allwomenstalk.com/stars-with-the-best-baby-bump-style-of-all-time/)
-- [you are beautiful inside and out](https://celebs.allwomenstalk.com/celebrities-who-are-beautiful-inside-and-out/)
-- [jack falahee weight gain](https://celebs.allwomenstalk.com/breakout-celebrities-of/)
-- [milo ventimiglia girlfriend](https://celebs.allwomenstalk.com/of-your-favorite-fictional-couples-who-dated-off-screen-too/)
 - [celebrities who hid their pregnancies while filmin...](https://celebs.allwomenstalk.com/celebrities-who-hid-their-baby-bumps-while-filming/)
+- [you are beautiful inside and out](https://celebs.allwomenstalk.com/celebrities-who-are-beautiful-inside-and-out/)
+- [reese witherspoon as june carter](https://celebs.allwomenstalk.com/celebrities-who-look-exactly-like-who-they-portrayed-in-a-biopic/)
+- [kelly osbourne skinny](https://celebs.allwomenstalk.com/celebrities-that-had-a-major-weight-loss-transformation/)
+- [carrie underwood prego](https://fashion.allwomenstalk.com/stars-with-the-best-baby-bump-style-of-all-time/)
+- [milo ventimiglia girlfriend](https://celebs.allwomenstalk.com/of-your-favorite-fictional-couples-who-dated-off-screen-too/)
 - [victoria justice and katharine mcphee](https://celebs.allwomenstalk.com/underrated-celebrities-that-should-be-more-famous/)
+- [jack falahee weight gain](https://celebs.allwomenstalk.com/breakout-celebrities-of/)
 - [celebrity favorite holiday](https://celebs.allwomenstalk.com/see-how-your-favorite-celebs-spent-the-holidays-in-our-christmas-re-cap/)
 - [7 of My Favorite Celebrities ...](https://celebs.allwomenstalk.com/7-of-my-favorite-celebrities/)
 - [9 Celebs to Follow on Twitter ...](https://celebs.allwomenstalk.com/celebs-to-follow-on-twitter/)

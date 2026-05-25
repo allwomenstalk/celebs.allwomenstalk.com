@@ -19,15 +19,15 @@ Now its a little more clear as to why he wants JB to be on his best behavior rig
 ## Related Posts
 
 - [Courteney Proud of David for Checking into Rehab.....](https://celebs.allwomenstalk.com/courteney-proud-of-david-for-checking-into-rehab/)
+- [Kyle Richards Not Sure about Being a Housewife](https://celebs.allwomenstalk.com/kyle-richards-not-sure-about-being-a-housewife/)
 - [Britney Tweets about Jasons Beatings ...](https://celebs.allwomenstalk.com/britney-tweets-about-jasons-beatings/)
 - [Johnny Never to Marry Vanessa ...](https://celebs.allwomenstalk.com/johnny-never-to-marry-vanessa/)
 - [take a risk chris brown](https://celebs.allwomenstalk.com/chris-brown-to-collaborate-with-justin-bieber/)
-- [Michael Moore Plays Hero to WikiLeaks Cofounder...](https://celebs.allwomenstalk.com/michael-moore-plays-hero-to-wikileaks-cofounder/)
 - [twitter leann rimes](https://celebs.allwomenstalk.com/leann-rimes-cibrian-tweets-her-happiness/)
-- [LeAnn  Eddie Not Allowed to Party....](https://celebs.allwomenstalk.com/leann-eddie-not-allowed-to-party/)
-- [wedding lauren miller rogen](https://celebs.allwomenstalk.com/seth-rogen-bares-his-soul-to-stern/)
 - [Howard K Stern Freed by the Law ...](https://celebs.allwomenstalk.com/howard-k-stern-freed-by-the-law/)
-- [Kyle Richards Not Sure about Being a Housewife](https://celebs.allwomenstalk.com/kyle-richards-not-sure-about-being-a-housewife/)
+- [wedding lauren miller rogen](https://celebs.allwomenstalk.com/seth-rogen-bares-his-soul-to-stern/)
+- [Michael Moore Plays Hero to WikiLeaks Cofounder...](https://celebs.allwomenstalk.com/michael-moore-plays-hero-to-wikileaks-cofounder/)
+- [LeAnn  Eddie Not Allowed to Party....](https://celebs.allwomenstalk.com/leann-eddie-not-allowed-to-party/)
 - [Katy Perry to Get Naughty with Ted Mosby....](https://celebs.allwomenstalk.com/katy-perry-to-get-naughty-with-ted-mosby/)
 - [Justin Timberlakes Futuresexloveshow ...](https://allwomenstalk.com/justin-timberlakes-futuresexloveshow/)
 

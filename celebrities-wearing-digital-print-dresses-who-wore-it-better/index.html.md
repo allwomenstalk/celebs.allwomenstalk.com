@@ -56,16 +56,16 @@ The digital print trend is here to stay and will probably stay a firm favourite 
 
 ## Related Posts
 
-- [famous person in yellow tracksuit](https://celebs.allwomenstalk.com/celebrities-wearing-yellow-who-wore-it-best/)
-- [celebs in red dressed](https://celebs.allwomenstalk.com/celebrities-in-red-dresses-who-wore-it-best/)
-- [celebrity silver dress](https://celebs.allwomenstalk.com/celebrities-in-metallic-clothes-who-wore-it-best/)
-- [crop top actress](https://celebs.allwomenstalk.com/celebrities-in-crop-tops-who-wore-it-best/)
 - [simple red carpet dresses](https://celebs.allwomenstalk.com/of-the-craziest-red-carpet-dresses-of-all-time/)
-- [characters with a green jacket](https://celebs.allwomenstalk.com/celebrities-wearing-army-green-jackets-who-wore-it-best/)
 - [celebrities wearing dresses](https://celebs.allwomenstalk.com/celebrities-in-cut-out-dresses-who-wore-it-best/)
-- [celeb skirt](https://celebs.allwomenstalk.com/celebrities-in-pencil-skirts-who-wore-it-best/)
+- [crop top actress](https://celebs.allwomenstalk.com/celebrities-in-crop-tops-who-wore-it-best/)
+- [characters with a green jacket](https://celebs.allwomenstalk.com/celebrities-wearing-army-green-jackets-who-wore-it-best/)
 - [celebrities suit](https://celebs.allwomenstalk.com/celebrities-rocking-the-power-suit-who-wore-it-best/)
 - [celebrities clothes](https://celebs.allwomenstalk.com/celebrities-in-chequered-clothes-who-wore-it-best/)
+- [celebrity silver dress](https://celebs.allwomenstalk.com/celebrities-in-metallic-clothes-who-wore-it-best/)
+- [celeb skirt](https://celebs.allwomenstalk.com/celebrities-in-pencil-skirts-who-wore-it-best/)
+- [celebs in red dressed](https://celebs.allwomenstalk.com/celebrities-in-red-dresses-who-wore-it-best/)
+- [famous person in yellow tracksuit](https://celebs.allwomenstalk.com/celebrities-wearing-yellow-who-wore-it-best/)
 - [10 Same Celebrity Outfits  Who Wore It Better ..](https://celebs.allwomenstalk.com/same-celebrity-outfits-who-wore-it-better/)
 - [Celebrity Fashion Face-off: Who Wore It Better](https://allwomenstalk.com/celebrity-fashion-face-off-who-wore-it-better/)
 

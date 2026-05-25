@@ -58,16 +58,16 @@ Top Photo Credit: [andy_57](https://www.flickr.com/photos/poupart/1487620751/)
 
 ## Related Posts
 
-- [2006 hair styles](https://allwomenstalk.com/fashionable-hair-styles-eyes-on-stars/)
 - [Tv Dilema Fall Beauty and a New Look ...](https://allwomenstalk.com/tv-dilema-fall-beauty-and-a-new-look/)
-- [The State of the Fashion Union ...](https://allwomenstalk.com/the-state-of-the-fashion-union/)
-- [Gwen and Kingston End NYFW in Style ...](https://celebs.allwomenstalk.com/gwen-and-kingston-end-nyfw-in-style/)
-- [hottest designers](https://allwomenstalk.com/3-10/)
-- [Its Harpers Bazaar Week...](https://allwomenstalk.com/its-harpers-bazaar-week/)
-- [Fashion Week: Jenni Kayne ...](https://allwomenstalk.com/fashion-week-jenni-kayne-2/)
 - [Sample Sales as Shopping Parties Yahoo News Fashio...](https://allwomenstalk.com/sample-sales-as-shopping-parties-yahoo-news-fashion-wire-daily/)
-- [Christian Louboutin Fall 2011 Lookbook ...](https://celebs.allwomenstalk.com/christian-louboutin-fall-lookbook/)
+- [hottest designers](https://allwomenstalk.com/3-10/)
+- [Fashion Week: Jenni Kayne ...](https://allwomenstalk.com/fashion-week-jenni-kayne-2/)
+- [The State of the Fashion Union ...](https://allwomenstalk.com/the-state-of-the-fashion-union/)
+- [Its Harpers Bazaar Week...](https://allwomenstalk.com/its-harpers-bazaar-week/)
+- [2006 hair styles](https://allwomenstalk.com/fashionable-hair-styles-eyes-on-stars/)
+- [Gwen and Kingston End NYFW in Style ...](https://celebs.allwomenstalk.com/gwen-and-kingston-end-nyfw-in-style/)
 - [marc bouwer dresses shop](https://allwomenstalk.com/fashion-week-marc-bouwer/)
+- [Christian Louboutin Fall 2011 Lookbook ...](https://celebs.allwomenstalk.com/christian-louboutin-fall-lookbook/)
 - [7 Biggest Celebrity Fashion Faux Pas of 2011 ...](https://celebs.allwomenstalk.com/biggest-celebrity-fashion-faux-pas-of/)
 - [7 Successful Celebrity Fashion Lines ...](https://fashion.allwomenstalk.com/successful-celebrity-fashion-lines/)
 

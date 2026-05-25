@@ -56,16 +56,16 @@ Which Hollywood gal wouldn’t you want as a pal? Share your thoughts with me an
 
 ## Related Posts
 
-- [11 Celebrities Who Have Been Turned down in Their ...](https://celebs.allwomenstalk.com/celebrities-who-have-been-turned-down-in-their-career/)
-- [nepotism models list](https://celebs.allwomenstalk.com/celebrity-kids-who-have-stunned-the-modeling-world/)
-- [7 Crazy Celebrity Feuds Youd Have to Read about to...](https://celebs.allwomenstalk.com/crazy-celebrity-feuds-youd-have-to-read-about-to-believe/)
-- [hotels for celebrities](https://travel.allwomenstalk.com/hotels-owned-by-celebrities/)
-- [9 Saturday Night Live Actors We Miss ...](https://7fun.net/saturday-night-live-actors-we-miss/)
-- [Like Fine Wine: Celebrities Who Get Better with Ag...](https://celebs.allwomenstalk.com/celebrities-who-look-better-with-age/)
 - [7 Celebs from ABCs Scandal That Love to Live-Tweet...](https://celebs.allwomenstalk.com/celebs-from-abcs-scandal-that-love-to-live-tweet/)
-- [11 Big Celebrity Beefs from behind the Scenes ...](https://bilbr.com/big-celebrity-beefs-from-behind-the-scenes/)
 - [An Eye-Opening Look at Child Stars Who Have Mature...](https://celebs.allwomenstalk.com/child-stars-whove-matured-into-fine-young-men-and-women/)
 - [9 Celebrities Who Had Secret Weddings ...](https://celebs.allwomenstalk.com/celebrities-who-had-secret-weddings/)
+- [nepotism models list](https://celebs.allwomenstalk.com/celebrity-kids-who-have-stunned-the-modeling-world/)
+- [11 Big Celebrity Beefs from behind the Scenes ...](https://bilbr.com/big-celebrity-beefs-from-behind-the-scenes/)
+- [hotels for celebrities](https://travel.allwomenstalk.com/hotels-owned-by-celebrities/)
+- [7 Crazy Celebrity Feuds Youd Have to Read about to...](https://celebs.allwomenstalk.com/crazy-celebrity-feuds-youd-have-to-read-about-to-believe/)
+- [9 Saturday Night Live Actors We Miss ...](https://7fun.net/saturday-night-live-actors-we-miss/)
+- [11 Celebrities Who Have Been Turned down in Their ...](https://celebs.allwomenstalk.com/celebrities-who-have-been-turned-down-in-their-career/)
+- [Like Fine Wine: Celebrities Who Get Better with Ag...](https://celebs.allwomenstalk.com/celebrities-who-look-better-with-age/)
 - [8 Celebrities with Awful Table Manners ...](https://celebs.allwomenstalk.com/celebrities-with-awful-table-manners/)
 - [7 Reasons Not to Date Your Best Friend ...](https://allwomenstalk.com/7-reasons-not-to-date-your-best-friend/)
 

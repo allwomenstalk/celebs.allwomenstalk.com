@@ -94,16 +94,16 @@ This article written in collaboration with editor, Eliza Martinez
 
 ## Related Posts
 
-- [was zachary gordon actually singing](https://celebs.allwomenstalk.com/talented-celebs-you-didnt-know-could-sing/)
-- [pink celebrities](https://fashion.allwomenstalk.com/celebrities-totally-rocking-the-hot-pink-trend/)
-- [celebrity couples who met on set](https://celebs.allwomenstalk.com/celebrity-couples-who-met-on-a-movie-set/)
-- [strange looking celebrities](https://celebs.allwomenstalk.com/strange-celebrity-looks-that-shouldnt-work-but-kind-of-did/)
-- [lucy pinder toppless](https://celebs.allwomenstalk.com/good-hearted-celebrities-who-took-adopted-children-under-their-wings/)
-- [celebrities on dancing with the stars](https://celebs.allwomenstalk.com/celebrities-who-should-be-on-dancing-with-the-stars/)
-- [what celebrities changed their names](https://celebs.allwomenstalk.com/celebrities-who-changed-their-name-for-fame/)
 - [real life tv couples](https://movies.allwomenstalk.com/adorable-tv-couples-you-wish-were-dating-in-real-life/)
-- [celebrity beach wedding](https://wedding.allwomenstalk.com/beautiful-celebrity-weddings-of/)
+- [was zachary gordon actually singing](https://celebs.allwomenstalk.com/talented-celebs-you-didnt-know-could-sing/)
+- [lucy pinder toppless](https://celebs.allwomenstalk.com/good-hearted-celebrities-who-took-adopted-children-under-their-wings/)
+- [celebrity couples who met on set](https://celebs.allwomenstalk.com/celebrity-couples-who-met-on-a-movie-set/)
 - [famous singers from american idol](https://music.allwomenstalk.com/very-successful-artists-that-came-from-american-idol/)
+- [what celebrities changed their names](https://celebs.allwomenstalk.com/celebrities-who-changed-their-name-for-fame/)
+- [pink celebrities](https://fashion.allwomenstalk.com/celebrities-totally-rocking-the-hot-pink-trend/)
+- [celebrities on dancing with the stars](https://celebs.allwomenstalk.com/celebrities-who-should-be-on-dancing-with-the-stars/)
+- [strange looking celebrities](https://celebs.allwomenstalk.com/strange-celebrity-looks-that-shouldnt-work-but-kind-of-did/)
+- [celebrity beach wedding](https://wedding.allwomenstalk.com/beautiful-celebrity-weddings-of/)
 - [4 Celebs That Shot to Fame after Cosmetic Surgery....](https://celebs.allwomenstalk.com/celebs-that-shot-to-fame-after-cosmetic-surgery/)
 - [10 Gorgeous Full-Figured Celebrities ...](https://celebs.allwomenstalk.com/gorgeous-full-figured-celebrities/)
 

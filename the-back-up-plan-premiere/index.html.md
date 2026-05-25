@@ -101,16 +101,16 @@ As always, tell me who your picks for best and worst dressed are!
 
 ## Related Posts
 
+- [serena william hot](https://celebs.allwomenstalk.com/serenas-day-at-the-beach/)
+- [yasmine zeroc](https://celebs.allwomenstalk.com/camilla-gets-a-push/)
+- [ringless finger](https://celebs.allwomenstalk.com/winslets-ringless-finger/)
+- [amandah dominic](https://celebs.allwomenstalk.com/amanda-and-dominic-check-in/)
+- [emma thompson photos](https://celebs.allwomenstalk.com/5-photos-of-emma-in-london/)
+- [niecy nash photos](https://celebs.allwomenstalk.com/nash-wears-yellow-on-live/)
+- [selena gomez red lips](https://celebs.allwomenstalk.com/selenas-fashion-line/)
 - [kristen stewart in the runaways](https://celebs.allwomenstalk.com/9-photos-of-kristen-arrives/)
 - [color le stylo emerald conquest](https://celebs.allwomenstalk.com/karas-poor-fit/)
-- [selena gomez red lips](https://celebs.allwomenstalk.com/selenas-fashion-line/)
-- [ringless finger](https://celebs.allwomenstalk.com/winslets-ringless-finger/)
 - [kourtney kardashian mude](https://celebs.allwomenstalk.com/kourtney-keeps-it-fashionable/)
-- [yasmine zeroc](https://celebs.allwomenstalk.com/camilla-gets-a-push/)
-- [emma thompson photos](https://celebs.allwomenstalk.com/5-photos-of-emma-in-london/)
-- [amandah dominic](https://celebs.allwomenstalk.com/amanda-and-dominic-check-in/)
-- [serena william hot](https://celebs.allwomenstalk.com/serenas-day-at-the-beach/)
-- [niecy nash photos](https://celebs.allwomenstalk.com/nash-wears-yellow-on-live/)
 - [36 Photos of the GLEE Spring Premiere Soiree ...](https://celebs.allwomenstalk.com/glee-premiere/)
 - [16 Photos of in My Sleep Premiere ...](https://celebs.allwomenstalk.com/in-my-sleep-premiere/)
 

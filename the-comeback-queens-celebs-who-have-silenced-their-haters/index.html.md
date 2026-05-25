@@ -56,16 +56,16 @@ I love all these celeb responses to their haters. How would you answer back if s
 
 ## Related Posts
 
-- [valerie bertinelli boston marathon](https://running.allwomenstalk.com/celebs-thatll-inspire-you-to-start-running/)
-- [Join the Jet Set: Stay in One of These Favorite Ce...](https://travel.allwomenstalk.com/join-the-jet-set-stay-in-one-of-these-favorite-celebrity-hotels/)
-- [fav couples](https://celebs.allwomenstalk.com/how-of-our-fav-celeb-celebrity-couples-met/)
+- [You Will Not Believe These Houses a-List Celebs Re...](https://travel.allwomenstalk.com/you-will-not-believe-these-houses-a-list-celebs-rent-for-vacations/)
 - [Check out These Celebrities at the Billboard Music...](https://fashion.allwomenstalk.com/check-out-these-celebrities-at-the-billboard-music-awards/)
-- [21 Celebrity Couples Who Got Married in Secret ...](https://wedding.allwomenstalk.com/celebrity-couples-who-got-married-in-secret/)
-- [Heres Our Baby Name Suggestions for Kim  Kanyes Ne...](https://celebs.allwomenstalk.com/heres-our-baby-name-suggestions-for-kim-kanyes-new-baby/)
 - [zach braff bj novak](https://movies.allwomenstalk.com/televisions-cutest-co-stars-we-cannot-get-enough-of/)
 - [11 Celebrity Reactions about the Deadly Paris Atta...](https://celebs.allwomenstalk.com/celebrity-reactions-about-the-deadly-paris-attacks-prayforparis/)
-- [You Will Not Believe These Houses a-List Celebs Re...](https://travel.allwomenstalk.com/you-will-not-believe-these-houses-a-list-celebs-rent-for-vacations/)
+- [valerie bertinelli boston marathon](https://running.allwomenstalk.com/celebs-thatll-inspire-you-to-start-running/)
+- [Heres Our Baby Name Suggestions for Kim  Kanyes Ne...](https://celebs.allwomenstalk.com/heres-our-baby-name-suggestions-for-kim-kanyes-new-baby/)
 - [These Celebrity Families Will Make the Kardashians...](https://celebs.allwomenstalk.com/these-celebrity-families-will-make-the-kardashians-scooch-over/)
+- [fav couples](https://celebs.allwomenstalk.com/how-of-our-fav-celeb-celebrity-couples-met/)
+- [21 Celebrity Couples Who Got Married in Secret ...](https://wedding.allwomenstalk.com/celebrity-couples-who-got-married-in-secret/)
+- [Join the Jet Set: Stay in One of These Favorite Ce...](https://travel.allwomenstalk.com/join-the-jet-set-stay-in-one-of-these-favorite-celebrity-hotels/)
 - [Forbes Top Richest Women in Entertainment ...](https://allwomenstalk.com/forbes-top-20-richest-women-in-entertainment/)
 - [8 Great Women in Show Business ...](https://movies.allwomenstalk.com/great-women-in-show-business/)
 

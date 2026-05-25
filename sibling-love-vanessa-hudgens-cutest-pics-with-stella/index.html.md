@@ -76,16 +76,16 @@ How often do you and your sister bond or take photos together? It's a great way 
 
 ## Related Posts
 
+- [pitch perfect 2 trailer](https://movies.allwomenstalk.com/the-barden-bellas-return-in-new-aca-amazing-pitch-perfect-trailer/)
+- [disney breast cancer awareness](https://inspiration.allwomenstalk.com/talented-artist-uses-disney-princesses-to-promote-breast-cancer-awareness/)
 - [emma watson elle](https://celebs.allwomenstalk.com/emma-watson-shines-on-new-elle-cover-while-discussing-feminism/)
-- [Kudos to Keira for Taking a Stand ...](https://celebs.allwomenstalk.com/kudos-to-keira-for-taking-a-stand/)
+- [rihanna personality type](https://celebs.allwomenstalk.com/rihanna-proves-shes-a-huge-scandal-fan-with-these-d-c-pics/)
+- [liam hemsworth stuff](https://celebs.allwomenstalk.com/lol-watch-the-hunger-games-liam-hemsworth-strut-his-stuff-in-high-heels/)
 - [dior spokesmodel](https://celebs.allwomenstalk.com/jennifer-lawrence-stuns-in-new-dior-campaign/)
-- [dominique battiste](https://music.allwomenstalk.com/dance-class-does-a-better-anaconda-dance-than-nicki-minaj-herself-video/)
+- [Kudos to Keira for Taking a Stand ...](https://celebs.allwomenstalk.com/kudos-to-keira-for-taking-a-stand/)
 - [lolnews](https://funny.allwomenstalk.com/lol-news-anchor-goes-viral-after-dancing-to-taylor-swift-t-i/)
 - [amy jo johnson body](https://celebs.allwomenstalk.com/original-pink-power-ranger-amy-jo-johnson-suited-up-for-a-street-performance/)
-- [liam hemsworth stuff](https://celebs.allwomenstalk.com/lol-watch-the-hunger-games-liam-hemsworth-strut-his-stuff-in-high-heels/)
-- [disney breast cancer awareness](https://inspiration.allwomenstalk.com/talented-artist-uses-disney-princesses-to-promote-breast-cancer-awareness/)
-- [pitch perfect 2 trailer](https://movies.allwomenstalk.com/the-barden-bellas-return-in-new-aca-amazing-pitch-perfect-trailer/)
-- [rihanna personality type](https://celebs.allwomenstalk.com/rihanna-proves-shes-a-huge-scandal-fan-with-these-d-c-pics/)
+- [dominique battiste](https://music.allwomenstalk.com/dance-class-does-a-better-anaconda-dance-than-nicki-minaj-herself-video/)
 - [Angelina Jolie Loves Her Adopted Kids More](https://allwomenstalk.com/angelina-jolie-loves-her-adopted-kids-more/)
 - [Look-alikes: Angelina and Claire](https://allwomenstalk.com/look-alikes-angelina-and-claire/)
 

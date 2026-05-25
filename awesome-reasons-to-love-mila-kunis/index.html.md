@@ -42,16 +42,16 @@ Well, there you have it! These are just seven out of many awesome reasons to lov
 
 ## Related Posts
 
-- [where can u watch maleficent](https://movies.allwomenstalk.com/reasons-to-watch-maleficent-right-away/)
-- [melissa joan hart and joey lawrence](https://movies.allwomenstalk.com/reasons-to-love-melissa-and-joey/)
-- [bella thorne seventeen magazine](https://celebs.allwomenstalk.com/fantastic-reasons-to-love-bella-thorne/)
-- [whitney nicole richie](https://celebs.allwomenstalk.com/awesome-reasons-to-love-nicole-richie/)
-- [hayden panettiere no makeup](https://celebs.allwomenstalk.com/fantastic-reasons-to-love-hayden-panettiere/)
-- [alex y sierra](https://celebs.allwomenstalk.com/awesome-reasons-to-love-alex-sierra/)
 - [summary of game of thrones](https://movies.allwomenstalk.com/reasons-why-we-love-game-of-thrones-so-much/)
-- [kendall jenner age 18](https://celebs.allwomenstalk.com/reasons-why-kendall-jenner-is-the-next-big-thing/)
-- [shah of sunset asa](https://movies.allwomenstalk.com/reasons-to-watch-shahs-of-sunset/)
+- [hayden panettiere no makeup](https://celebs.allwomenstalk.com/fantastic-reasons-to-love-hayden-panettiere/)
 - [rachel bilson shows](https://celebs.allwomenstalk.com/awesome-reasons-to-love-rachel-bilson/)
+- [melissa joan hart and joey lawrence](https://movies.allwomenstalk.com/reasons-to-love-melissa-and-joey/)
+- [alex y sierra](https://celebs.allwomenstalk.com/awesome-reasons-to-love-alex-sierra/)
+- [bella thorne seventeen magazine](https://celebs.allwomenstalk.com/fantastic-reasons-to-love-bella-thorne/)
+- [shah of sunset asa](https://movies.allwomenstalk.com/reasons-to-watch-shahs-of-sunset/)
+- [whitney nicole richie](https://celebs.allwomenstalk.com/awesome-reasons-to-love-nicole-richie/)
+- [where can u watch maleficent](https://movies.allwomenstalk.com/reasons-to-watch-maleficent-right-away/)
+- [kendall jenner age 18](https://celebs.allwomenstalk.com/reasons-why-kendall-jenner-is-the-next-big-thing/)
 - [10 Reasons to Love Jennifer Aniston ...](https://allwomenstalk.com/10-reasons-to-love-jennifer-aniston/)
 - [10 Reasons to Love Kate Winslet ...](https://allwomenstalk.com/10-reasons-to-love-kate-winslet/)
 

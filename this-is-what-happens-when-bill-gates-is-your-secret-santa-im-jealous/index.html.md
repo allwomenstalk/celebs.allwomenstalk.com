@@ -18,16 +18,16 @@ Awesome, right?! How do you think he'll top his Secret Santa gift next year? Wha
 
 ## Related Posts
 
-- [Reflect on Your Freedom Its Bill of Rights Day](https://lifestyle.allwomenstalk.com/reflect-on-your-freedom-its-bill-of-rights-day/)
-- [TodayILearnt Challenge ... and the Winner is ...](https://lifestyle.allwomenstalk.com/todayilearnt-challenge/)
-- [This Guy is Walking 20 Miles a Day to Work and Now...](https://inspiration.allwomenstalk.com/snowed-in-this-heartwarming-story-is-better-than-cocoa/)
-- [overcoming work anxiety](https://health.allwomenstalk.com/steps-to-overcoming-work-anxiety/)
 - [riche le stylo smoky shadow spark](https://lifestyle.allwomenstalk.com/congratulations-vrinda-winner-of-this-weeks-challenge/)
-- [This Weeks Challenge: for Me BestFriend is ...](https://lifestyle.allwomenstalk.com/this-weeks-challenge-for-me-bestfriend-is/)
-- [Once-in-a-Lifetime Cruises You Definitely Need to ...](https://travel.allwomenstalk.com/once-in-a-lifetime-cruises-to-save-your-cash-for/)
-- [she shed man cave](https://gardening.allwomenstalk.com/move-over-man-cave-the-she-shed-is-here/)
-- [Say Yes to the Print on Print Trend](https://fashion.allwomenstalk.com/say-yes-to-the-print-on-print-trend/)
+- [TodayILearnt Challenge ... and the Winner is ...](https://lifestyle.allwomenstalk.com/todayilearnt-challenge/)
 - [Ready to Learn Get Podcast Happy ...](https://apps.allwomenstalk.com/ready-to-learn-get-podcast-happy/)
+- [Say Yes to the Print on Print Trend](https://fashion.allwomenstalk.com/say-yes-to-the-print-on-print-trend/)
+- [Once-in-a-Lifetime Cruises You Definitely Need to ...](https://travel.allwomenstalk.com/once-in-a-lifetime-cruises-to-save-your-cash-for/)
+- [This Weeks Challenge: for Me BestFriend is ...](https://lifestyle.allwomenstalk.com/this-weeks-challenge-for-me-bestfriend-is/)
+- [overcoming work anxiety](https://health.allwomenstalk.com/steps-to-overcoming-work-anxiety/)
+- [This Guy is Walking 20 Miles a Day to Work and Now...](https://inspiration.allwomenstalk.com/snowed-in-this-heartwarming-story-is-better-than-cocoa/)
+- [she shed man cave](https://gardening.allwomenstalk.com/move-over-man-cave-the-she-shed-is-here/)
+- [Reflect on Your Freedom Its Bill of Rights Day](https://lifestyle.allwomenstalk.com/reflect-on-your-freedom-its-bill-of-rights-day/)
 - [One Lucky Sonuvabitch](https://allwomenstalk.com/one-lucky-sonuvabitch-2/)
 - [Cool Parents Get Him](https://allwomenstalk.com/cool-parents-get-him-2/)
 

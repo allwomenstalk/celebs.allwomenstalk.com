@@ -22,16 +22,16 @@ Though some of her followers (I’m going to refrain from saying fans) were quic
 
 ## Related Posts
 
-- [Fuck You Bitch](https://allwomenstalk.com/fuck-you-bitch-2/)
 - [Johnny Never to Marry Vanessa ...](https://celebs.allwomenstalk.com/johnny-never-to-marry-vanessa/)
-- [wedding lauren miller rogen](https://celebs.allwomenstalk.com/seth-rogen-bares-his-soul-to-stern/)
-- [Lionel Richie Calls Himself the Greatest Porn Star](https://allwomenstalk.com/lionel-richie-calls-himself-the-greatest-porn-star/)
-- [Ashley Judd Now Treads a Little More Carefully](https://celebs.allwomenstalk.com/ashley-judd-rape-culture-apology/)
-- [Elton John Surprised by His Royal Invite](https://celebs.allwomenstalk.com/elton-john-surprised-by-his-royal-invite/)
-- [elin nordegren pics](https://allwomenstalk.com/tiger-may-sue-irish-mag-for-elin-nordegren-nude-pics/)
 - [Michael Moore Plays Hero to WikiLeaks Cofounder...](https://celebs.allwomenstalk.com/michael-moore-plays-hero-to-wikileaks-cofounder/)
-- [sara evans tattoo](https://allwomenstalk.com/kenny-chesney-denies-he-had-an-affair-with-sara-evans/)
+- [Ashley Judd Now Treads a Little More Carefully](https://celebs.allwomenstalk.com/ashley-judd-rape-culture-apology/)
 - [kate michelman](https://allwomenstalk.com/i-really-really-hope-that-kate-michelman-doesnt-run-for-the-senate-in-pennsylvania/)
+- [wedding lauren miller rogen](https://celebs.allwomenstalk.com/seth-rogen-bares-his-soul-to-stern/)
+- [Elton John Surprised by His Royal Invite](https://celebs.allwomenstalk.com/elton-john-surprised-by-his-royal-invite/)
+- [Lionel Richie Calls Himself the Greatest Porn Star](https://allwomenstalk.com/lionel-richie-calls-himself-the-greatest-porn-star/)
+- [sara evans tattoo](https://allwomenstalk.com/kenny-chesney-denies-he-had-an-affair-with-sara-evans/)
+- [elin nordegren pics](https://allwomenstalk.com/tiger-may-sue-irish-mag-for-elin-nordegren-nude-pics/)
+- [Fuck You Bitch](https://allwomenstalk.com/fuck-you-bitch-2/)
 - [Lepaparazzi News Update: Britney Spears New Party ...](https://allwomenstalk.com/lepaparazzi-news-update-britney-spears-new-party-lifestyle/)
 - [Lepaparazzi News Update: Britney Spears Gets Back ...](https://allwomenstalk.com/lepaparazzi-news-update-britney-spears-gets-back-to-work/)
 

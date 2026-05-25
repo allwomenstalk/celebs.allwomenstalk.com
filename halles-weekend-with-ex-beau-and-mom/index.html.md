@@ -28,15 +28,15 @@ What do you think of this hot pair?
 
 ## Related Posts
 
-- [take a risk chris brown](https://celebs.allwomenstalk.com/chris-brown-to-collaborate-with-justin-bieber/)
-- [Kyle Richards Not Sure about Being a Housewife](https://celebs.allwomenstalk.com/kyle-richards-not-sure-about-being-a-housewife/)
+- [Courteney Proud of David for Checking into Rehab.....](https://celebs.allwomenstalk.com/courteney-proud-of-david-for-checking-into-rehab/)
 - [daughter wedgie](https://celebs.allwomenstalk.com/mark-wahlberg-to-give-bieber-a-wedgie/)
 - [camille grammer daughter](https://celebs.allwomenstalk.com/kelsey-grammers-daughter-wont-be-part-of-the-nuptials/)
 - [claire miley](https://celebs.allwomenstalk.com/miley-sorry-for-not-being-a-better-role-model/)
-- [taylor momsen 2005](https://celebs.allwomenstalk.com/taylor-momsen-on-an-indefinite-break/)
-- [Courteney Proud of David for Checking into Rehab.....](https://celebs.allwomenstalk.com/courteney-proud-of-david-for-checking-into-rehab/)
 - [1923 kevin spacey](https://celebs.allwomenstalk.com/kevin-spacey-its-gossip-bottom-line/)
 - [Howard K Stern Freed by the Law ...](https://celebs.allwomenstalk.com/howard-k-stern-freed-by-the-law/)
+- [Kyle Richards Not Sure about Being a Housewife](https://celebs.allwomenstalk.com/kyle-richards-not-sure-about-being-a-housewife/)
+- [take a risk chris brown](https://celebs.allwomenstalk.com/chris-brown-to-collaborate-with-justin-bieber/)
+- [taylor momsen 2005](https://celebs.allwomenstalk.com/taylor-momsen-on-an-indefinite-break/)
 - [r patz](https://celebs.allwomenstalk.com/kristen-sucks-the-blood-out-of-r-patz/)
 - [Lepaparazzi News Update: Has Jessica Simpson Found...](https://allwomenstalk.com/lepaparazzi-news-update-has-jessica-simpson-found-a-new-beau/)
 - [Gisele - Stepmom](https://allwomenstalk.com/gisele-stepmom/)

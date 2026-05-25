@@ -42,16 +42,16 @@ There you have it! These videos of Taylor Swift dancing are hilarious! Now, don'
 
 ## Related Posts
 
-- [different type of music](https://music.allwomenstalk.com/types-of-music-to-suit-every-mood/)
-- [music festivals 2014](https://music.allwomenstalk.com/music-festivals-for-for-your-hit-list/)
-- [short song titles](https://music.allwomenstalk.com/inspiring-song-titles-that-will-lift-your-spirit/)
-- [lyrics to long december by counting crows](https://music.allwomenstalk.com/crooning-songs-from-counting-crows-that-sound-like-pure-poetry/)
-- [childhood songs 2000 disney](https://music.allwomenstalk.com/amazing-disney-songs-since-that-youve-got-to-love/)
-- [instant star songs](https://music.allwomenstalk.com/songs-from-instant-star-that-i-still-listen-to/)
-- [songs to play when youre mad](https://music.allwomenstalk.com/songs-for-when-youre-in-a-bad-mood/)
-- [old valentine songs](https://music.allwomenstalk.com/best-breakup-songs-for-valentines-day/)
-- [nickelback love songs](https://music.allwomenstalk.com/love-songs-for-valentines-day/)
 - [dance birthday songs](https://music.allwomenstalk.com/of-the-best-fatherdaughter-songs-to-dance-to/)
+- [childhood songs 2000 disney](https://music.allwomenstalk.com/amazing-disney-songs-since-that-youve-got-to-love/)
+- [nickelback love songs](https://music.allwomenstalk.com/love-songs-for-valentines-day/)
+- [songs to play when youre mad](https://music.allwomenstalk.com/songs-for-when-youre-in-a-bad-mood/)
+- [lyrics to long december by counting crows](https://music.allwomenstalk.com/crooning-songs-from-counting-crows-that-sound-like-pure-poetry/)
+- [short song titles](https://music.allwomenstalk.com/inspiring-song-titles-that-will-lift-your-spirit/)
+- [different type of music](https://music.allwomenstalk.com/types-of-music-to-suit-every-mood/)
+- [old valentine songs](https://music.allwomenstalk.com/best-breakup-songs-for-valentines-day/)
+- [music festivals 2014](https://music.allwomenstalk.com/music-festivals-for-for-your-hit-list/)
+- [instant star songs](https://music.allwomenstalk.com/songs-from-instant-star-that-i-still-listen-to/)
 - [7 Seriously Funny Bloopers ...](https://7fun.net/7-seriously-funny-bloopers/)
 - [7 Dresses to Laugh at ...](https://allwomenstalk.com/7-dresses-to-laugh-at/)
 

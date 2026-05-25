@@ -131,16 +131,16 @@ Does that effigy freak you out too?
 
 ## Related Posts
 
+- [adopted people](https://celebs.allwomenstalk.com/10-famous-people-who-were-adopted/)
 - [are celebrities overpaid](https://celebs.allwomenstalk.com/the-most-overpaid-actors-in-hollywood/)
 - [best looking moms](https://celebs.allwomenstalk.com/25-hottest-celebrity-moms/)
-- [celebrities to follow on twitter](https://celebs.allwomenstalk.com/celebs-to-follow-on-twitter/)
-- [adopted people](https://celebs.allwomenstalk.com/10-famous-people-who-were-adopted/)
-- [child stars who aged badly](https://celebs.allwomenstalk.com/celebrities-that-look-older-than-their-true-age/)
 - [why are hollywood actors on strike](https://celebs.allwomenstalk.com/25-most-messed-up-celebrities/)
 - [hot supermodels](https://celebs.allwomenstalk.com/25-hottest-supermodels/)
+- [celebrities to follow on twitter](https://celebs.allwomenstalk.com/celebs-to-follow-on-twitter/)
 - [7 Recent Celebrity Breakups ...](https://celebs.allwomenstalk.com/recent-celebrity-breakups/)
 - [fashionable celebrities](https://celebs.allwomenstalk.com/fashionable-celebrities-to-watch-in/)
 - [older actress blonde hair](https://celebs.allwomenstalk.com/25-hottest-blonde-celebrities/)
+- [child stars who aged badly](https://celebs.allwomenstalk.com/celebrities-that-look-older-than-their-true-age/)
 - [59 Photos of 45th Annual Academy of Country Music ...](https://celebs.allwomenstalk.com/45th-annual-academy-of-country-music-awards/)
 - [39 Photos of Season 7 Premiere of Entourage ...](https://celebs.allwomenstalk.com/season-7-premiere-of-entourage/)
 

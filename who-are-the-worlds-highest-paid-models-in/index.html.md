@@ -74,16 +74,16 @@ Ashley Graham is the first ever plus-sized model to make the top ten list of **h
 
 ## Related Posts
 
+- [Oscars - Jennifer and Leo](https://allwomenstalk.com/oscars-jennifer-and-leo/)
 - [year of the Dog - Hollywood Premiere](https://allwomenstalk.com/year-of-the-dog-hollywood-premiere/)
 - [Whats in the MTV Movie Awards Goodie Bags](https://allwomenstalk.com/whats-in-the-mtv-movie-awards-goodie-bags/)
-- [8th Annual Maxim Hot 100 Party](https://allwomenstalk.com/8th-annual-maxim-hot-100-party/)
-- [42nd Annual Juno Awards ...](https://allwomenstalk.com/42nd-annual-juno-awards/)
-- [Rumors about the MTV Movie Awards ...](https://allwomenstalk.com/rumors-about-the-mtv-movie-awards/)
-- [Sasha Goes for Black Accessories  the Blog Awards](https://allwomenstalk.com/sasha-goes-for-black-accessories-the-blog-awards/)
 - [MTV Movie Awards - at Least the Opening Was Funny](https://allwomenstalk.com/mtv-movie-awards-at-least-the-opening-was-funny/)
-- [Oscars - Jennifer and Leo](https://allwomenstalk.com/oscars-jennifer-and-leo/)
+- [8th Annual Maxim Hot 100 Party](https://allwomenstalk.com/8th-annual-maxim-hot-100-party/)
 - [Geri Halliwells Gold Clutch Style at the Greatest ...](https://allwomenstalk.com/geri-halliwells-gold-clutch-style-at-the-greatest-britons-awards-red-carpet/)
 - [Jeff Foxworthy Hosts Tonights CMT Awards ...](https://allwomenstalk.com/jeff-foxworthy-hosts-tonights-cmt-awards/)
+- [Rumors about the MTV Movie Awards ...](https://allwomenstalk.com/rumors-about-the-mtv-movie-awards/)
+- [Sasha Goes for Black Accessories  the Blog Awards](https://allwomenstalk.com/sasha-goes-for-black-accessories-the-blog-awards/)
+- [42nd Annual Juno Awards ...](https://allwomenstalk.com/42nd-annual-juno-awards/)
 - [Highest Earning Celebrities of 2010...](https://celebs.allwomenstalk.com/highest-earning-celebrities-of/)
 - [Will Models Ever Be IT AgainWill Models Ever Be .....](https://allwomenstalk.com/will-models-ever-be-it-againwill-models-ever-be/)
 

@@ -58,15 +58,15 @@ Which of these gorgeous gals inspires your style?
 
 ## Related Posts
 
-- [fashionable music](https://fashion.allwomenstalk.com/music-festivals-with-the-most-fashionable-crowds/)
-- [color riche le stylo smoky eye blinged and](https://celebs.allwomenstalk.com/of-lordes-best-looks-that-arent-black/)
-- [fashion blogger famous](https://fashion.allwomenstalk.com/of-the-best-fashion-blogger-brand-collaborations/)
-- [sibling knitwear](https://streetstyle.allwomenstalk.com/fashion-trends-that-wouldnt-exist-without-street-style-blogs/)
-- [wardrobe malfunctions in public](https://fashion.allwomenstalk.com/hilarious-wardrobe-malfunctions-over-the-years/)
 - [gossip girl fashion serena](https://streetstyle.allwomenstalk.com/streetstyle-looks-from-gossip-girl-to-recreate/)
-- [miranda kerr stockings](https://streetstyle.allwomenstalk.com/streetstyle-looks-from-miranda-kerr-to-recreate/)
 - [cool clothes for musicians](https://fashion.allwomenstalk.com/musicians-with-their-own-clothing-lines/)
+- [color riche le stylo smoky eye blinged and](https://celebs.allwomenstalk.com/of-lordes-best-looks-that-arent-black/)
+- [sibling knitwear](https://streetstyle.allwomenstalk.com/fashion-trends-that-wouldnt-exist-without-street-style-blogs/)
 - [reese witherspoons styles](https://celebs.allwomenstalk.com/things-to-adore-about-reese-witherspoons-style/)
+- [miranda kerr stockings](https://streetstyle.allwomenstalk.com/streetstyle-looks-from-miranda-kerr-to-recreate/)
+- [fashionable music](https://fashion.allwomenstalk.com/music-festivals-with-the-most-fashionable-crowds/)
+- [fashion blogger famous](https://fashion.allwomenstalk.com/of-the-best-fashion-blogger-brand-collaborations/)
+- [wardrobe malfunctions in public](https://fashion.allwomenstalk.com/hilarious-wardrobe-malfunctions-over-the-years/)
 - [paris color stylo hollywood icon](https://fashion.allwomenstalk.com/of-olivia-palermos-best-looks-that-prove-shes-a-style-icon/)
 - [7 Fashionable Celebrities to Watch in 2012 ...](https://celebs.allwomenstalk.com/fashionable-celebrities-to-watch-in/)
 - [7 Successful Celebrity Fashion Lines ...](https://fashion.allwomenstalk.com/successful-celebrity-fashion-lines/)

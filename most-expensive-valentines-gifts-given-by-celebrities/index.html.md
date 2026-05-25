@@ -54,16 +54,16 @@ Is there a more famous celebrity couple right now than Kim and Kanye? We don’t
 
 ## Related Posts
 
-- [laurence fishburne ex-wife](https://celebs.allwomenstalk.com/celebrity-couples-who-split-in-2018/)
-- [celebrities born on february 2](https://celebs.allwomenstalk.com/celebrities-born-in-february-2/)
-- [celebs born in 1976](https://celebs.allwomenstalk.com/celebrities-born-in-february/)
-- [best housewives of all time](https://movies.allwomenstalk.com/the-best-real-housewives-of-beverly-hills/)
-- [celebrities born february 18](https://celebs.allwomenstalk.com/celebrities-born-in-february-3/)
-- [lake como celebrities](https://travel.allwomenstalk.com/where-celebrities-go-on-vacation/)
-- [what toothpaste do celebrities use](https://beauty.allwomenstalk.com/perfect-ways-to-get-a-celebrity-smile/)
-- [wokest celebrities](https://celebs.allwomenstalk.com/who-are-the-most-charitable-celebrities/)
-- [celebrities born on february 4th](https://celebs.allwomenstalk.com/celebrities-born-in-february-4/)
 - [90s heartthrobs actors](https://celebs.allwomenstalk.com/heartthrobs-of-the-1990s/)
+- [wokest celebrities](https://celebs.allwomenstalk.com/who-are-the-most-charitable-celebrities/)
+- [what toothpaste do celebrities use](https://beauty.allwomenstalk.com/perfect-ways-to-get-a-celebrity-smile/)
+- [celebrities born february 18](https://celebs.allwomenstalk.com/celebrities-born-in-february-3/)
+- [celebrities born on february 2](https://celebs.allwomenstalk.com/celebrities-born-in-february-2/)
+- [celebrities born on february 4th](https://celebs.allwomenstalk.com/celebrities-born-in-february-4/)
+- [celebs born in 1976](https://celebs.allwomenstalk.com/celebrities-born-in-february/)
+- [lake como celebrities](https://travel.allwomenstalk.com/where-celebrities-go-on-vacation/)
+- [laurence fishburne ex-wife](https://celebs.allwomenstalk.com/celebrity-couples-who-split-in-2018/)
+- [best housewives of all time](https://movies.allwomenstalk.com/the-best-real-housewives-of-beverly-hills/)
 - [The Most Overpaid Actors in Hollywood ...](https://celebs.allwomenstalk.com/the-most-overpaid-actors-in-hollywood/)
 - [Top Celebrity Philantrophists ...](https://celebs.allwomenstalk.com/top-celebrity-philantrophists/)
 

@@ -19,15 +19,15 @@ Are you sad to see them moving to Splitsville?
 ## Related Posts
 
 - [Brittany Murphy Biopic Officially Happening ...](https://celebs.allwomenstalk.com/brittany-murphy-biopic-officially-happening/)
-- [Brangelina Finally Make It Official ...](https://celebs.allwomenstalk.com/brangelina-finally-make-it-official/)
 - [stylo violet amour](https://lifestyle.allwomenstalk.com/a-mother-was-reunited-with-her-baby-in-the-nice-attack-after-a-facebook-post-when-viral/)
-- [Joan Rivers Had a Serious Health Scare ...](https://celebs.allwomenstalk.com/joan-rivers-had-a-serious-health-scare/)
-- [No Forgiveness for Kevin Hart ...](https://celebs.allwomenstalk.com/no-forgiveness-for-kevin-hart/)
-- [Potty-Mouth Princesses Break the Silence on Domest...](https://inspiration.allwomenstalk.com/potty-mouth-princesses-break-the-silence-on-domestic-violence/)
-- [Sorry Ladies Benedict Cumberbatch is Officially of...](https://celebs.allwomenstalk.com/sorry-ladies-benedict-cumberbatch-is-officially-off-the-market/)
+- [Brangelina Finally Make It Official ...](https://celebs.allwomenstalk.com/brangelina-finally-make-it-official/)
 - [Jennifer Aniston  Lisa Kudrow Battle It out on cel...](https://funny.allwomenstalk.com/watch-jennifer-aniston-vs-lisa-kudrow-in-celebrity-curse-off/)
-- [Robin Williams Daughter Has a Message for Women St...](https://inspiration.allwomenstalk.com/robin-williams-daughter-has-a-message-for-women-struggling-with-depression/)
+- [Sorry Ladies Benedict Cumberbatch is Officially of...](https://celebs.allwomenstalk.com/sorry-ladies-benedict-cumberbatch-is-officially-off-the-market/)
 - [Weinstein Affleck Et Al: the Grey Area of Harassme...](https://lifestyle.allwomenstalk.com/the-grey-area-of-harassment/)
+- [Robin Williams Daughter Has a Message for Women St...](https://inspiration.allwomenstalk.com/robin-williams-daughter-has-a-message-for-women-struggling-with-depression/)
+- [Potty-Mouth Princesses Break the Silence on Domest...](https://inspiration.allwomenstalk.com/potty-mouth-princesses-break-the-silence-on-domestic-violence/)
+- [No Forgiveness for Kevin Hart ...](https://celebs.allwomenstalk.com/no-forgiveness-for-kevin-hart/)
+- [Joan Rivers Had a Serious Health Scare ...](https://celebs.allwomenstalk.com/joan-rivers-had-a-serious-health-scare/)
 - [Johnny Never to Marry Vanessa ...](https://celebs.allwomenstalk.com/johnny-never-to-marry-vanessa/)
 - [Mariahs Just Not There Yet](https://celebs.allwomenstalk.com/mariahs-just-not-there-yet/)
 

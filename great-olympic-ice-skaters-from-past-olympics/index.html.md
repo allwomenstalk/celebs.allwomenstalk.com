@@ -56,16 +56,16 @@ I have watched the Olympic figure skating competitions since I was a very little
 
 ## Related Posts
 
-- [kids dog cartoons](https://movies.allwomenstalk.com/tolerable-kids-cartoons-to-dvr-right-now/)
-- [outstanding scientists](https://lifestyle.allwomenstalk.com/most-outstanding-scientists-who-have-made-lifesaving-discoveries/)
-- [wales myths and legends](https://lifestyle.allwomenstalk.com/welsh-myths-and-legends-to-rival-hollywood/)
-- [american stereotypes in europe](https://travel.allwomenstalk.com/stereotypes-of-americans-held-by-other-countries/)
-- [friends rolling stone cover](https://movies.allwomenstalk.com/best-90s-shows-that-i-miss-dearly/)
-- [asiantv only for love](https://movies.allwomenstalk.com/great-asian-tv-shows-you-should-be-watching/)
-- [awesome tv shows](https://movies.allwomenstalk.com/entertaining-but-eclectic-tv-series-for-your-next-binge-watch/)
-- [most famous black scientists](https://lifestyle.allwomenstalk.com/brilliant-black-scientists-to-celebrate/)
 - [tlc dating shows](https://movies.allwomenstalk.com/interesting-and-bizarre-shows-on-tlc/)
+- [asiantv only for love](https://movies.allwomenstalk.com/great-asian-tv-shows-you-should-be-watching/)
+- [kids dog cartoons](https://movies.allwomenstalk.com/tolerable-kids-cartoons-to-dvr-right-now/)
+- [friends rolling stone cover](https://movies.allwomenstalk.com/best-90s-shows-that-i-miss-dearly/)
+- [outstanding scientists](https://lifestyle.allwomenstalk.com/most-outstanding-scientists-who-have-made-lifesaving-discoveries/)
+- [awesome tv shows](https://movies.allwomenstalk.com/entertaining-but-eclectic-tv-series-for-your-next-binge-watch/)
+- [american stereotypes in europe](https://travel.allwomenstalk.com/stereotypes-of-americans-held-by-other-countries/)
 - [tv bromances](https://movies.allwomenstalk.com/tv-bromances-that-i-cant-get-enough-of/)
+- [most famous black scientists](https://lifestyle.allwomenstalk.com/brilliant-black-scientists-to-celebrate/)
+- [wales myths and legends](https://lifestyle.allwomenstalk.com/welsh-myths-and-legends-to-rival-hollywood/)
 - [7 of My Favorite Celebrities ...](https://celebs.allwomenstalk.com/7-of-my-favorite-celebrities/)
 - [7 Sexiest Athletes of 2011 ...](https://celebs.allwomenstalk.com/sexiest-athletes-of/)
 

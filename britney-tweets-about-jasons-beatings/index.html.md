@@ -23,15 +23,15 @@ Hmmm maybe if at all there is any ‘beating’ going on there, its the type tha
 ## Related Posts
 
 - [Michael Moore Plays Hero to WikiLeaks Cofounder...](https://celebs.allwomenstalk.com/michael-moore-plays-hero-to-wikileaks-cofounder/)
-- [Fuck You Bitch](https://allwomenstalk.com/fuck-you-bitch-2/)
-- [twitter leann rimes](https://celebs.allwomenstalk.com/leann-rimes-cibrian-tweets-her-happiness/)
-- [Johnny Never to Marry Vanessa ...](https://celebs.allwomenstalk.com/johnny-never-to-marry-vanessa/)
-- [LeAnn  Eddie Not Allowed to Party....](https://celebs.allwomenstalk.com/leann-eddie-not-allowed-to-party/)
+- [wedding lauren miller rogen](https://celebs.allwomenstalk.com/seth-rogen-bares-his-soul-to-stern/)
 - [kate michelman](https://allwomenstalk.com/i-really-really-hope-that-kate-michelman-doesnt-run-for-the-senate-in-pennsylvania/)
 - [Lionel Richie Calls Himself the Greatest Porn Star](https://allwomenstalk.com/lionel-richie-calls-himself-the-greatest-porn-star/)
 - [Ashley Judd Now Treads a Little More Carefully](https://celebs.allwomenstalk.com/ashley-judd-rape-culture-apology/)
-- [wedding lauren miller rogen](https://celebs.allwomenstalk.com/seth-rogen-bares-his-soul-to-stern/)
+- [twitter leann rimes](https://celebs.allwomenstalk.com/leann-rimes-cibrian-tweets-her-happiness/)
+- [Fuck You Bitch](https://allwomenstalk.com/fuck-you-bitch-2/)
+- [Johnny Never to Marry Vanessa ...](https://celebs.allwomenstalk.com/johnny-never-to-marry-vanessa/)
 - [Elton John Surprised by His Royal Invite](https://celebs.allwomenstalk.com/elton-john-surprised-by-his-royal-invite/)
+- [LeAnn  Eddie Not Allowed to Party....](https://celebs.allwomenstalk.com/leann-eddie-not-allowed-to-party/)
 - [Open Letter to Britney Spears ...](https://allwomenstalk.com/open-letter-to-britney-spears/)
 - [Justin Gives a SHOUT out to Britney ...](https://allwomenstalk.com/justin-gives-a-shout-out-to-britney/)
 

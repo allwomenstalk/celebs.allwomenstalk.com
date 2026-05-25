@@ -57,15 +57,15 @@ Celebrities will always find ways to end up the center of attention, whether it'
 ## Related Posts
 
 - [celebrities who currently live in kentucky](https://celebs.allwomenstalk.com/celebrities-who-are-originally-from-kentucky/)
-- [celebrities with binge eating](https://celebs.allwomenstalk.com/celebrities-who-have-battled-eating-disorders/)
-- [roman josi hair](https://celebs.allwomenstalk.com/gorgeous-athletes-to-watch-for-at-the-olympics/)
-- [lara spencer beach](https://celebs.allwomenstalk.com/celebs-who-have-dressed-up-as-miley-cyrus/)
-- [why did danny leave the mindy project](https://hair.allwomenstalk.com/celebrities-who-tried-a-pixie-cut/)
-- [josh peck aging](https://celebs.allwomenstalk.com/hysterical-nickelodeon-actors-who-grew-up-to-be-hot/)
-- [most famous redheads](https://celebs.allwomenstalk.com/famous-redheads-and-their-amazing-careers/)
-- [celebrities downfall](https://celebs.allwomenstalk.com/things-we-can-learn-from-the-downfall-of-celebrities/)
 - [2014 rock and roll hall of fame](https://music.allwomenstalk.com/new-members-of-the-rock-and-roll-hall-of-fame-for/)
+- [roman josi hair](https://celebs.allwomenstalk.com/gorgeous-athletes-to-watch-for-at-the-olympics/)
+- [why did danny leave the mindy project](https://hair.allwomenstalk.com/celebrities-who-tried-a-pixie-cut/)
+- [celebrities with binge eating](https://celebs.allwomenstalk.com/celebrities-who-have-battled-eating-disorders/)
+- [most famous redheads](https://celebs.allwomenstalk.com/famous-redheads-and-their-amazing-careers/)
 - [celebrities that own companies](https://celebs.allwomenstalk.com/celebrities-who-started-their-own-companies/)
+- [lara spencer beach](https://celebs.allwomenstalk.com/celebs-who-have-dressed-up-as-miley-cyrus/)
+- [celebrities downfall](https://celebs.allwomenstalk.com/things-we-can-learn-from-the-downfall-of-celebrities/)
+- [josh peck aging](https://celebs.allwomenstalk.com/hysterical-nickelodeon-actors-who-grew-up-to-be-hot/)
 - [7 of My Favorite Celebrities ...](https://celebs.allwomenstalk.com/7-of-my-favorite-celebrities/)
 - [7 Inspiring Celebrities of 2011 ...](https://celebs.allwomenstalk.com/inspiring-celebrities-of/)
 

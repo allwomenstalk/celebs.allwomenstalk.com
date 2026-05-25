@@ -57,15 +57,15 @@ Have fun watching the Franco brothers in some of their best films! Have you seen
 ## Related Posts
 
 - [animated comedy movies for adults](https://movies.allwomenstalk.com/animated-movies-that-appeal-to-adults/)
-- [did jenny cheat on forrest](https://movies.allwomenstalk.com/terrible-movie-wives-who-give-marriage-a-bad-name/)
 - [latest chick flicks](https://movies.allwomenstalk.com/things-that-are-oh-so-wrong-with-chick-flicks/)
-- [people at movies](https://lifestyle.allwomenstalk.com/irritating-types-of-people-youll-see-at-the-movie-theater/)
-- [movies guys like](https://movies.allwomenstalk.com/movies-guys-secretly-love-watching-with-you/)
+- [did jenny cheat on forrest](https://movies.allwomenstalk.com/terrible-movie-wives-who-give-marriage-a-bad-name/)
 - [dognappers from 101 dalmatians](https://movies.allwomenstalk.com/movies-where-the-dog-is-the-star/)
-- [comedy musical movies](https://movies.allwomenstalk.com/funny-musical-movies-that-will-keep-you-laughing/)
 - [films should watch before die](https://movies.allwomenstalk.com/movies-you-should-watch-before-you-die/)
 - [braveheart father and son](https://movies.allwomenstalk.com/movies-featuring-real-life-father-and-son/)
+- [comedy musical movies](https://movies.allwomenstalk.com/funny-musical-movies-that-will-keep-you-laughing/)
 - [summer camp the movie](https://movies.allwomenstalk.com/summer-camp-movies/)
+- [movies guys like](https://movies.allwomenstalk.com/movies-guys-secretly-love-watching-with-you/)
+- [people at movies](https://lifestyle.allwomenstalk.com/irritating-types-of-people-youll-see-at-the-movie-theater/)
 - [7 New Movies Worth Checking out ...](https://movies.allwomenstalk.com/7-new-movies-worth-checking-out/)
 - [8 Fabulous French Films ...](https://movies.allwomenstalk.com/fabulous-french-films/)
 

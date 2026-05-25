@@ -68,14 +68,14 @@ That sums up my list for celebrities who look like their parents. There’s actu
 
 ## Related Posts
 
-- [rainforest cate](https://celebs.allwomenstalk.com/celebrities-who-support-the-rainforest/)
-- [hard actors to guess](https://movies.allwomenstalk.com/actors-who-turned-down-legendary-roles/)
-- [historic actors](https://movies.allwomenstalk.com/celebrities-who-played-historical-figures-perfectly/)
 - [coolest celebrity tattoos](https://celebs.allwomenstalk.com/best-celebrity-tattoos-that-youre-sure-to-love/)
 - [neon blue hair](https://celebs.allwomenstalk.com/fabulous-celebrities-with-neon-colored-hair/)
-- [hottest greys anatomy characters](https://movies.allwomenstalk.com/hottest-guys-on-greys-anatomy-that-we-cant-help-but-love/)
 - [bikram yoga celebrities](https://celebs.allwomenstalk.com/celebrities-who-love-yoga/)
+- [rainforest cate](https://celebs.allwomenstalk.com/celebrities-who-support-the-rainforest/)
 - [british actors that do american accents](https://movies.allwomenstalk.com/british-actors-who-can-do-american-accents-perfectly/)
+- [hard actors to guess](https://movies.allwomenstalk.com/actors-who-turned-down-legendary-roles/)
+- [historic actors](https://movies.allwomenstalk.com/celebrities-who-played-historical-figures-perfectly/)
+- [hottest greys anatomy characters](https://movies.allwomenstalk.com/hottest-guys-on-greys-anatomy-that-we-cant-help-but-love/)
 - [brittany murphy deces](https://celebs.allwomenstalk.com/of-the-most-sudden-celebrity-deaths/)
 - [celebs with big hair](https://celebs.allwomenstalk.com/celebrities-who-cut-their-long-hair-short/)
 - [10 Famous People Who Were Adopted ...](https://celebs.allwomenstalk.com/10-famous-people-who-were-adopted/)

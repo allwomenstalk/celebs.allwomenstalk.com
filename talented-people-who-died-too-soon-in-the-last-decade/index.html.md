@@ -57,15 +57,15 @@ So this is my list of people who I think made a difference in many ways: on the 
 ## Related Posts
 
 - [lara spencer beach](https://celebs.allwomenstalk.com/celebs-who-have-dressed-up-as-miley-cyrus/)
+- [2014 rock and roll hall of fame](https://music.allwomenstalk.com/new-members-of-the-rock-and-roll-hall-of-fame-for/)
 - [always trending](https://celebs.allwomenstalk.com/popular-celebrities-who-are-always-trending/)
 - [environmentally friendly celebrities](https://celebs.allwomenstalk.com/celebrities-and-the-environmental-causes-they-support/)
+- [roman josi hair](https://celebs.allwomenstalk.com/gorgeous-athletes-to-watch-for-at-the-olympics/)
+- [beyonce reaction](https://celebs.allwomenstalk.com/celeb-reactions-to-beyonces-new-album/)
 - [celebrities with binge eating](https://celebs.allwomenstalk.com/celebrities-who-have-battled-eating-disorders/)
 - [why did danny leave the mindy project](https://hair.allwomenstalk.com/celebrities-who-tried-a-pixie-cut/)
-- [roman josi hair](https://celebs.allwomenstalk.com/gorgeous-athletes-to-watch-for-at-the-olympics/)
-- [2014 rock and roll hall of fame](https://music.allwomenstalk.com/new-members-of-the-rock-and-roll-hall-of-fame-for/)
-- [josh peck aging](https://celebs.allwomenstalk.com/hysterical-nickelodeon-actors-who-grew-up-to-be-hot/)
 - [celebrities who currently live in kentucky](https://celebs.allwomenstalk.com/celebrities-who-are-originally-from-kentucky/)
-- [beyonce reaction](https://celebs.allwomenstalk.com/celeb-reactions-to-beyonces-new-album/)
+- [josh peck aging](https://celebs.allwomenstalk.com/hysterical-nickelodeon-actors-who-grew-up-to-be-hot/)
 - [7 of My Favorite Celebrities ...](https://celebs.allwomenstalk.com/7-of-my-favorite-celebrities/)
 - [7 Celebrities Who Got Married Far Too Young ...](https://allwomenstalk.com/7-celebrities-who-got-married-far-too-young/)
 

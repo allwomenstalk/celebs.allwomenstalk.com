@@ -68,16 +68,16 @@ I wouldn’t describe him as hot and hunky per se, but I happen to have a bit of
 
 ## Related Posts
 
-- [ambivantly](https://inspiration.allwomenstalk.com/im-forever-ambivalently-yours/)
 - [real wizards](https://lifestyle.allwomenstalk.com/real-wizards-who-would-have-been-a-match-for-harry-potter/)
-- [vikki carr songs](https://music.allwomenstalk.com/types-of-dances-to-learn-before-you-die/)
-- [scariest rollercoaster ride](https://travel.allwomenstalk.com/terrifying-theme-park-rides-most-people-wont-dare-to-go-on/)
 - [game of thrones meme gif](https://fashion.allwomenstalk.com/here-are-the-game-of-thrones-gifs-thatll-describe-your-life-perfectly/)
-- [funny bone youtube](https://funny.allwomenstalk.com/youtube-channels-guaranteed-to-tickle-your-funny-bone/)
+- [brain game shows](https://movies.allwomenstalk.com/watch-these-things-on-netflix-to-boost-your-brain-power/)
+- [2 disney characters](https://movies.allwomenstalk.com/disney-characters-who-would-make-the-best-dates/)
+- [scariest rollercoaster ride](https://travel.allwomenstalk.com/terrifying-theme-park-rides-most-people-wont-dare-to-go-on/)
 - [harry potter bar toronto](https://movies.allwomenstalk.com/a-harry-potter-themed-bar-just-opened-its-doors/)
 - [martun luther king](https://lifestyle.allwomenstalk.com/great-leaders-in-history-who-have-changed-the-world/)
-- [2 disney characters](https://movies.allwomenstalk.com/disney-characters-who-would-make-the-best-dates/)
-- [brain game shows](https://movies.allwomenstalk.com/watch-these-things-on-netflix-to-boost-your-brain-power/)
+- [vikki carr songs](https://music.allwomenstalk.com/types-of-dances-to-learn-before-you-die/)
+- [ambivantly](https://inspiration.allwomenstalk.com/im-forever-ambivalently-yours/)
+- [funny bone youtube](https://funny.allwomenstalk.com/youtube-channels-guaranteed-to-tickle-your-funny-bone/)
 - [On Southern Boys ...](https://allwomenstalk.com/on-southern-boys/)
 - [Tasteful Nudes ...](https://allwomenstalk.com/tasteful-nudes/)
 

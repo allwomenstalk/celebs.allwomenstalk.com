@@ -56,16 +56,16 @@ Well, there you have it! These are just seven out of many pairs of celeb lookali
 
 ## Related Posts
 
-- [justin berfield height](https://movies.allwomenstalk.com/noughties-tv-stars-we-all-seriously-miss/)
-- [best celebrity interviews](https://celebs.allwomenstalk.com/best-celebrity-interviews-on-ellen/)
-- [brendan fraser sexiest man alive](https://celebs.allwomenstalk.com/celebrities-who-are-fading-quickly/)
-- [dilligaf tattoo meaning](https://celebs.allwomenstalk.com/celebs-who-are-obsessed-with-tattoos/)
-- [riche le stylo eye timeless spark](https://celebs.allwomenstalk.com/celebrities-with-famous-godparents-that-you-probably-didnt-know-about/)
-- [alyson hannigan looks like](https://celebs.allwomenstalk.com/celebrities-who-look-like-they-never-age/)
-- [zan efron](https://celebs.allwomenstalk.com/disney-celebs-whove-gone-on-to-do-big-things/)
-- [lauren jauregui weight gain](https://celebs.allwomenstalk.com/celebs-who-rock-bold-brows-and-look-fab/)
 - [celebrities with non famous spouses](https://celebs.allwomenstalk.com/celebrities-who-married-non-celebrities/)
+- [dilligaf tattoo meaning](https://celebs.allwomenstalk.com/celebs-who-are-obsessed-with-tattoos/)
+- [justin berfield height](https://movies.allwomenstalk.com/noughties-tv-stars-we-all-seriously-miss/)
+- [zan efron](https://celebs.allwomenstalk.com/disney-celebs-whove-gone-on-to-do-big-things/)
 - [new york actresses over 50](https://celebs.allwomenstalk.com/actresses-over-50-who-are-still-fabulous/)
+- [lauren jauregui weight gain](https://celebs.allwomenstalk.com/celebs-who-rock-bold-brows-and-look-fab/)
+- [best celebrity interviews](https://celebs.allwomenstalk.com/best-celebrity-interviews-on-ellen/)
+- [alyson hannigan looks like](https://celebs.allwomenstalk.com/celebrities-who-look-like-they-never-age/)
+- [riche le stylo eye timeless spark](https://celebs.allwomenstalk.com/celebrities-with-famous-godparents-that-you-probably-didnt-know-about/)
+- [brendan fraser sexiest man alive](https://celebs.allwomenstalk.com/celebrities-who-are-fading-quickly/)
 - [9 Amazing Celebrity Families ...](https://allwomenstalk.com/9-amazing-celebrity-families/)
 - [7 Very Strange Celebrity Couples ...](https://allwomenstalk.com/7-very-strange-celebrity-couples/)
 

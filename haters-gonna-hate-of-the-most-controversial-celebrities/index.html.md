@@ -158,16 +158,16 @@ Definitely do give your opinions on the controversy rating you'd give these part
 
 ## Related Posts
 
-- [rowan blanchard pixie](https://fashion.allwomenstalk.com/these-teen-stars-have-some-serious-style/)
-- [emma stone lip filler](https://celebs.allwomenstalk.com/see-how-celebs-responded-perfectly-to-sexism/)
-- [clare elaine woodgate](https://celebs.allwomenstalk.com/you-will-not-believe-the-real-names-of-these-celebs/)
 - [new artists 2016](https://music.allwomenstalk.com/artists-that-are-going-to-hit-it-big-in/)
-- [celebrities imitating other celebrities](https://celebs.allwomenstalk.com/youve-got-to-see-these-celebrities-imitating-other-celebrities/)
-- [high school musical audition](https://movies.allwomenstalk.com/high-school-musical-reunion-see-the-actors-audition-tapes/)
+- [what is considered a crop top](https://fashion.allwomenstalk.com/these-celebs-that-prove-every-body-type-can-rock-a-crop-top/)
 - [light skin actors in their 20s](https://celebs.allwomenstalk.com/dont-feel-bad-what-successful-celebs-were-doing-in-their-20s/)
+- [high school musical audition](https://movies.allwomenstalk.com/high-school-musical-reunion-see-the-actors-audition-tapes/)
+- [clare elaine woodgate](https://celebs.allwomenstalk.com/you-will-not-believe-the-real-names-of-these-celebs/)
+- [celebrities imitating other celebrities](https://celebs.allwomenstalk.com/youve-got-to-see-these-celebrities-imitating-other-celebrities/)
+- [emma stone lip filler](https://celebs.allwomenstalk.com/see-how-celebs-responded-perfectly-to-sexism/)
+- [rowan blanchard pixie](https://fashion.allwomenstalk.com/these-teen-stars-have-some-serious-style/)
 - [famous women who wear glasses](https://celebs.allwomenstalk.com/how-to-wear-glasses-as-told-by-celebrities/)
 - [disney recognize now](https://celebs.allwomenstalk.com/female-disney-stars-who-you-wont-even-recognize-now/)
-- [what is considered a crop top](https://fashion.allwomenstalk.com/these-celebs-that-prove-every-body-type-can-rock-a-crop-top/)
 - [25 Most Messed up Celebrities ...](https://celebs.allwomenstalk.com/25-most-messed-up-celebrities/)
 - [25 Smartest Celebrities ...](https://celebs.allwomenstalk.com/25-smartest-celebrities/)
 

@@ -84,16 +84,16 @@ Do you have a favorite celebrity impersonation? Better yet, do you do one? SHOW 
 
 ## Related Posts
 
-- [new artists 2016](https://music.allwomenstalk.com/artists-that-are-going-to-hit-it-big-in/)
-- [clare elaine woodgate](https://celebs.allwomenstalk.com/you-will-not-believe-the-real-names-of-these-celebs/)
-- [rowan blanchard pixie](https://fashion.allwomenstalk.com/these-teen-stars-have-some-serious-style/)
-- [color le shadow hollywood icon](https://hair.allwomenstalk.com/yeah-we-all-wish-we-had-these-celebs-hair/)
-- [disney recognize now](https://celebs.allwomenstalk.com/female-disney-stars-who-you-wont-even-recognize-now/)
-- [high school musical audition](https://movies.allwomenstalk.com/high-school-musical-reunion-see-the-actors-audition-tapes/)
 - [what is considered a crop top](https://fashion.allwomenstalk.com/these-celebs-that-prove-every-body-type-can-rock-a-crop-top/)
-- [light skin actors in their 20s](https://celebs.allwomenstalk.com/dont-feel-bad-what-successful-celebs-were-doing-in-their-20s/)
 - [famous women who wear glasses](https://celebs.allwomenstalk.com/how-to-wear-glasses-as-told-by-celebrities/)
+- [color le shadow hollywood icon](https://hair.allwomenstalk.com/yeah-we-all-wish-we-had-these-celebs-hair/)
+- [high school musical audition](https://movies.allwomenstalk.com/high-school-musical-reunion-see-the-actors-audition-tapes/)
+- [disney recognize now](https://celebs.allwomenstalk.com/female-disney-stars-who-you-wont-even-recognize-now/)
+- [new artists 2016](https://music.allwomenstalk.com/artists-that-are-going-to-hit-it-big-in/)
+- [light skin actors in their 20s](https://celebs.allwomenstalk.com/dont-feel-bad-what-successful-celebs-were-doing-in-their-20s/)
+- [clare elaine woodgate](https://celebs.allwomenstalk.com/you-will-not-believe-the-real-names-of-these-celebs/)
 - [emma stone lip filler](https://celebs.allwomenstalk.com/see-how-celebs-responded-perfectly-to-sexism/)
+- [rowan blanchard pixie](https://fashion.allwomenstalk.com/these-teen-stars-have-some-serious-style/)
 - [The Biggest Names Making Caricatures of Themselves...](https://allwomenstalk.com/the-biggest-names-making-caricatures-of-themselves/)
 - [15 Celebrities Who Look like Other Celebrities - S...](https://celebs.allwomenstalk.com/celebrities-who-look-like-other-celebrities-see-it-to-believe-it/)
 

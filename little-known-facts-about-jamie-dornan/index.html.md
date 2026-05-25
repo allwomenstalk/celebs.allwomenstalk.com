@@ -32,16 +32,16 @@ His dance instructor suggested that he should focus on a heel-to-toe movement. T
 
 ## Related Posts
 
-- [2018 coachella headliners](https://music.allwomenstalk.com/coachella-headliners/)
-- [celebs born in 1976](https://celebs.allwomenstalk.com/celebrities-born-in-february/)
-- [90s heartthrobs actors](https://celebs.allwomenstalk.com/heartthrobs-of-the-1990s/)
-- [celebrities born february 18](https://celebs.allwomenstalk.com/celebrities-born-in-february-3/)
-- [celebrities born on february 4th](https://celebs.allwomenstalk.com/celebrities-born-in-february-4/)
-- [wokest celebrities](https://celebs.allwomenstalk.com/who-are-the-most-charitable-celebrities/)
-- [lake como celebrities](https://travel.allwomenstalk.com/where-celebrities-go-on-vacation/)
 - [celebrities born on february 2](https://celebs.allwomenstalk.com/celebrities-born-in-february-2/)
-- [designer valentines day gifts](https://celebs.allwomenstalk.com/most-expensive-valentines-gifts-given-by-celebrities/)
+- [celebs born in 1976](https://celebs.allwomenstalk.com/celebrities-born-in-february/)
+- [2018 coachella headliners](https://music.allwomenstalk.com/coachella-headliners/)
+- [90s heartthrobs actors](https://celebs.allwomenstalk.com/heartthrobs-of-the-1990s/)
 - [best housewives of all time](https://movies.allwomenstalk.com/the-best-real-housewives-of-beverly-hills/)
+- [celebrities born on february 4th](https://celebs.allwomenstalk.com/celebrities-born-in-february-4/)
+- [lake como celebrities](https://travel.allwomenstalk.com/where-celebrities-go-on-vacation/)
+- [designer valentines day gifts](https://celebs.allwomenstalk.com/most-expensive-valentines-gifts-given-by-celebrities/)
+- [celebrities born february 18](https://celebs.allwomenstalk.com/celebrities-born-in-february-3/)
+- [wokest celebrities](https://celebs.allwomenstalk.com/who-are-the-most-charitable-celebrities/)
 - [5 Hot Vampire Guys from the Twilight Series ...](https://twilight.allwomenstalk.com/5-hot-vampire-guys-from-the-twilight-series/)
 - [5 Facts on Robert Pattinson ...](https://twilight.allwomenstalk.com/5-facts-on-robert-pattinson/)
 

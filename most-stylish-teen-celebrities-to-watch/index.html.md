@@ -76,16 +76,16 @@ Top Image Source: [weheartit.com](https://weheartit.com/entry/10873962)
 
 ## Related Posts
 
-- [rihanna no make up](https://celebs.allwomenstalk.com/no-makeup-celebrities-that-look-great/)
-- [stephenie meyer twilight cameo](https://movies.allwomenstalk.com/writers-who-made-a-cameo-appearance/)
-- [best front men](https://celebs.allwomenstalk.com/hottest-band-front-men/)
-- [hot hollywood news](https://celebs.allwomenstalk.com/hot-hollywood-stars-with-troubled-pasts/)
-- [dilf celebs](https://celebs.allwomenstalk.com/gorgeous-celebrities-both-men-and-women-drool-over/)
-- [celebrity girl crush list](https://celebs.allwomenstalk.com/fabulous-celebrities-its-okay-to-have-a-girl-crush-on/)
+- [is natalie portman smart](https://celebs.allwomenstalk.com/super-smart-celebrities/)
 - [edward cullen sixpack](https://celebs.allwomenstalk.com/top-hot-actors-who-should-play-christian-grey/)
 - [weddings while pregnant](https://wedding.allwomenstalk.com/gorgeous-pregnant-celebrity-brides/)
-- [is natalie portman smart](https://celebs.allwomenstalk.com/super-smart-celebrities/)
+- [celebrity girl crush list](https://celebs.allwomenstalk.com/fabulous-celebrities-its-okay-to-have-a-girl-crush-on/)
+- [rihanna no make up](https://celebs.allwomenstalk.com/no-makeup-celebrities-that-look-great/)
+- [dilf celebs](https://celebs.allwomenstalk.com/gorgeous-celebrities-both-men-and-women-drool-over/)
+- [stephenie meyer twilight cameo](https://movies.allwomenstalk.com/writers-who-made-a-cameo-appearance/)
+- [best front men](https://celebs.allwomenstalk.com/hottest-band-front-men/)
 - [celebs with rosacea](https://skincare.allwomenstalk.com/hot-celebs-with-skincare-issues/)
+- [hot hollywood news](https://celebs.allwomenstalk.com/hot-hollywood-stars-with-troubled-pasts/)
 - [8 Most Stylish Female Celebrities of 2011 ...](https://celebs.allwomenstalk.com/most-stylish-female-celebrities-of/)
 - [7 Fashionable Celebrities to Watch in 2012 ...](https://celebs.allwomenstalk.com/fashionable-celebrities-to-watch-in/)
 

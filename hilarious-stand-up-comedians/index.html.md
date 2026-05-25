@@ -56,16 +56,16 @@ I hope you find these comedians as funny as I do. Who’s your favorite stand-up
 
 ## Related Posts
 
-- [incredible abilities](https://health.allwomenstalk.com/people-with-amazing-abilities/)
-- [justin timberlake funny moments](https://celebs.allwomenstalk.com/funniest-justin-timberlake-moments/)
-- [rugrats opposites attract](https://celebs.allwomenstalk.com/tv-bromances-that-show-the-meaning-of-friendship/)
-- [riche le stylo smoky garde](https://movies.allwomenstalk.com/real-stories-behind-our-favorite-disney-classics/)
-- [kingsley youtube](https://lifestyle.allwomenstalk.com/insanely-funny-youtube-channels-worth-subscribing-to/)
 - [harmless crush](https://love.allwomenstalk.com/seemingly-innocent-but-dangerous-crushes-that-could-cause-trouble/)
-- [why was the great cancelled](https://lifestyle.allwomenstalk.com/great-tv-shows-that-were-cancelled-in-their-prime/)
-- [weird talents](https://lifestyle.allwomenstalk.com/creative-talents-that-are-underrated-and-underappreciated/)
-- [horror genre elements](https://movies.allwomenstalk.com/standard-characters-in-almost-every-horror-movie/)
 - [games from tv shows](https://lifestyle.allwomenstalk.com/board-games-on-tv-shows-that-should-be-real/)
+- [weird talents](https://lifestyle.allwomenstalk.com/creative-talents-that-are-underrated-and-underappreciated/)
+- [incredible abilities](https://health.allwomenstalk.com/people-with-amazing-abilities/)
+- [why was the great cancelled](https://lifestyle.allwomenstalk.com/great-tv-shows-that-were-cancelled-in-their-prime/)
+- [kingsley youtube](https://lifestyle.allwomenstalk.com/insanely-funny-youtube-channels-worth-subscribing-to/)
+- [horror genre elements](https://movies.allwomenstalk.com/standard-characters-in-almost-every-horror-movie/)
+- [justin timberlake funny moments](https://celebs.allwomenstalk.com/funniest-justin-timberlake-moments/)
+- [riche le stylo smoky garde](https://movies.allwomenstalk.com/real-stories-behind-our-favorite-disney-classics/)
+- [rugrats opposites attract](https://celebs.allwomenstalk.com/tv-bromances-that-show-the-meaning-of-friendship/)
 - [7 Hilarious Comedies to Rent ...](https://movies.allwomenstalk.com/hilarious-comedies-to-rent/)
 - [7 Amazing Satirists ...](https://allwomenstalk.com/7-amazing-satirists/)
 

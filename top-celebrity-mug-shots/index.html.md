@@ -70,16 +70,16 @@ Top Image Source: [weheartit.com](https://weheartit.com/entry/1039903)
 
 ## Related Posts
 
-- [hot peopel](https://allwomenstalk.com/guess-who-the-sexiest-men-celebrities-are/)
-- [embarrassing moments celebrities](https://celebs.allwomenstalk.com/most-embarrassing-celeb-moments-youve-got-to-hear-about/)
-- [what celebrity named their kid pillow](https://celebs.allwomenstalk.com/off-the-wall-celebrity-baby-names/)
 - [7 Sexy Leading Men from Britain ...](https://movies.allwomenstalk.com/sexy-leading-men-from-britain/)
+- [good hearted celebrities](https://celebs.allwomenstalk.com/nicest-celebrities-who-have-a-heart-of-gold/)
+- [what celebrity named their kid pillow](https://celebs.allwomenstalk.com/off-the-wall-celebrity-baby-names/)
+- [disney fairytale weddings divorce](https://wedding.allwomenstalk.com/celeb-brides-youd-love-to-see-walk-down-the-aisle/)
+- [celebrities favorite snacks](https://celebs.allwomenstalk.com/celebrity-snack-cravings/)
+- [waking up dehydrated meme](https://celebs.allwomenstalk.com/annoying-things-celebrities-do/)
+- [embarrassing moments celebrities](https://celebs.allwomenstalk.com/most-embarrassing-celeb-moments-youve-got-to-hear-about/)
 - [hottest teen](https://allwomenstalk.com/15-hottest-teen-celebrities_/)
 - [celebrity holiday cards](https://allwomenstalk.com/celebrity-holiday-cards-pick-your-favorite/)
-- [good hearted celebrities](https://celebs.allwomenstalk.com/nicest-celebrities-who-have-a-heart-of-gold/)
-- [disney fairytale weddings divorce](https://wedding.allwomenstalk.com/celeb-brides-youd-love-to-see-walk-down-the-aisle/)
-- [waking up dehydrated meme](https://celebs.allwomenstalk.com/annoying-things-celebrities-do/)
-- [celebrities favorite snacks](https://celebs.allwomenstalk.com/celebrity-snack-cravings/)
+- [hot peopel](https://allwomenstalk.com/guess-who-the-sexiest-men-celebrities-are/)
 - [Top 9 Movie Kisses ...](https://7fun.net/my-top-9-movie-kisses/)
 - [9 Amazing Celebrity Wedding Dresses ...](https://celebs.allwomenstalk.com/amazing-celebrity-wedding-dresses/)
 

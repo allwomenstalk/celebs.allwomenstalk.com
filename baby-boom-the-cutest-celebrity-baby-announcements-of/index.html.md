@@ -50,16 +50,16 @@ Can you think of any other baby announcements that should be added to the list?
 
 ## Related Posts
 
-- [riche le stylo eye shadow timeless blue spark](https://celebs.allwomenstalk.com/celebrity-tbt-posts-you-mightve-missed-this-week/)
-- [7 Child Stars Who Are Still Awesome Today ...](https://movies.allwomenstalk.com/child-stars-who-are-still-awesome-today/)
-- [10 Celebrity Posts You Mightve Missed This Weekend...](https://celebs.allwomenstalk.com/celebrity-posts-you-mightve-missed-this-weekend/)
-- [9 Celebrities Open up about Filming Those Awkward ...](https://movies.allwomenstalk.com/celebrities-open-up-about-filming-those-awkward-sex-scenes/)
-- [10 Celebrity TBT Photos You May Have Missed This W...](https://celebs.allwomenstalk.com/celebrity-tbt-photos-you-may-have-missed-this-week-2/)
-- [10 Celebrity TBT Posts You Mightve Missed This Wee...](https://celebs.allwomenstalk.com/celebrity-tbt-posts-you-mightve-missed-this-week-2/)
-- [10 Celebrity Posts You Mightve Missed This Weekend...](https://celebs.allwomenstalk.com/celebrity-posts-you-mightve-missed-this-weekend-4/)
-- [celebrities unicef](https://celebs.allwomenstalk.com/celebrities-share-makeup-free-selfies-for-new-unicef-campaign/)
 - [10 Celebrity Posts You Mightve Missed This Weekend...](https://celebs.allwomenstalk.com/celebrity-posts-you-mightve-missed-this-weekend-2/)
+- [10 Celebrity TBT Posts You Mightve Missed This Wee...](https://celebs.allwomenstalk.com/celebrity-tbt-posts-you-mightve-missed-this-week-2/)
+- [9 Celebrities Open up about Filming Those Awkward ...](https://movies.allwomenstalk.com/celebrities-open-up-about-filming-those-awkward-sex-scenes/)
+- [10 Celebrity Posts You Mightve Missed This Weekend...](https://celebs.allwomenstalk.com/celebrity-posts-you-mightve-missed-this-weekend-4/)
+- [riche le stylo eye shadow timeless blue spark](https://celebs.allwomenstalk.com/celebrity-tbt-posts-you-mightve-missed-this-week/)
+- [10 Celebrity TBT Photos You May Have Missed This W...](https://celebs.allwomenstalk.com/celebrity-tbt-photos-you-may-have-missed-this-week-2/)
+- [10 Celebrity Posts You Mightve Missed This Weekend...](https://celebs.allwomenstalk.com/celebrity-posts-you-mightve-missed-this-weekend/)
+- [celebrities unicef](https://celebs.allwomenstalk.com/celebrities-share-makeup-free-selfies-for-new-unicef-campaign/)
 - [Celebs Share Voting Day Selfies to Encourage Fans ...](https://celebs.allwomenstalk.com/celebs-share-voting-day-selfies-to-encourage-fans-to-vote/)
+- [7 Child Stars Who Are Still Awesome Today ...](https://movies.allwomenstalk.com/child-stars-who-are-still-awesome-today/)
 - [25 Most Unique Celebrity Baby Names ...](https://celebs.allwomenstalk.com/25-most-unique-celebrity-baby-names/)
 - [20 Cutest Celebrity Kids ...](https://allwomenstalk.com/20-cutest-celebrity-kids/)
 

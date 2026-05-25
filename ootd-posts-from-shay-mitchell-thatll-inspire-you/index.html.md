@@ -68,16 +68,16 @@ Which look is your favorite? Follow @shaym on Instagram for more #OOTD posts!
 
 ## Related Posts
 
-- [national geographic image collection](https://travel.allwomenstalk.com/stunning-and-fascinating-national-geographic-portraits/)
-- [picture profile 7](https://lifestyle.allwomenstalk.com/things-your-profile-pictures-say-about-you-to-others/)
-- [step up zendaya](https://celebs.allwomenstalk.com/step-up-your-selfie-game-with-inspiration-from-zendaya/)
-- [four sisters photos](https://lifestyle.allwomenstalk.com/four-sisters-transform-before-your-eyes-with-this-beautiful-photo-series/)
-- [what is bethany mota doing now](https://lifestyle.allwomenstalk.com/cute-moments-from-bethany-motas-insta/)
 - [fall photo prop](https://inspiration.allwomenstalk.com/fall-family-photo-ideas-youve-just-got-to-see/)
+- [four sisters photos](https://lifestyle.allwomenstalk.com/four-sisters-transform-before-your-eyes-with-this-beautiful-photo-series/)
+- [picture profile 7](https://lifestyle.allwomenstalk.com/things-your-profile-pictures-say-about-you-to-others/)
+- [what is bethany mota doing now](https://lifestyle.allwomenstalk.com/cute-moments-from-bethany-motas-insta/)
+- [engagement photos ring](https://wedding.allwomenstalk.com/steps-to-the-perfect-engagement-ring-selfie/)
 - [janel parrish bulldog](https://celebs.allwomenstalk.com/cuteness-overload-celebrity-pets-on-instagram/)
 - [ig vs facebook](https://apps.allwomenstalk.com/reasons-to-use-instagram-over-facebook/)
+- [step up zendaya](https://celebs.allwomenstalk.com/step-up-your-selfie-game-with-inspiration-from-zendaya/)
+- [national geographic image collection](https://travel.allwomenstalk.com/stunning-and-fascinating-national-geographic-portraits/)
 - [vintage pictures of marilyn monroe](https://celebs.allwomenstalk.com/gorgeous-images-of-marilyn-monroe-that-you-might-not-have-seen-before/)
-- [engagement photos ring](https://wedding.allwomenstalk.com/steps-to-the-perfect-engagement-ring-selfie/)
 - [5 Holiday Outfit Posts to BlogStalk...](https://allwomenstalk.com/5-holiday-outfit-posts-to-blogstalk/)
 - [5 Holiday Outfit Posts to BlogStalk...](https://allwomenstalk.com/5-holiday-outfit-posts-to-blogstalk-2/)
 

@@ -80,16 +80,16 @@ There are so many wonderful child actors out there that are beyond successful, a
 
 ## Related Posts
 
-- [josh peck aging](https://celebs.allwomenstalk.com/hysterical-nickelodeon-actors-who-grew-up-to-be-hot/)
+- [environmentally friendly celebrities](https://celebs.allwomenstalk.com/celebrities-and-the-environmental-causes-they-support/)
+- [lara spencer beach](https://celebs.allwomenstalk.com/celebs-who-have-dressed-up-as-miley-cyrus/)
 - [celebrities who currently live in kentucky](https://celebs.allwomenstalk.com/celebrities-who-are-originally-from-kentucky/)
 - [2014 rock and roll hall of fame](https://music.allwomenstalk.com/new-members-of-the-rock-and-roll-hall-of-fame-for/)
-- [lara spencer beach](https://celebs.allwomenstalk.com/celebs-who-have-dressed-up-as-miley-cyrus/)
-- [always trending](https://celebs.allwomenstalk.com/popular-celebrities-who-are-always-trending/)
-- [environmentally friendly celebrities](https://celebs.allwomenstalk.com/celebrities-and-the-environmental-causes-they-support/)
-- [beyonce reaction](https://celebs.allwomenstalk.com/celeb-reactions-to-beyonces-new-album/)
 - [celebrities with binge eating](https://celebs.allwomenstalk.com/celebrities-who-have-battled-eating-disorders/)
+- [beyonce reaction](https://celebs.allwomenstalk.com/celeb-reactions-to-beyonces-new-album/)
 - [people who died too soon](https://celebs.allwomenstalk.com/talented-people-who-died-too-soon-in-the-last-decade/)
+- [josh peck aging](https://celebs.allwomenstalk.com/hysterical-nickelodeon-actors-who-grew-up-to-be-hot/)
 - [disney stars grown up](https://celebs.allwomenstalk.com/child-celebs-who-grew-up-to-be-great-role-models/)
+- [always trending](https://celebs.allwomenstalk.com/popular-celebrities-who-are-always-trending/)
 - [5 Latest News about Our Favorite Young Stars ...](https://allwomenstalk.com/5-latest-news-about-our-favorite-young-stars/)
 - [9 Amazing Celebrity Families ...](https://allwomenstalk.com/9-amazing-celebrity-families/)
 

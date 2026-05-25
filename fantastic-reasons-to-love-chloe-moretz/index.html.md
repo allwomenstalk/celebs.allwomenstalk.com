@@ -42,16 +42,16 @@ Well, there you have it. These are just seven out of many awesome reasons to lov
 
 ## Related Posts
 
-- [is anne hathaway nice](https://celebs.allwomenstalk.com/fantastic-reasons-to-love-anne-hathaway/)
-- [stephen fry prison sentence](https://celebs.allwomenstalk.com/reasons-to-love-stephen-fry/)
 - [phoebe tonkin skincare](https://celebs.allwomenstalk.com/awesome-reasons-to-love-phoebe-tonkin/)
-- [my father is super hero](https://parenting.allwomenstalk.com/reasons-why-dads-are-real-superheroes/)
-- [left-handed lovers meaning](https://love.allwomenstalk.com/awesome-reasons-to-date-a-lefty/)
-- [jennifer lopez why is she famous](https://celebs.allwomenstalk.com/reasons-to-love-jennifer-lopez-even-now/)
-- [should i watch once upon a time](https://movies.allwomenstalk.com/awesome-reasons-why-you-should-binge-watch-once-upon-a-time/)
-- [is twd a good show](https://movies.allwomenstalk.com/reasons-to-watch-the-walking-dead/)
-- [troian bellisario movies and tv shows](https://celebs.allwomenstalk.com/fantastic-reasons-to-love-troian-bellisario/)
+- [is anne hathaway nice](https://celebs.allwomenstalk.com/fantastic-reasons-to-love-anne-hathaway/)
 - [two kinds amy tan story](https://books.allwomenstalk.com/reasons-to-read-amy-tan/)
+- [troian bellisario movies and tv shows](https://celebs.allwomenstalk.com/fantastic-reasons-to-love-troian-bellisario/)
+- [stephen fry prison sentence](https://celebs.allwomenstalk.com/reasons-to-love-stephen-fry/)
+- [should i watch once upon a time](https://movies.allwomenstalk.com/awesome-reasons-why-you-should-binge-watch-once-upon-a-time/)
+- [jennifer lopez why is she famous](https://celebs.allwomenstalk.com/reasons-to-love-jennifer-lopez-even-now/)
+- [left-handed lovers meaning](https://love.allwomenstalk.com/awesome-reasons-to-date-a-lefty/)
+- [is twd a good show](https://movies.allwomenstalk.com/reasons-to-watch-the-walking-dead/)
+- [my father is super hero](https://parenting.allwomenstalk.com/reasons-why-dads-are-real-superheroes/)
 - [10 Reasons to Love Kate Winslet ...](https://allwomenstalk.com/10-reasons-to-love-kate-winslet/)
 - [7 Reasons to Love Cara Delevingne ...](https://celebs.allwomenstalk.com/reasons-to-love-cara-delevingne/)
 

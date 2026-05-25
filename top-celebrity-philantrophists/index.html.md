@@ -28,16 +28,16 @@ I wonder where Angelina Jolie, Brad Pitt, Bono, Madonna and the rest of the usua
 
 ## Related Posts
 
-- [celebrity wedding favors](https://celebs.allwomenstalk.com/celebrity-weddings-to-watch-for-in/)
-- [celebrities with body parts insured](https://celebs.allwomenstalk.com/top-celebrity-insured-body-parts/)
-- [female celebrity smokers uk](https://celebs.allwomenstalk.com/women-celebrities-who-smoke/)
-- [celebrity marriage proposals](https://celebs.allwomenstalk.com/inspiring-and-sweet-celebrity-marriage-proposals/)
 - [down to earth actresses](https://celebs.allwomenstalk.com/most-down-to-earth-celebrities/)
+- [female celebrity smokers uk](https://celebs.allwomenstalk.com/women-celebrities-who-smoke/)
 - [men who look better with age](https://celebs.allwomenstalk.com/celebrity-men-that-look-better-with-age/)
-- [7 Celebrities I Would like to Hang with ...](https://celebs.allwomenstalk.com/7-celebrities-i-would-like-to-hang-with/)
+- [celebrity wedding favors](https://celebs.allwomenstalk.com/celebrity-weddings-to-watch-for-in/)
+- [8 Celebrity Pictures to Enjoy Today ...](https://celebs.allwomenstalk.com/celebrity-pictures-to-enjoy-today/)
 - [best celebrity diets](https://celebs.allwomenstalk.com/top-bizarre-celebrity-diets/)
 - [famous people who smoke weed](https://celebs.allwomenstalk.com/celebrities-who-smoke-weed/)
-- [8 Celebrity Pictures to Enjoy Today ...](https://celebs.allwomenstalk.com/celebrity-pictures-to-enjoy-today/)
+- [7 Celebrities I Would like to Hang with ...](https://celebs.allwomenstalk.com/7-celebrities-i-would-like-to-hang-with/)
+- [celebrity marriage proposals](https://celebs.allwomenstalk.com/inspiring-and-sweet-celebrity-marriage-proposals/)
+- [celebrities with body parts insured](https://celebs.allwomenstalk.com/top-celebrity-insured-body-parts/)
 - [The Most Overpaid Actors in Hollywood ...](https://celebs.allwomenstalk.com/the-most-overpaid-actors-in-hollywood/)
 - [Highest Earning Celebrities of 2010...](https://celebs.allwomenstalk.com/highest-earning-celebrities-of/)
 

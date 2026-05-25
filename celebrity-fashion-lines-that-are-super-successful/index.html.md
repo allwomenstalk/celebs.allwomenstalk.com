@@ -56,16 +56,16 @@ I can honestly say, this was a hard list to make, as I wanted to include some ot
 
 ## Related Posts
 
-- [marion cotillard fashion](https://fashion.allwomenstalk.com/fashion-forward-looks-from-marion-cotillard/)
-- [zooey deschanel young pictures](https://fashion.allwomenstalk.com/fashion-icons-your-daughter-should-look-up-to/)
 - [nicki minaj style clothes](https://celebs.allwomenstalk.com/absolutely-crazy-nicki-minaj-outfits-that-youd-have-to-see-to-believe/)
-- [kate middleton in pink](https://fashion.allwomenstalk.com/of-kate-middletons-best-fashion-looks-that-we-cant-get-over/)
-- [heavy models](https://fashion.allwomenstalk.com/plus-size-models-that-should-be-on-your-radar/)
 - [stylish black and white outfits](https://streetstyle.allwomenstalk.com/chic-black-and-white-street-style-looks/)
 - [mamie eisenhower grandparents](https://fashion.allwomenstalk.com/ways-mamie-eisenhower-contributed-to-fashion-in-the-1950s/)
-- [lauren conrad outfit](https://fashion.allwomenstalk.com/of-lauren-conrads-best-looks-that-we-love/)
 - [preppy actresses](https://fashion.allwomenstalk.com/most-fabulous-fashion-icons-for-prepsters/)
 - [kerry washington stylist](https://fashion.allwomenstalk.com/fabulous-outfits-worn-by-kerry-washington/)
+- [marion cotillard fashion](https://fashion.allwomenstalk.com/fashion-forward-looks-from-marion-cotillard/)
+- [lauren conrad outfit](https://fashion.allwomenstalk.com/of-lauren-conrads-best-looks-that-we-love/)
+- [zooey deschanel young pictures](https://fashion.allwomenstalk.com/fashion-icons-your-daughter-should-look-up-to/)
+- [kate middleton in pink](https://fashion.allwomenstalk.com/of-kate-middletons-best-fashion-looks-that-we-cant-get-over/)
+- [heavy models](https://fashion.allwomenstalk.com/plus-size-models-that-should-be-on-your-radar/)
 - [7 Successful Celebrity Fashion Lines ...](https://fashion.allwomenstalk.com/successful-celebrity-fashion-lines/)
 - [7 Popular Fashion Magazines ...](https://allwomenstalk.com/7-popular-fashion-magazines/)
 

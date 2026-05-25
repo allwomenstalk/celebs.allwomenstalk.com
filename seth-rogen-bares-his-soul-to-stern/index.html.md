@@ -24,16 +24,16 @@ Rogen refused to divulge the date of the wedding with the fear of the paparazzi 
 
 ## Related Posts
 
-- [Lionel Richie Calls Himself the Greatest Porn Star](https://allwomenstalk.com/lionel-richie-calls-himself-the-greatest-porn-star/)
-- [Johnny Never to Marry Vanessa ...](https://celebs.allwomenstalk.com/johnny-never-to-marry-vanessa/)
-- [Constant Fighting Ended Richie and Jenners Relatio...](https://allwomenstalk.com/constant-fighting-ended-richie-and-jenners-relationship/)
-- [Elton John Surprised by His Royal Invite](https://celebs.allwomenstalk.com/elton-john-surprised-by-his-royal-invite/)
-- [Fuck You Bitch](https://allwomenstalk.com/fuck-you-bitch-2/)
 - [sara evans tattoo](https://allwomenstalk.com/kenny-chesney-denies-he-had-an-affair-with-sara-evans/)
-- [Ashley Judd Now Treads a Little More Carefully](https://celebs.allwomenstalk.com/ashley-judd-rape-culture-apology/)
-- [simon mills journalist](https://allwomenstalk.com/posh-spice-is-no-style-icon/)
 - [elin nordegren pics](https://allwomenstalk.com/tiger-may-sue-irish-mag-for-elin-nordegren-nude-pics/)
+- [Elton John Surprised by His Royal Invite](https://celebs.allwomenstalk.com/elton-john-surprised-by-his-royal-invite/)
+- [Constant Fighting Ended Richie and Jenners Relatio...](https://allwomenstalk.com/constant-fighting-ended-richie-and-jenners-relationship/)
 - [kate michelman](https://allwomenstalk.com/i-really-really-hope-that-kate-michelman-doesnt-run-for-the-senate-in-pennsylvania/)
+- [simon mills journalist](https://allwomenstalk.com/posh-spice-is-no-style-icon/)
+- [Lionel Richie Calls Himself the Greatest Porn Star](https://allwomenstalk.com/lionel-richie-calls-himself-the-greatest-porn-star/)
+- [Ashley Judd Now Treads a Little More Carefully](https://celebs.allwomenstalk.com/ashley-judd-rape-culture-apology/)
+- [Johnny Never to Marry Vanessa ...](https://celebs.allwomenstalk.com/johnny-never-to-marry-vanessa/)
+- [Fuck You Bitch](https://allwomenstalk.com/fuck-you-bitch-2/)
 - [Mark Wahlberg to Give Bieber a Wedgie ...](https://celebs.allwomenstalk.com/mark-wahlberg-to-give-bieber-a-wedgie/)
 - [Kim Kardashian Makes a Video with Kanye West...](https://celebs.allwomenstalk.com/kim-kardashian-makes-a-video-with-kanye-west/)
 

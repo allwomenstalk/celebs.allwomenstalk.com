@@ -80,16 +80,16 @@ Honestly, this list could go on and on. Helen Mirren, Jane Seymour, Tom Selleck,
 
 ## Related Posts
 
-- [who did scooter braun manage](https://celebs.allwomenstalk.com/celebs-who-have-scooter-braun-as-a-manager/)
-- [blake lively sobriety](https://celebs.allwomenstalk.com/celebs-who-live-a-sober-lifestyle/)
 - [harry styles vines](https://funny.allwomenstalk.com/silliest-celebrity-vines-you-have-to-see-at-least-once/)
-- [that wish would go away](https://celebs.allwomenstalk.com/celebrities-we-wish-would-go-away/)
-- [celebs on tour](https://celebs.allwomenstalk.com/celebs-who-have-shown-their-support-at-mileys-tour/)
 - [ashton klein](https://celebs.allwomenstalk.com/celebrities-who-used-to-model-before-getting-their-big-break/)
-- [christian bale and rowan atkinson](https://movies.allwomenstalk.com/potential-actors-for-james-bonds-role-that-will-probably-never-happen/)
-- [ezra fitz brother](https://celebs.allwomenstalk.com/abc-celebrities-who-are-totally-crush-worthy/)
 - [comedian with red hat](https://celebs.allwomenstalk.com/stars-who-died-whilst-doing-what-they-loved/)
+- [that wish would go away](https://celebs.allwomenstalk.com/celebrities-we-wish-would-go-away/)
+- [blake lively sobriety](https://celebs.allwomenstalk.com/celebs-who-live-a-sober-lifestyle/)
+- [ezra fitz brother](https://celebs.allwomenstalk.com/abc-celebrities-who-are-totally-crush-worthy/)
+- [who did scooter braun manage](https://celebs.allwomenstalk.com/celebs-who-have-scooter-braun-as-a-manager/)
+- [christian bale and rowan atkinson](https://movies.allwomenstalk.com/potential-actors-for-james-bonds-role-that-will-probably-never-happen/)
 - [jane kaczmarek husband](https://celebs.allwomenstalk.com/celebrity-mothers-who-had-their-first-baby-after-40/)
+- [celebs on tour](https://celebs.allwomenstalk.com/celebs-who-have-shown-their-support-at-mileys-tour/)
 - [25 Smartest Celebrities ...](https://celebs.allwomenstalk.com/25-smartest-celebrities/)
 - [8 Celebrities That Look Older than Their True Age ...](https://celebs.allwomenstalk.com/celebrities-that-look-older-than-their-true-age/)
 

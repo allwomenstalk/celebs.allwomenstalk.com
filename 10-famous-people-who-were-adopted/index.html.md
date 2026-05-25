@@ -82,16 +82,16 @@ Top Photo Credit: [IronRodArt - Royce Bair](https://www.flickr.com/photos/ironro
 
 ## Related Posts
 
-- [7 Recent Celebrity Breakups ...](https://celebs.allwomenstalk.com/recent-celebrity-breakups/)
-- [child stars who aged badly](https://celebs.allwomenstalk.com/celebrities-that-look-older-than-their-true-age/)
 - [celebrities to follow on twitter](https://celebs.allwomenstalk.com/celebs-to-follow-on-twitter/)
-- [fashionable celebrities](https://celebs.allwomenstalk.com/fashionable-celebrities-to-watch-in/)
-- [bubbly personality celebrities](https://celebs.allwomenstalk.com/7-of-my-favorite-celebrities/)
-- [female celebrities with dimples](https://celebs.allwomenstalk.com/cool-celebrities-with-dimples/)
 - [celebs who live in nyc](https://celebs.allwomenstalk.com/celebrities-who-live-in-nyc/)
+- [7 Recent Celebrity Breakups ...](https://celebs.allwomenstalk.com/recent-celebrity-breakups/)
 - [renee zellweger kenny chesney wedding](https://celebs.allwomenstalk.com/famous-hollywood-divorces/)
-- [beta male drawing](https://celebs.allwomenstalk.com/sweetly-sexy-hollywood-beta-males/)
 - [worst table manners](https://celebs.allwomenstalk.com/celebrities-with-awful-table-manners/)
+- [bubbly personality celebrities](https://celebs.allwomenstalk.com/7-of-my-favorite-celebrities/)
+- [fashionable celebrities](https://celebs.allwomenstalk.com/fashionable-celebrities-to-watch-in/)
+- [child stars who aged badly](https://celebs.allwomenstalk.com/celebrities-that-look-older-than-their-true-age/)
+- [beta male drawing](https://celebs.allwomenstalk.com/sweetly-sexy-hollywood-beta-males/)
+- [female celebrities with dimples](https://celebs.allwomenstalk.com/cool-celebrities-with-dimples/)
 - [9 Foods Named after People ...](https://celebs.allwomenstalk.com/9-foods-named-after-people/)
 - [10 Famous Princesses Throughout History ...](https://celebs.allwomenstalk.com/famous-princesses-throughout-history/)
 

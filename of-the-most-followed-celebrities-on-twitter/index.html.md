@@ -74,16 +74,16 @@ Well, there you have it! These are the ten most-followed celebrities on twitter!
 
 ## Related Posts
 
-- [victoria justice and katharine mcphee](https://celebs.allwomenstalk.com/underrated-celebrities-that-should-be-more-famous/)
-- [best celebrity tweets](https://funny.allwomenstalk.com/funniest-celebrities-read-mean-tweets-you-havent-seen-yet/)
-- [kelly osbourne skinny](https://celebs.allwomenstalk.com/celebrities-that-had-a-major-weight-loss-transformation/)
+- [celebrities giving back](https://celebs.allwomenstalk.com/celebrity-do-gooders-who-are-always-giving-back/)
 - [man in tight leather pants](https://celebs.allwomenstalk.com/our-favorite-male-celebrities-looking-good-in-leather/)
-- [loved and hated](https://celebs.allwomenstalk.com/celebrities-we-have-loved-and-hated-at-one-time/)
+- [victoria justice and katharine mcphee](https://celebs.allwomenstalk.com/underrated-celebrities-that-should-be-more-famous/)
+- [hemsworth brothers shirtless](https://celebs.allwomenstalk.com/photos-of-the-hemsworth-brothers-to-make-your-ovaries-explode/)
 - [celebrities who can sing](https://celebs.allwomenstalk.com/they-can-do-it-all-celebs-you-never-knew-could-sing/)
 - [richard madden hairstyle](https://celebs.allwomenstalk.com/male-actors-to-swoon-over-this-year/)
-- [hemsworth brothers shirtless](https://celebs.allwomenstalk.com/photos-of-the-hemsworth-brothers-to-make-your-ovaries-explode/)
-- [celebrities giving back](https://celebs.allwomenstalk.com/celebrity-do-gooders-who-are-always-giving-back/)
+- [kelly osbourne skinny](https://celebs.allwomenstalk.com/celebrities-that-had-a-major-weight-loss-transformation/)
+- [loved and hated](https://celebs.allwomenstalk.com/celebrities-we-have-loved-and-hated-at-one-time/)
 - [funny celebrity outfits](https://celebs.allwomenstalk.com/bizarre-celebrity-outfits-that-shouldve-never-seen-the-light-of-day/)
+- [best celebrity tweets](https://funny.allwomenstalk.com/funniest-celebrities-read-mean-tweets-you-havent-seen-yet/)
 - [25 Smartest Celebrities ...](https://celebs.allwomenstalk.com/25-smartest-celebrities/)
 - [9 Celebs to Follow on Twitter ...](https://celebs.allwomenstalk.com/celebs-to-follow-on-twitter/)
 

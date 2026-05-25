@@ -56,16 +56,16 @@ Are you an admirer of any of these contemporary artists or do you have other fav
 
 ## Related Posts
 
-- [lovely tunes](https://music.allwomenstalk.com/lovely-tunes-that-are-perfect-for-valentines-day/)
-- [the pretty reckless concert](https://music.allwomenstalk.com/awesome-live-performances-by-the-pretty-reckless/)
+- [empowering songs about life](https://music.allwomenstalk.com/songs-that-will-give-you-strength-to-change-your-life/)
+- [mumford and sons music](https://music.allwomenstalk.com/catchy-songs-by-mumford-sons-worth-checking-out/)
+- [switchfoot controversy](https://music.allwomenstalk.com/controversial-songs-that-are-worth-listening-to/)
 - [uplifting songs](https://music.allwomenstalk.com/uplifting-songs-to-listen-to-when-you-are-in-a-bad-mood/)
 - [songs about husband cheating](https://music.allwomenstalk.com/songs-about-cheating-that-will-help-you-heal/)
-- [mumford and sons music](https://music.allwomenstalk.com/catchy-songs-by-mumford-sons-worth-checking-out/)
-- [empowering songs about life](https://music.allwomenstalk.com/songs-that-will-give-you-strength-to-change-your-life/)
-- [switchfoot controversy](https://music.allwomenstalk.com/controversial-songs-that-are-worth-listening-to/)
 - [songs about reaching goals](https://music.allwomenstalk.com/inspiring-beyonce-songs-for-when-youre-feeling-down/)
-- [katy singles](https://music.allwomenstalk.com/hit-katy-perry-singles-to-rock-out-to/)
 - [half moon lyrics](https://music.allwomenstalk.com/amazing-live-performances-by-half-moon-run/)
+- [katy singles](https://music.allwomenstalk.com/hit-katy-perry-singles-to-rock-out-to/)
+- [the pretty reckless concert](https://music.allwomenstalk.com/awesome-live-performances-by-the-pretty-reckless/)
+- [lovely tunes](https://music.allwomenstalk.com/lovely-tunes-that-are-perfect-for-valentines-day/)
 - [7 Most Talented Artists Working in Comics Today .....](https://allwomenstalk.com/7-most-talented-artists-working-in-comics-today/)
 - [7 Brilliant Songwriters ...](https://allwomenstalk.com/brilliant-songwriters/)
 

@@ -46,16 +46,16 @@ We all need someone to look up to. We all need that person that makes us want to
 
 ## Related Posts
 
-- [who looks like cillian murphy](https://lifestyle.allwomenstalk.com/famous-introverts/)
-- [when love crossed over](https://movies.allwomenstalk.com/movie-stars-that-crossed-over-to-tv/)
-- [teen role model](https://celebs.allwomenstalk.com/good-celebrity-teen-role-models/)
-- [taurus celebrities male rappers](https://movies.allwomenstalk.com/rappers-turned-actors/)
-- [best celebrity marriages](https://celebs.allwomenstalk.com/long-lasting-celebrity-marriages/)
-- [male british actors in their 40s](https://celebs.allwomenstalk.com/sexiest-male-british-actors/)
 - [famous tv show families](https://movies.allwomenstalk.com/famous-tv-families/)
-- [worst relationship advice](https://celebs.allwomenstalk.com/celebrities-whod-give-you-the-worst-relationship-advice-ever/)
-- [engaged celebrities](https://wedding.allwomenstalk.com/recently-engaged-celebrities/)
+- [male british actors in their 40s](https://celebs.allwomenstalk.com/sexiest-male-british-actors/)
 - [celebrity overexposure](https://celebs.allwomenstalk.com/overexposed-celebrities-im-sick-of/)
+- [who looks like cillian murphy](https://lifestyle.allwomenstalk.com/famous-introverts/)
+- [taurus celebrities male rappers](https://movies.allwomenstalk.com/rappers-turned-actors/)
+- [engaged celebrities](https://wedding.allwomenstalk.com/recently-engaged-celebrities/)
+- [best celebrity marriages](https://celebs.allwomenstalk.com/long-lasting-celebrity-marriages/)
+- [teen role model](https://celebs.allwomenstalk.com/good-celebrity-teen-role-models/)
+- [worst relationship advice](https://celebs.allwomenstalk.com/celebrities-whod-give-you-the-worst-relationship-advice-ever/)
+- [when love crossed over](https://movies.allwomenstalk.com/movie-stars-that-crossed-over-to-tv/)
 - [8 Most down to Earth Celebrities ...](https://celebs.allwomenstalk.com/most-down-to-earth-celebrities/)
 - [7 Most Popular Television Shows ...](https://allwomenstalk.com/7-most-popular-television-shows/)
 

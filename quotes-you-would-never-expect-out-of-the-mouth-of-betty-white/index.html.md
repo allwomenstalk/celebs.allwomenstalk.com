@@ -56,16 +56,16 @@ Top Image Source: [weheartit.com](https://weheartit.com/entry/22480907)
 
 ## Related Posts
 
+- [whats a good excuse to leave work early](https://allwomenstalk.com/30-believable-excuses-to-get-out-of-work-today/)
+- [most commonly misspelled english words](https://lifestyle.allwomenstalk.com/simple-but-commonly-most-misspelled-words/)
+- [gheegle in a sentence](https://travel.allwomenstalk.com/fantastic-untranslatable-words/)
+- [quotes about politicians funny](https://celebs.allwomenstalk.com/most-stupid-quotes-by-politicians/)
+- [classic chat up lines](https://love.allwomenstalk.com/worst-chat-up-lines/)
+- [wet blanket expression](https://lifestyle.allwomenstalk.com/idioms-you-need-to-know/)
 - [americanism words](https://lifestyle.allwomenstalk.com/britishisms-that-are-making-their-way-into-american-english/)
 - [the ball is in your court relationship](https://love.allwomenstalk.com/things-to-say-or-not-to-say-when-texting-boys/)
-- [absquatulate sentence](https://lifestyle.allwomenstalk.com/new-words-to-use-this-week/)
-- [classic chat up lines](https://love.allwomenstalk.com/worst-chat-up-lines/)
-- [most commonly misspelled english words](https://lifestyle.allwomenstalk.com/simple-but-commonly-most-misspelled-words/)
-- [wet blanket expression](https://lifestyle.allwomenstalk.com/idioms-you-need-to-know/)
-- [quotes about politicians funny](https://celebs.allwomenstalk.com/most-stupid-quotes-by-politicians/)
 - [cute apology](https://love.allwomenstalk.com/cute-ways-to-say-sorry/)
-- [gheegle in a sentence](https://travel.allwomenstalk.com/fantastic-untranslatable-words/)
-- [whats a good excuse to leave work early](https://allwomenstalk.com/30-believable-excuses-to-get-out-of-work-today/)
+- [absquatulate sentence](https://lifestyle.allwomenstalk.com/new-words-to-use-this-week/)
 - [10 Things You Didnt Know about Elizabeth Taylor .....](https://celebs.allwomenstalk.com/10-things-you-didnt-know-about-elizabeth-taylor/)
 - [5 Megan Fox Wittcisms to Entertain You ...](https://allwomenstalk.com/5-megan-fox-wittcisms-to-entertain-you/)
 

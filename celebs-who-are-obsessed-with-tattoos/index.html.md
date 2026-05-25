@@ -56,16 +56,16 @@ Well, there you have it! Celebs are always getting new ink. Narrowing the list d
 
 ## Related Posts
 
-- [male actors 60 years old](https://celebs.allwomenstalk.com/celebrities-who-only-get-better-with-age/)
+- [camilla luddington twitter](https://celebs.allwomenstalk.com/greys-anatomy-celebrities-who-are-social-on-twitter/)
 - [lauren jauregui weight gain](https://celebs.allwomenstalk.com/celebs-who-rock-bold-brows-and-look-fab/)
-- [celebrities with non famous spouses](https://celebs.allwomenstalk.com/celebrities-who-married-non-celebrities/)
 - [justin berfield height](https://movies.allwomenstalk.com/noughties-tv-stars-we-all-seriously-miss/)
 - [zan efron](https://celebs.allwomenstalk.com/disney-celebs-whove-gone-on-to-do-big-things/)
-- [camilla luddington twitter](https://celebs.allwomenstalk.com/greys-anatomy-celebrities-who-are-social-on-twitter/)
-- [zooey deschanel and joseph gordon-levitt relations...](https://celebs.allwomenstalk.com/favorite-real-life-will-theywont-they-celebrity-couples/)
 - [alyson hannigan looks like](https://celebs.allwomenstalk.com/celebrities-who-look-like-they-never-age/)
-- [harry styles vines](https://funny.allwomenstalk.com/silliest-celebrity-vines-you-have-to-see-at-least-once/)
+- [male actors 60 years old](https://celebs.allwomenstalk.com/celebrities-who-only-get-better-with-age/)
+- [celebrities with non famous spouses](https://celebs.allwomenstalk.com/celebrities-who-married-non-celebrities/)
 - [riche le stylo eye timeless spark](https://celebs.allwomenstalk.com/celebrities-with-famous-godparents-that-you-probably-didnt-know-about/)
+- [zooey deschanel and joseph gordon-levitt relations...](https://celebs.allwomenstalk.com/favorite-real-life-will-theywont-they-celebrity-couples/)
+- [harry styles vines](https://funny.allwomenstalk.com/silliest-celebrity-vines-you-have-to-see-at-least-once/)
 - [7 of My Favorite Celebrities ...](https://celebs.allwomenstalk.com/7-of-my-favorite-celebrities/)
 - [7 Celebrities Who Smoke Weed ...](https://celebs.allwomenstalk.com/celebrities-who-smoke-weed/)
 

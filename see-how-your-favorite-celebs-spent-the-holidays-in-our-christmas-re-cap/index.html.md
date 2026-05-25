@@ -128,16 +128,16 @@ How did YOU celebrate the holidays?
 
 ## Related Posts
 
-- [hemsworth brothers shirtless](https://celebs.allwomenstalk.com/photos-of-the-hemsworth-brothers-to-make-your-ovaries-explode/)
-- [reese witherspoon as june carter](https://celebs.allwomenstalk.com/celebrities-who-look-exactly-like-who-they-portrayed-in-a-biopic/)
-- [milo ventimiglia girlfriend](https://celebs.allwomenstalk.com/of-your-favorite-fictional-couples-who-dated-off-screen-too/)
-- [famous people on twitter](https://celebs.allwomenstalk.com/of-the-most-followed-celebrities-on-twitter/)
-- [jack falahee weight gain](https://celebs.allwomenstalk.com/breakout-celebrities-of/)
 - [celebrities who hid their pregnancies while filmin...](https://celebs.allwomenstalk.com/celebrities-who-hid-their-baby-bumps-while-filming/)
+- [milo ventimiglia girlfriend](https://celebs.allwomenstalk.com/of-your-favorite-fictional-couples-who-dated-off-screen-too/)
+- [hemsworth brothers shirtless](https://celebs.allwomenstalk.com/photos-of-the-hemsworth-brothers-to-make-your-ovaries-explode/)
+- [carrie underwood prego](https://fashion.allwomenstalk.com/stars-with-the-best-baby-bump-style-of-all-time/)
 - [you are beautiful inside and out](https://celebs.allwomenstalk.com/celebrities-who-are-beautiful-inside-and-out/)
 - [kelly osbourne skinny](https://celebs.allwomenstalk.com/celebrities-that-had-a-major-weight-loss-transformation/)
-- [carrie underwood prego](https://fashion.allwomenstalk.com/stars-with-the-best-baby-bump-style-of-all-time/)
+- [jack falahee weight gain](https://celebs.allwomenstalk.com/breakout-celebrities-of/)
 - [victoria justice and katharine mcphee](https://celebs.allwomenstalk.com/underrated-celebrities-that-should-be-more-famous/)
+- [reese witherspoon as june carter](https://celebs.allwomenstalk.com/celebrities-who-look-exactly-like-who-they-portrayed-in-a-biopic/)
+- [famous people on twitter](https://celebs.allwomenstalk.com/of-the-most-followed-celebrities-on-twitter/)
 - [Hallows Eve](https://allwomenstalk.com/hallows-eve/)
 - [The Holiday](https://allwomenstalk.com/the-holiday/)
 

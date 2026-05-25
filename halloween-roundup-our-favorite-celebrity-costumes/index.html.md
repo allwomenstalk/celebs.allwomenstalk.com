@@ -171,16 +171,16 @@ Who had your favorite costume? What was YOUR costume this year?
 
 ## Related Posts
 
-- [scarecrow activities](https://diy.allwomenstalk.com/cute-homemade-scarecrows-for-fall-this-year/)
+- [spooky cookies](https://desserts.allwomenstalk.com/spooky-cookies-to-bake-for-your-halloween-party/)
+- [cute sugar skull makeup](https://makeup.allwomenstalk.com/hauntingly-beautiful-sugar-skull-makeup-found-on-pinterest/)
 - [halloween meals](https://food.allwomenstalk.com/delicious-halloween-food-ideas-for-your-celebration/)
+- [cookie monster harry potter](https://funny.allwomenstalk.com/sesame-street-meets-harry-potter-in-new-halloween-parody-clip/)
+- [scarecrow activities](https://diy.allwomenstalk.com/cute-homemade-scarecrows-for-fall-this-year/)
+- [80s cartoon character costumes](https://fashion.allwomenstalk.com/fun-70s-and-80s-inspired-halloween-costumes/)
 - [creative halloween snacks](https://food.allwomenstalk.com/creative-halloween-party-snacks-to-create-this-week/)
+- [cat jack-o-lanterns](https://parenting.allwomenstalk.com/spooky-jack-o-lanterns-you-can-carve-with-your-kids/)
 - [ttyuio](https://movies.allwomenstalk.com/spooky-movies-that-will-get-you-in-the-halloween-spirit/)
 - [cookie monster no carve pumpkin](https://diy.allwomenstalk.com/no-carve-pumpkins-for-halloween/)
-- [cat jack-o-lanterns](https://parenting.allwomenstalk.com/spooky-jack-o-lanterns-you-can-carve-with-your-kids/)
-- [cookie monster harry potter](https://funny.allwomenstalk.com/sesame-street-meets-harry-potter-in-new-halloween-parody-clip/)
-- [cute sugar skull makeup](https://makeup.allwomenstalk.com/hauntingly-beautiful-sugar-skull-makeup-found-on-pinterest/)
-- [80s cartoon character costumes](https://fashion.allwomenstalk.com/fun-70s-and-80s-inspired-halloween-costumes/)
-- [spooky cookies](https://desserts.allwomenstalk.com/spooky-cookies-to-bake-for-your-halloween-party/)
 - [Celebrity Fashion Face-off: Pick Your Winners ...](https://celebs.allwomenstalk.com/celebrity-fashion-face-off-pick-your-winners/)
 - [Bad Celeb Costumes - Dont Attempt at Home](https://allwomenstalk.com/bad-celeb-costumes-dont-attempt-at-home/)
 

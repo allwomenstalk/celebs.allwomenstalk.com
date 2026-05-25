@@ -68,16 +68,16 @@ I love how these celebs manage to stay BFFs even through all the craziness in Ho
 
 ## Related Posts
 
-- [real life tv couples](https://movies.allwomenstalk.com/adorable-tv-couples-you-wish-were-dating-in-real-life/)
-- [famous singers from american idol](https://music.allwomenstalk.com/very-successful-artists-that-came-from-american-idol/)
 - [celebrities on dancing with the stars](https://celebs.allwomenstalk.com/celebrities-who-should-be-on-dancing-with-the-stars/)
+- [famous singers from american idol](https://music.allwomenstalk.com/very-successful-artists-that-came-from-american-idol/)
 - [polydactyly celebrities](https://celebs.allwomenstalk.com/celebrities-with-body-deformities-that-will-shock-you/)
+- [twins who are both actors](https://celebs.allwomenstalk.com/celebrities-you-didnt-know-were-twins-thatll-surprise-you/)
 - [celebrity couples who met on set](https://celebs.allwomenstalk.com/celebrity-couples-who-met-on-a-movie-set/)
-- [most scandalous celebrities](https://celebs.allwomenstalk.com/scandalous-celebrity-murders-that-shook-hollywood/)
-- [strange looking celebrities](https://celebs.allwomenstalk.com/strange-celebrity-looks-that-shouldnt-work-but-kind-of-did/)
 - [pink celebrities](https://fashion.allwomenstalk.com/celebrities-totally-rocking-the-hot-pink-trend/)
 - [lucy pinder toppless](https://celebs.allwomenstalk.com/good-hearted-celebrities-who-took-adopted-children-under-their-wings/)
-- [twins who are both actors](https://celebs.allwomenstalk.com/celebrities-you-didnt-know-were-twins-thatll-surprise-you/)
+- [real life tv couples](https://movies.allwomenstalk.com/adorable-tv-couples-you-wish-were-dating-in-real-life/)
+- [strange looking celebrities](https://celebs.allwomenstalk.com/strange-celebrity-looks-that-shouldnt-work-but-kind-of-did/)
+- [most scandalous celebrities](https://celebs.allwomenstalk.com/scandalous-celebrity-murders-that-shook-hollywood/)
 - [9 Amazing Celebrity Families ...](https://allwomenstalk.com/9-amazing-celebrity-families/)
 - [7 Celebs Whod Make a Fab BFF ...](https://allwomenstalk.com/7-celebs-whod-make-a-fab-bff/)
 

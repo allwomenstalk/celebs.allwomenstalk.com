@@ -76,16 +76,16 @@ Top Image Source: [weheartit.com](https://weheartit.com/entry/18041618)
 
 ## Related Posts
 
-- [good hearted celebrities](https://celebs.allwomenstalk.com/nicest-celebrities-who-have-a-heart-of-gold/)
-- [jeannine russell age](https://celebs.allwomenstalk.com/celebs-with-killer-curves/)
-- [disney fairytale weddings divorce](https://wedding.allwomenstalk.com/celeb-brides-youd-love-to-see-walk-down-the-aisle/)
-- [best mugshots ever](https://celebs.allwomenstalk.com/top-celebrity-mug-shots/)
 - [embarrassing moments celebrities](https://celebs.allwomenstalk.com/most-embarrassing-celeb-moments-youve-got-to-hear-about/)
-- [what celebrity named their kid pillow](https://celebs.allwomenstalk.com/off-the-wall-celebrity-baby-names/)
-- [omar epps skirt](https://celebs.allwomenstalk.com/adorable-celebs-that-should-be-together/)
-- [is nick cage a good actor](https://movies.allwomenstalk.com/worst-actors-of-our-time/)
 - [celebrity holiday cards](https://allwomenstalk.com/celebrity-holiday-cards-pick-your-favorite/)
+- [is nick cage a good actor](https://movies.allwomenstalk.com/worst-actors-of-our-time/)
+- [good hearted celebrities](https://celebs.allwomenstalk.com/nicest-celebrities-who-have-a-heart-of-gold/)
 - [funny quotes celebrities](https://celebs.allwomenstalk.com/stupidest-quotes-celebrities-have-blurted-out/)
+- [what celebrity named their kid pillow](https://celebs.allwomenstalk.com/off-the-wall-celebrity-baby-names/)
+- [disney fairytale weddings divorce](https://wedding.allwomenstalk.com/celeb-brides-youd-love-to-see-walk-down-the-aisle/)
+- [omar epps skirt](https://celebs.allwomenstalk.com/adorable-celebs-that-should-be-together/)
+- [best mugshots ever](https://celebs.allwomenstalk.com/top-celebrity-mug-shots/)
+- [jeannine russell age](https://celebs.allwomenstalk.com/celebs-with-killer-curves/)
 - [7 Hair Products Celebs Love ...](https://allwomenstalk.com/7-hair-products-celebs-love/)
 - [10 Classic Beauty Buys for 2010 ...](https://allwomenstalk.com/classic-beauty-buys-for/)
 

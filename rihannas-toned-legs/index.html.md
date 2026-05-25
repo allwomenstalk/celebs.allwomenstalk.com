@@ -27,16 +27,16 @@ City: [Paris](https://celebs.allwomenstalk.com/tag/paris/)
 
 ## Related Posts
 
-- [katy naughty](https://celebs.allwomenstalk.com/katy-perry-to-get-naughty-with-ted-mosby/)
+- [katy perry snow white](https://celebs.allwomenstalk.com/katy-perry-channels-the-roaring-20s-for-ghd/)
 - [kanye and kim music video](https://celebs.allwomenstalk.com/kim-kardashian-makes-a-video-with-kanye-west/)
 - [hayden panettiere alpha and omega](https://celebs.allwomenstalk.com/hayden-panettiere-smiley-at-radio-1/)
-- [mtv hot](https://celebs.allwomenstalk.com/mtv-emas-hot-hostess-eva-longoria/)
-- [Justin the New Man in Olivias Life](https://celebs.allwomenstalk.com/justin-the-new-man-in-olivias-life/)
-- [penn badgely height](https://celebs.allwomenstalk.com/blake-and-penn-still-friends/)
-- [katy perry snow white](https://celebs.allwomenstalk.com/katy-perry-channels-the-roaring-20s-for-ghd/)
 - [christina aguilera kids](https://celebs.allwomenstalk.com/christina-takes-max-shopping/)
-- [colleen locklear](https://celebs.allwomenstalk.com/heather-locklear-takes-sis-shopping/)
+- [katy naughty](https://celebs.allwomenstalk.com/katy-perry-to-get-naughty-with-ted-mosby/)
 - [4 Photos of Lilly Allens Growing Belly ...](https://celebs.allwomenstalk.com/lilly-allens-growing-belly/)
+- [mtv hot](https://celebs.allwomenstalk.com/mtv-emas-hot-hostess-eva-longoria/)
+- [penn badgely height](https://celebs.allwomenstalk.com/blake-and-penn-still-friends/)
+- [Justin the New Man in Olivias Life](https://celebs.allwomenstalk.com/justin-the-new-man-in-olivias-life/)
+- [colleen locklear](https://celebs.allwomenstalk.com/heather-locklear-takes-sis-shopping/)
 - [7 Photos of Gainsbourgs Revealing Swim ...](https://celebs.allwomenstalk.com/gainsbourgs-revealing-swim/)
 - [7 Photos of Megan Fox and Her Pink Underwear ...](https://celebs.allwomenstalk.com/megan-fox-and-her-pink-underwear/)
 

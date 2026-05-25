@@ -56,16 +56,16 @@ What other down to earth celebs can you name? Ever met one? I haven’t so I can
 
 ## Related Posts
 
-- [female celebrities in the 90s](https://celebs.allwomenstalk.com/female-celebrities-who-were-my-role-models-when-i-was-younger/)
-- [girl role models](https://parenting.allwomenstalk.com/female-role-models-for-your-daughter/)
-- [shakespeare characters by lines](https://lifestyle.allwomenstalk.com/of-shakespeares-great-women/)
-- [lena dunham marilyn monroe](https://celebs.allwomenstalk.com/influential-women-from-tv-film/)
-- [punk rock singers female](https://music.allwomenstalk.com/rocking-female-fronted-bands/)
-- [ditzy female tv characters](https://movies.allwomenstalk.com/awesome-female-tv-characters-id-love-to-be-friends-with/)
-- [abc talk shows](https://lifestyle.allwomenstalk.com/hot-shows-for-women-on-abc/)
-- [heroes blonde girl](https://movies.allwomenstalk.com/female-superheroes-to-look-up-to/)
-- [oscar mbo child](https://celebs.allwomenstalk.com/female-watch-brand-ambassadors/)
 - [carrie bradshaw 80s outfit](https://fashion.allwomenstalk.com/fashionable-female-characters-on-tv-today/)
+- [oscar mbo child](https://celebs.allwomenstalk.com/female-watch-brand-ambassadors/)
+- [heroes blonde girl](https://movies.allwomenstalk.com/female-superheroes-to-look-up-to/)
+- [shakespeare characters by lines](https://lifestyle.allwomenstalk.com/of-shakespeares-great-women/)
+- [punk rock singers female](https://music.allwomenstalk.com/rocking-female-fronted-bands/)
+- [lena dunham marilyn monroe](https://celebs.allwomenstalk.com/influential-women-from-tv-film/)
+- [abc talk shows](https://lifestyle.allwomenstalk.com/hot-shows-for-women-on-abc/)
+- [girl role models](https://parenting.allwomenstalk.com/female-role-models-for-your-daughter/)
+- [ditzy female tv characters](https://movies.allwomenstalk.com/awesome-female-tv-characters-id-love-to-be-friends-with/)
+- [female celebrities in the 90s](https://celebs.allwomenstalk.com/female-celebrities-who-were-my-role-models-when-i-was-younger/)
 - [7 Celebrities I Would like to Hang with ...](https://celebs.allwomenstalk.com/7-celebrities-i-would-like-to-hang-with/)
 - [7 of My Favorite Celebrities ...](https://celebs.allwomenstalk.com/7-of-my-favorite-celebrities/)
 

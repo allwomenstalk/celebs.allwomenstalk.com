@@ -58,16 +58,16 @@ Unfortunately, the movie hasn't been received very well. Anyone planning to watc
 
 ## Related Posts
 
-- [renee zellweger calves](https://celebs.allwomenstalk.com/renee-goes-for-a-run/)
-- [peyton list short hair](https://celebs.allwomenstalk.com/ginnifer-and-peyton-head-to-work/)
-- [nicole mitchell murphy children](https://celebs.allwomenstalk.com/the-karate-kid-premiere/)
-- [amy carlson bikini](https://celebs.allwomenstalk.com/amy-carlson-balloons/)
-- [kimberly wyatt legs](https://celebs.allwomenstalk.com/wyatts-short-shorts/)
-- [amy poehler pregnant](https://celebs.allwomenstalk.com/pregnant-poehler-gets-groceries/)
-- [megan fox in her 20s](https://celebs.allwomenstalk.com/megan-fox-and-her-pink-underwear/)
-- [barefoot celebs](https://celebs.allwomenstalk.com/naomis-barefoot-chase/)
 - [paris hilton soles](https://celebs.allwomenstalk.com/paris-gets-a-lift/)
+- [megan fox in her 20s](https://celebs.allwomenstalk.com/megan-fox-and-her-pink-underwear/)
+- [peyton list short hair](https://celebs.allwomenstalk.com/ginnifer-and-peyton-head-to-work/)
+- [kimberly wyatt legs](https://celebs.allwomenstalk.com/wyatts-short-shorts/)
+- [nicole mitchell murphy children](https://celebs.allwomenstalk.com/the-karate-kid-premiere/)
+- [renee zellweger calves](https://celebs.allwomenstalk.com/renee-goes-for-a-run/)
+- [amy carlson bikini](https://celebs.allwomenstalk.com/amy-carlson-balloons/)
+- [amy poehler pregnant](https://celebs.allwomenstalk.com/pregnant-poehler-gets-groceries/)
 - [kristen dunst](https://celebs.allwomenstalk.com/dunsts-bikini-body/)
+- [barefoot celebs](https://celebs.allwomenstalk.com/naomis-barefoot-chase/)
 - [9 Photos of Kristen Stewart at the Runaways Premie...](https://celebs.allwomenstalk.com/9-photos-of-kristen-arrives/)
 - [16 Photos of in My Sleep Premiere ...](https://celebs.allwomenstalk.com/in-my-sleep-premiere/)
 

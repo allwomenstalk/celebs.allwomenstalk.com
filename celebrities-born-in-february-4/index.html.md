@@ -57,15 +57,15 @@ Who do you share a birthday with? Please leave in comments and stay tuned for ce
 ## Related Posts
 
 - [robert downey jr oscar winner](https://movies.allwomenstalk.com/incredible-actors-who-are-yet-to-win-an-oscar/)
-- [laurence fishburne ex-wife](https://celebs.allwomenstalk.com/celebrity-couples-who-split-in-2018/)
-- [celebrities born on february 2](https://celebs.allwomenstalk.com/celebrities-born-in-february-2/)
-- [celebrities born february 18](https://celebs.allwomenstalk.com/celebrities-born-in-february-3/)
-- [what toothpaste do celebrities use](https://beauty.allwomenstalk.com/perfect-ways-to-get-a-celebrity-smile/)
 - [brazilian asian baby](https://celebs.allwomenstalk.com/dont-hate-me-cause-im-cute-adorable-celeb-kids-we-love/)
 - [90s heartthrobs actors](https://celebs.allwomenstalk.com/heartthrobs-of-the-1990s/)
+- [celebrities born february 18](https://celebs.allwomenstalk.com/celebrities-born-in-february-3/)
+- [laurence fishburne ex-wife](https://celebs.allwomenstalk.com/celebrity-couples-who-split-in-2018/)
+- [wokest celebrities](https://celebs.allwomenstalk.com/who-are-the-most-charitable-celebrities/)
+- [celebrities born on february 2](https://celebs.allwomenstalk.com/celebrities-born-in-february-2/)
 - [gal gadot brother](https://celebs.allwomenstalk.com/yaron-versano/)
 - [lake como celebrities](https://travel.allwomenstalk.com/where-celebrities-go-on-vacation/)
-- [wokest celebrities](https://celebs.allwomenstalk.com/who-are-the-most-charitable-celebrities/)
+- [what toothpaste do celebrities use](https://beauty.allwomenstalk.com/perfect-ways-to-get-a-celebrity-smile/)
 - [7 Inspiring Celebrities of 2011 ...](https://celebs.allwomenstalk.com/inspiring-celebrities-of/)
 - [10 Gorgeous Full-Figured Celebrities ...](https://celebs.allwomenstalk.com/gorgeous-full-figured-celebrities/)
 

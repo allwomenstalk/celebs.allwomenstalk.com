@@ -80,16 +80,16 @@ We all knew about Tia & Tamera, Dylan & Cole, Benji & Joel, and of course, Mary-
 
 ## Related Posts
 
-- [famous singers from american idol](https://music.allwomenstalk.com/very-successful-artists-that-came-from-american-idol/)
+- [celebrities on dancing with the stars](https://celebs.allwomenstalk.com/celebrities-who-should-be-on-dancing-with-the-stars/)
+- [strange looking celebrities](https://celebs.allwomenstalk.com/strange-celebrity-looks-that-shouldnt-work-but-kind-of-did/)
 - [real life tv couples](https://movies.allwomenstalk.com/adorable-tv-couples-you-wish-were-dating-in-real-life/)
 - [polydactyly celebrities](https://celebs.allwomenstalk.com/celebrities-with-body-deformities-that-will-shock-you/)
-- [most scandalous celebrities](https://celebs.allwomenstalk.com/scandalous-celebrity-murders-that-shook-hollywood/)
 - [celebrity couples who met on set](https://celebs.allwomenstalk.com/celebrity-couples-who-met-on-a-movie-set/)
-- [celebrities on dancing with the stars](https://celebs.allwomenstalk.com/celebrities-who-should-be-on-dancing-with-the-stars/)
 - [lucy pinder toppless](https://celebs.allwomenstalk.com/good-hearted-celebrities-who-took-adopted-children-under-their-wings/)
-- [was zachary gordon actually singing](https://celebs.allwomenstalk.com/talented-celebs-you-didnt-know-could-sing/)
-- [strange looking celebrities](https://celebs.allwomenstalk.com/strange-celebrity-looks-that-shouldnt-work-but-kind-of-did/)
 - [pink celebrities](https://fashion.allwomenstalk.com/celebrities-totally-rocking-the-hot-pink-trend/)
+- [most scandalous celebrities](https://celebs.allwomenstalk.com/scandalous-celebrity-murders-that-shook-hollywood/)
+- [was zachary gordon actually singing](https://celebs.allwomenstalk.com/talented-celebs-you-didnt-know-could-sing/)
+- [famous singers from american idol](https://music.allwomenstalk.com/very-successful-artists-that-came-from-american-idol/)
 - [12 Hot Celebrity Sisters ...](https://allwomenstalk.com/12-hot-celebrity-sisters/)
 - [7 Celebrity Real Names Thatll Surprise You ...](https://allwomenstalk.com/7-celebrity-real-names-thatll-surprise-you/)
 

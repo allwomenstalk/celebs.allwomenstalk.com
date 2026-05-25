@@ -19,16 +19,16 @@ City: [New York](https://celebs.allwomenstalk.com/tag/new-york/)
 
 ## Related Posts
 
-- [Does Sofia Vergara Look Pretty in Blue](https://celebs.allwomenstalk.com/vergaras-lunch-date/)
-- [antonio banderas photoshoot](https://celebs.allwomenstalk.com/antonios-motorbike-team/)
+- [brooklyn decker just go with it bikini](https://celebs.allwomenstalk.com/brooklyns-bikini-bod/)
+- [fox upfronts](https://celebs.allwomenstalk.com/fox-upfronts-in-central-park/)
 - [rebecca gayheart](https://celebs.allwomenstalk.com/dane-and-gayheart-pass-through-paris/)
-- [liv tyler tights](https://celebs.allwomenstalk.com/liv-hails-and-waits/)
 - [27 Photos of the a-Team Premiere ...](https://celebs.allwomenstalk.com/the-a-team-premiere/)
 - [paris stylo primped previous](https://celebs.allwomenstalk.com/szohr-in-soho/)
 - [in my sleep 2010](https://celebs.allwomenstalk.com/in-my-sleep-premiere/)
+- [Does Sofia Vergara Look Pretty in Blue](https://celebs.allwomenstalk.com/vergaras-lunch-date/)
+- [antonio banderas photoshoot](https://celebs.allwomenstalk.com/antonios-motorbike-team/)
+- [liv tyler tights](https://celebs.allwomenstalk.com/liv-hails-and-waits/)
 - [kylie minogue airport](https://celebs.allwomenstalk.com/kylie-lands-in-nice/)
-- [fox upfronts](https://celebs.allwomenstalk.com/fox-upfronts-in-central-park/)
-- [brooklyn decker just go with it bikini](https://celebs.allwomenstalk.com/brooklyns-bikini-bod/)
 - [3 Photos of Camilla Gets a Push ...](https://celebs.allwomenstalk.com/camilla-gets-a-push/)
 - [3 Photos of Kara Youngs Poor Fit ...](https://celebs.allwomenstalk.com/karas-poor-fit/)
 

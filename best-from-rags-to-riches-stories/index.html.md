@@ -56,16 +56,16 @@ Top Photo Credit: kinomania.ru_
 
 ## Related Posts
 
-- [charlie lifestyle](https://celebs.allwomenstalk.com/this-is-charlies-lifestyle-and-it-is-what-it-is/)
 - [awesome birds](https://gardening.allwomenstalk.com/5-awesome-birds/)
-- [7 People Who Shouldnt Have Been Assassinated ...](https://celebs.allwomenstalk.com/7-people-who-shouldnt-have-been-assassinated/)
-- [mythbusters obama](https://celebs.allwomenstalk.com/obama-on-mythbusters/)
-- [Larry King Live Ends after 25 Years ...](https://celebs.allwomenstalk.com/larry-king-live-ends-after-25-years/)
-- [New Year Bash Wrap-up: Part 1 ...](https://celebs.allwomenstalk.com/new-year-bash-wrap-up-part-1/)
-- [Cooks Love for Mother Earth Revealed...](https://celebs.allwomenstalk.com/cooks-love-for-mother-earth-revealed/)
-- [amazing butterflies](https://gardening.allwomenstalk.com/5-amazing-butterflies/)
-- [favorite vines](https://gardening.allwomenstalk.com/5-of-my-favorite-vines/)
 - [dadt pink](https://celebs.allwomenstalk.com/stars-come-out-in-support-of-dadt-repeal/)
+- [charlie lifestyle](https://celebs.allwomenstalk.com/this-is-charlies-lifestyle-and-it-is-what-it-is/)
+- [favorite vines](https://gardening.allwomenstalk.com/5-of-my-favorite-vines/)
+- [mythbusters obama](https://celebs.allwomenstalk.com/obama-on-mythbusters/)
+- [7 People Who Shouldnt Have Been Assassinated ...](https://celebs.allwomenstalk.com/7-people-who-shouldnt-have-been-assassinated/)
+- [New Year Bash Wrap-up: Part 1 ...](https://celebs.allwomenstalk.com/new-year-bash-wrap-up-part-1/)
+- [Larry King Live Ends after 25 Years ...](https://celebs.allwomenstalk.com/larry-king-live-ends-after-25-years/)
+- [amazing butterflies](https://gardening.allwomenstalk.com/5-amazing-butterflies/)
+- [Cooks Love for Mother Earth Revealed...](https://celebs.allwomenstalk.com/cooks-love-for-mother-earth-revealed/)
 - [7 Best Rags to Riches Stories ...](https://movies.allwomenstalk.com/best-rags-to-riches-stories/)
 - [7 of My Favorite Fairy Tales ...](https://allwomenstalk.com/7-of-my-favorite-fairy-tales/)
 

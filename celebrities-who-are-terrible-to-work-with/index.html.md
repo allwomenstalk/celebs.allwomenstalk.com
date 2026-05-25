@@ -56,16 +56,16 @@ There are so many horror stories about celebrities who are divas on set! Perhaps
 
 ## Related Posts
 
+- [celebrities nyc apartments](https://celebs.allwomenstalk.com/amazing-celebrity-apartments-you-need-to-see/)
 - [celebrities suffering from anxiety](https://celebs.allwomenstalk.com/celebrities-with-anxiety-disorders/)
-- [crazy actor transformations](https://movies.allwomenstalk.com/actors-who-transformed-their-bodies-for-a-movie-role/)
+- [is ricco barrino related to fantasia](https://celebs.allwomenstalk.com/celebrities-who-are-related-to-someone-famous/)
 - [sophie turner and taylor swift](https://celebs.allwomenstalk.com/celebrities-who-are-great-friends-with-taylor-swift/)
 - [jessica szohr taylor swift 22](https://celebs.allwomenstalk.com/gossip-girl-celebs-to-follow-on-twitter/)
-- [celebrities nyc apartments](https://celebs.allwomenstalk.com/amazing-celebrity-apartments-you-need-to-see/)
-- [is ricco barrino related to fantasia](https://celebs.allwomenstalk.com/celebrities-who-are-related-to-someone-famous/)
 - [surprising celebrity couples](https://celebs.allwomenstalk.com/celebrity-couples-that-you-never-knew-about/)
-- [njbc gossip girl](https://movies.allwomenstalk.com/most-adorable-on-screen-couples/)
+- [crazy actor transformations](https://movies.allwomenstalk.com/actors-who-transformed-their-bodies-for-a-movie-role/)
 - [celebrities who abandoned their child](https://celebs.allwomenstalk.com/celebrities-who-abandoned-fame/)
 - [mickey mouse club mouseketeers list](https://celebs.allwomenstalk.com/former-disney-mouseketeers-who-now-made-names-for-themselves/)
+- [njbc gossip girl](https://movies.allwomenstalk.com/most-adorable-on-screen-couples/)
 - [7 Actors Who Are Overrated ...](https://movies.allwomenstalk.com/7-actors-who-are-overrated/)
 - [8 Celebrities with Awful Table Manners ...](https://celebs.allwomenstalk.com/celebrities-with-awful-table-manners/)
 

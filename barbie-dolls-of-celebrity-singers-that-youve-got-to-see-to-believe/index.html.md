@@ -56,16 +56,16 @@ If you’re a super fan of any of these artists, why not buy their doll? You can
 
 ## Related Posts
 
-- [celebrities with very fine hair](https://hair.allwomenstalk.com/fabulous-celebrity-hair-crushes-we-absolutely-adore/)
-- [the actress with the eyebrows](https://celebs.allwomenstalk.com/beautiful-celebrities-with-gorgeous-eyebrows-to-die-for/)
 - [scarlett johansson jennifer aniston emma watson mi...](https://celebs.allwomenstalk.com/celebs-with-fantastic-hair-i-wish-i-had/)
-- [tv man hot](https://movies.allwomenstalk.com/sexiest-men-on-tv-right-now-that-we-cant-stop-drooling-over/)
+- [famous people who are hated](https://celebs.allwomenstalk.com/celebrities-people-love-to-hate/)
+- [celebrities with very fine hair](https://hair.allwomenstalk.com/fabulous-celebrity-hair-crushes-we-absolutely-adore/)
 - [celebrities shop too](https://celebs.allwomenstalk.com/wealthy-celebrities-who-thrift-shop-and-are-proud-of-it/)
 - [celebrities who beat breast cancer](https://celebs.allwomenstalk.com/celebrities-who-have-beaten-breast-cancer-to-be-inspired-by/)
-- [talented celebrities](https://celebs.allwomenstalk.com/talented-celebrities-you-didnt-know-could-sing-really-well/)
+- [the actress with the eyebrows](https://celebs.allwomenstalk.com/beautiful-celebrities-with-gorgeous-eyebrows-to-die-for/)
 - [celebrity long hair](https://celebs.allwomenstalk.com/drastic-celebrity-hair-cuts-that-caused-a-stir/)
-- [famous people who are hated](https://celebs.allwomenstalk.com/celebrities-people-love-to-hate/)
 - [what is the most expensive body part](https://celebs.allwomenstalk.com/most-expensive-celebrity-insurance-policies/)
+- [talented celebrities](https://celebs.allwomenstalk.com/talented-celebrities-you-didnt-know-could-sing-really-well/)
+- [tv man hot](https://movies.allwomenstalk.com/sexiest-men-on-tv-right-now-that-we-cant-stop-drooling-over/)
 - [8 Surprising Music Video Stars ...](https://celebs.allwomenstalk.com/surprising-music-video-stars/)
 - [10 Gorgeous Full-Figured Celebrities ...](https://celebs.allwomenstalk.com/gorgeous-full-figured-celebrities/)
 

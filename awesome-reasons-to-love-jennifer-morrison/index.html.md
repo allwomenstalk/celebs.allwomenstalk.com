@@ -42,16 +42,16 @@ Well, there you have it. These are just seven out of many awesome reasons to lov
 
 ## Related Posts
 
-- [melissa mccarthy curly hair](https://celebs.allwomenstalk.com/reasons-melissa-mccarthy-is-an-amazing-role-model/)
-- [what colors go well with pale skin](https://beauty.allwomenstalk.com/reasons-to-love-your-pale-skin/)
 - [chrissy teigen 2005](https://celebs.allwomenstalk.com/reasons-to-love-chrissy-teigen/)
-- [robert downey jr beard style name](https://celebs.allwomenstalk.com/reasons-why-robert-downey-jr-is-the-highest-paid-actor-in-hollywood/)
-- [bill skarsgard alexander skarsgard related](https://celebs.allwomenstalk.com/awesome-reasons-to-love-bill-skarsgard/)
+- [what colors go well with pale skin](https://beauty.allwomenstalk.com/reasons-to-love-your-pale-skin/)
 - [debiie ryan](https://celebs.allwomenstalk.com/fantastic-reasons-to-love-debby-ryan/)
+- [melissa mccarthy curly hair](https://celebs.allwomenstalk.com/reasons-melissa-mccarthy-is-an-amazing-role-model/)
 - [alexandra shipp](https://celebs.allwomenstalk.com/fantastic-reasons-to-love-alexandra-shipp/)
-- [jesse mccartney tour](https://music.allwomenstalk.com/reasons-to-get-excited-for-jesse-mccartneys-tour/)
-- [hemlock grove cast season 2](https://movies.allwomenstalk.com/fantastic-reasons-to-binge-watch-hemlock-grove/)
 - [sherlock holmes movie benedict cumberbatch](https://movies.allwomenstalk.com/reasons-why-sherlock-holmes-is-the-thinking-girls-crumpet/)
+- [bill skarsgard alexander skarsgard related](https://celebs.allwomenstalk.com/awesome-reasons-to-love-bill-skarsgard/)
+- [hemlock grove cast season 2](https://movies.allwomenstalk.com/fantastic-reasons-to-binge-watch-hemlock-grove/)
+- [robert downey jr beard style name](https://celebs.allwomenstalk.com/reasons-why-robert-downey-jr-is-the-highest-paid-actor-in-hollywood/)
+- [jesse mccartney tour](https://music.allwomenstalk.com/reasons-to-get-excited-for-jesse-mccartneys-tour/)
 - [10 Reasons to Love Jennifer Aniston ...](https://allwomenstalk.com/10-reasons-to-love-jennifer-aniston/)
 - [7 Reasons to Love Taylor Swift ...](https://allwomenstalk.com/7-reasons-to-love-taylor-swift/)
 

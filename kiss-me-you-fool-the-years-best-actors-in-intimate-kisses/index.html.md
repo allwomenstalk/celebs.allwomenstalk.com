@@ -20,16 +20,16 @@ Which mini-film did you like the most?
 
 ## Related Posts
 
-- [family tradition movie](https://movies.allwomenstalk.com/holiday-movies-about-family-to-make-a-tradition-every-year/)
-- [netflix shall we dance](https://movies.allwomenstalk.com/awesome-movies-that-are-coming-to-leaving-netflix-in-january/)
-- [truck chases car movie](https://movies.allwomenstalk.com/thrilling-car-chases-in-the-movies/)
 - [classic christmas claymation movies](https://movies.allwomenstalk.com/classic-christmas-movies-to-watch-this-season/)
-- [books that became musicals](https://music.allwomenstalk.com/musicals-based-on-novels/)
+- [family tradition movie](https://movies.allwomenstalk.com/holiday-movies-about-family-to-make-a-tradition-every-year/)
 - [films by john hughes](https://movies.allwomenstalk.com/of-the-best-john-hughes-movies/)
 - [harry potter map easter egg](https://movies.allwomenstalk.com/easter-eggs-you-never-noticed-in-your-favorite-movies/)
-- [binge watch free movies](https://movies.allwomenstalk.com/movies-and-tv-show-to-binge-watch-during-your-christmas-break/)
+- [books that became musicals](https://music.allwomenstalk.com/musicals-based-on-novels/)
+- [netflix shall we dance](https://movies.allwomenstalk.com/awesome-movies-that-are-coming-to-leaving-netflix-in-january/)
+- [truck chases car movie](https://movies.allwomenstalk.com/thrilling-car-chases-in-the-movies/)
 - [highlander rotten tomatoes](https://movies.allwomenstalk.com/movies-that-became-a-tv-series/)
 - [movies about losing a parent](https://movies.allwomenstalk.com/movies-to-watch-after-losing-a-loved-one/)
+- [binge watch free movies](https://movies.allwomenstalk.com/movies-and-tv-show-to-binge-watch-during-your-christmas-break/)
 - [Top 9 Movie Kisses ...](https://7fun.net/my-top-9-movie-kisses/)
 - [9 of the Most Romantic Movies ...](https://movies.allwomenstalk.com/9-of-the-most-romantic-movies/)
 

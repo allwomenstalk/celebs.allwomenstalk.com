@@ -48,16 +48,16 @@ With #TBT being such a popular social media hashtag, it's no surprise that big c
 
 ## Related Posts
 
-- [Celebs Share Voting Day Selfies to Encourage Fans ...](https://celebs.allwomenstalk.com/celebs-share-voting-day-selfies-to-encourage-fans-to-vote/)
-- [10 Celebrity Posts You Mightve Missed This Weekend...](https://celebs.allwomenstalk.com/celebrity-posts-you-mightve-missed-this-weekend-5/)
-- [10 Celebrity Posts You Mightve Missed This Weekend...](https://celebs.allwomenstalk.com/celebrity-posts-you-mightve-missed-this-weekend-6/)
-- [10 Celebrity TBT Photos You May Have Missed This W...](https://celebs.allwomenstalk.com/celebrity-tbt-photos-you-may-have-missed-this-week-3/)
 - [10 Celebrity Posts You Mightve Missed This Weekend...](https://celebs.allwomenstalk.com/celebrity-posts-you-mightve-missed-this-weekend/)
+- [7 Times John Legend and Chrissy Teigen Proved They...](https://love.allwomenstalk.com/times-john-legend-and-chrissy-teigen-proved-theyre-the-cutest-couple/)
 - [10 Celebrity Posts You Mightve Missed This Weekend...](https://celebs.allwomenstalk.com/celebrity-posts-you-mightve-missed-this-weekend-2/)
+- [Celebs Share Voting Day Selfies to Encourage Fans ...](https://celebs.allwomenstalk.com/celebs-share-voting-day-selfies-to-encourage-fans-to-vote/)
+- [10 Celebrity TBT Photos You May Have Missed This W...](https://celebs.allwomenstalk.com/celebrity-tbt-photos-you-may-have-missed-this-week-3/)
 - [10 Celebrity Posts You Mightve Missed This Weekend...](https://celebs.allwomenstalk.com/celebrity-posts-you-mightve-missed-this-weekend-4/)
 - [tbt posts](https://celebs.allwomenstalk.com/celebrity-tbt-posts-you-mightve-missed-this-week-3/)
+- [10 Celebrity Posts You Mightve Missed This Weekend...](https://celebs.allwomenstalk.com/celebrity-posts-you-mightve-missed-this-weekend-5/)
+- [10 Celebrity Posts You Mightve Missed This Weekend...](https://celebs.allwomenstalk.com/celebrity-posts-you-mightve-missed-this-weekend-6/)
 - [Find out How You Can Join the Worlds Largest Sing-...](https://music.allwomenstalk.com/find-out-how-you-can-join-the-worlds-largest-sing-along-with-your-fave-celebs/)
-- [7 Times John Legend and Chrissy Teigen Proved They...](https://love.allwomenstalk.com/times-john-legend-and-chrissy-teigen-proved-theyre-the-cutest-couple/)
 - [10 Celebrity TBT Posts You Mightve Missed This Wee...](https://celebs.allwomenstalk.com/celebrity-tbt-posts-you-mightve-missed-this-week/)
 - [10 Celebrity TBT Posts You Mightve Missed This Wee...](https://celebs.allwomenstalk.com/celebrity-tbt-posts-you-mightve-missed-this-week-2/)
 

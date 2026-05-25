@@ -42,16 +42,16 @@ There you have it! These are 7 actresses who never really made it as singers. So
 
 ## Related Posts
 
-- [7 Breakout Actors to Watch out for in 2014 ...](https://celebs.allwomenstalk.com/breakout-actors-to-watch-out-for-in/)
-- [9 Amazing Athletes That People Love and Hate Equal...](https://celebs.allwomenstalk.com/amazing-athletes-that-people-love-and-hate-equally/)
-- [7 Heartbreaking Celebrity Splits That We Still Can...](https://celebs.allwomenstalk.com/heartbreaking-celebrity-splits-that-we-still-cant-get-over/)
 - [9 down to Earth Celebs Who Would Make Great BFFs ....](https://celebs.allwomenstalk.com/down-to-earth-celebs-who-would-make-great-bffs/)
 - [7 Tenacious Rumors about the Kardashians ...](https://celebs.allwomenstalk.com/tenacious-rumors-about-the-kardashians/)
-- [11 Super Sweet Celebrity Couples in 2014 ...](https://celebs.allwomenstalk.com/super-sweet-celebrity-couples-in/)
-- [7 Engaged Celebrities Who Will Hopefully Tie the K...](https://celebs.allwomenstalk.com/engaged-celebrities-who-will-hopefully-tie-the-knot-in/)
-- [celebrity body transformations](https://celebs.allwomenstalk.com/celebrity-body-transformations-that-are-truly-amazing/)
+- [9 Amazing Athletes That People Love and Hate Equal...](https://celebs.allwomenstalk.com/amazing-athletes-that-people-love-and-hate-equally/)
+- [7 Heartbreaking Celebrity Splits That We Still Can...](https://celebs.allwomenstalk.com/heartbreaking-celebrity-splits-that-we-still-cant-get-over/)
+- [7 Breakout Actors to Watch out for in 2014 ...](https://celebs.allwomenstalk.com/breakout-actors-to-watch-out-for-in/)
 - [9 Celebrity Relationship Scandals That We Still Ta...](https://celebs.allwomenstalk.com/celebrity-relationship-scandals-that-we-still-talk-about/)
+- [celebrity body transformations](https://celebs.allwomenstalk.com/celebrity-body-transformations-that-are-truly-amazing/)
 - [7 Celebrity Feuds That Just Wont Stop ...](https://celebs.allwomenstalk.com/celebrity-feuds-that-just-wont-stop/)
+- [7 Engaged Celebrities Who Will Hopefully Tie the K...](https://celebs.allwomenstalk.com/engaged-celebrities-who-will-hopefully-tie-the-knot-in/)
+- [11 Super Sweet Celebrity Couples in 2014 ...](https://celebs.allwomenstalk.com/super-sweet-celebrity-couples-in/)
 - [7 Iconic Movies Roles That Were Almost Played by O...](https://movies.allwomenstalk.com/7-iconic-movies-roles-that-were-almost-played-by-other-actors/)
 - [7 Wonderful Black Actresses ...](https://celebs.allwomenstalk.com/7-wonderful-black-actresses/)
 

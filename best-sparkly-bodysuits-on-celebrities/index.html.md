@@ -76,15 +76,15 @@ Top image source: [celebitchy.com](https://www.celebitchy.com/category/britney_s
 
 ## Related Posts
 
-- [bezos wife](https://celebs.allwomenstalk.com/famous-people-who-are-beautiful-on-the-inside/)
-- [famous couples in tv](https://movies.allwomenstalk.com/of-the-best-tv-couples/)
-- [long haired british comedian](https://celebs.allwomenstalk.com/hottest-famous-guys-brits-vs-americans/)
-- [ed begley jnr](https://celebs.allwomenstalk.com/celebrities-who-care-about-the-environment/)
-- [girl celeb crushes](https://movies.allwomenstalk.com/celebrity-girl-crushes-on-tv/)
 - [famous celebrity haircuts](https://celebs.allwomenstalk.com/shocking-celebrity-haircuts/)
+- [girl celeb crushes](https://movies.allwomenstalk.com/celebrity-girl-crushes-on-tv/)
+- [long haired british comedian](https://celebs.allwomenstalk.com/hottest-famous-guys-brits-vs-americans/)
+- [bezos wife](https://celebs.allwomenstalk.com/famous-people-who-are-beautiful-on-the-inside/)
 - [zoe perry smoking](https://beauty.allwomenstalk.com/chic-celebrities-to-get-beauty-inspiration-from/)
-- [famous person who learned from their mistakes](https://celebs.allwomenstalk.com/celebrities-who-blew-it-and-how-not-to-repeat-their-mistakes/)
 - [famous eccentric person](https://celebs.allwomenstalk.com/most-eccentric-pop-stars/)
+- [famous couples in tv](https://movies.allwomenstalk.com/of-the-best-tv-couples/)
+- [ed begley jnr](https://celebs.allwomenstalk.com/celebrities-who-care-about-the-environment/)
+- [famous person who learned from their mistakes](https://celebs.allwomenstalk.com/celebrities-who-blew-it-and-how-not-to-repeat-their-mistakes/)
 - [big easy baddies](https://movies.allwomenstalk.com/top-tv-baddies-we-love/)
 - [9 Amazing Celebrity Wedding Dresses ...](https://celebs.allwomenstalk.com/amazing-celebrity-wedding-dresses/)
 - [10 Fabulous Designer Dresses on Sale ...](https://fashion.allwomenstalk.com/fabulous-designer-dresses-on-sale/)

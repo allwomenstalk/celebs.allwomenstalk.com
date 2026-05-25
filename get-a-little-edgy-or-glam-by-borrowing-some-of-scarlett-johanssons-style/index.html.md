@@ -138,16 +138,16 @@ Source: [Scarlett Johansson in Stella McCartney](https://fashionsizzle.com/2015/
 
 ## Related Posts
 
-- [nina dobrev eye surgery](https://fashion.allwomenstalk.com/steal-nina-dobrevs-stunning-style/)
-- [celebs in leggings](https://celebs.allwomenstalk.com/pins-on-parade-celebs-giving-lessons-in-leggings/)
 - [zoe kravitz y penn badgley](https://celebs.allwomenstalk.com/zoe-kravitz-street-style-petite-girls-will-love/)
-- [mindy kaling fashion](https://celebs.allwomenstalk.com/get-a-little-fashion-inspo-from-mindy-kalings-lookbook/)
-- [fashion inspos](https://streetstyle.allwomenstalk.com/kate-middletons-street-style-inspos-you-can-copy/)
-- [female hispanic celebrities](https://celebs.allwomenstalk.com/amazing-latina-celebrities-thatll-be-your-fashion-inspiration/)
 - [tattoos that look like bracelets](https://beauty.allwomenstalk.com/fashion-tattoos-even-vogue-editors-would-love/)
 - [erika linder age](https://fashion.allwomenstalk.com/models-who-are-redefining-the-fashion-industry/)
-- [victoria justice](https://celebs.allwomenstalk.com/steal-the-style-of-victoria-justice/)
+- [fashion inspos](https://streetstyle.allwomenstalk.com/kate-middletons-street-style-inspos-you-can-copy/)
+- [female hispanic celebrities](https://celebs.allwomenstalk.com/amazing-latina-celebrities-thatll-be-your-fashion-inspiration/)
+- [celebs in leggings](https://celebs.allwomenstalk.com/pins-on-parade-celebs-giving-lessons-in-leggings/)
+- [mindy kaling fashion](https://celebs.allwomenstalk.com/get-a-little-fashion-inspo-from-mindy-kalings-lookbook/)
 - [fashion designers in africa](https://fashion.allwomenstalk.com/african-fashion-designers-making-waves/)
+- [victoria justice](https://celebs.allwomenstalk.com/steal-the-style-of-victoria-justice/)
+- [nina dobrev eye surgery](https://fashion.allwomenstalk.com/steal-nina-dobrevs-stunning-style/)
 - [Steal Her Look: the Sultry Lipsticks All the Stars...](https://makeup.allwomenstalk.com/steal-her-look-the-sultry-lipsticks-all-the-stars-are-wearing/)
 - [Get Ready to Add Some Serious Glamour to Your Hair...](https://hair.allwomenstalk.com/ways-to-add-some-glamour-to-your-hair/)
 

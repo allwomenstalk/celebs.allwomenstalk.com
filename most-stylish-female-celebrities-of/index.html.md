@@ -64,16 +64,16 @@ Top Photo Credit: [data.whicdn.com](http://data.whicdn.com/images/6986924/tumblr
 
 ## Related Posts
 
-- [The Oscar Race is on...](https://celebs.allwomenstalk.com/the-oscar-race-is-on/)
 - [25 Oscar Nominees Who Should Win This Year ...](https://bilbr.com/25-oscar-nominees-who-should-win-this-year/)
 - [So There I Was All Ready to Blog the Oscars to P.....](https://allwomenstalk.com/so-there-i-was-all-ready-to-blog-the-oscars-to-p/)
-- [The Red Carpet or just Another Day on the Job.](https://allwomenstalk.com/the-red-carpet-or-just-another-day-on-the-job/)
-- [10 Golden Globes Looks for Less ...](https://celebs.allwomenstalk.com/golden-globes-looks-for-less/)
-- [Grammy 2011 Nominations: Eminems Leads the Way ...](https://celebs.allwomenstalk.com/grammy-nominations-eminems-leads-the-way/)
-- [iconic red carpet outfits](https://celebs.allwomenstalk.com/iconic-red-carpet-celebrity-looks/)
 - [gwen palthrow](https://allwomenstalk.com/hits-misses-at-the-golden-globes/)
+- [Grammy 2011 Nominations: Eminems Leads the Way ...](https://celebs.allwomenstalk.com/grammy-nominations-eminems-leads-the-way/)
+- [The Oscar Race is on...](https://celebs.allwomenstalk.com/the-oscar-race-is-on/)
 - [The Kings Speech Leads the SAG Nominations...](https://celebs.allwomenstalk.com/the-kings-speech-leads-the-sag-nominations/)
+- [10 Golden Globes Looks for Less ...](https://celebs.allwomenstalk.com/golden-globes-looks-for-less/)
+- [The Red Carpet or just Another Day on the Job.](https://allwomenstalk.com/the-red-carpet-or-just-another-day-on-the-job/)
 - [vanity fair best dressed](https://celebs.allwomenstalk.com/people-who-made-it-on-vanity-fairs-best-dressed-list/)
+- [iconic red carpet outfits](https://celebs.allwomenstalk.com/iconic-red-carpet-celebrity-looks/)
 - [The Best Dressed Women of 2010 ...](https://celebs.allwomenstalk.com/the-best-dressed-women-of/)
 - [10 Ugliest Celebrity Fashion Faux Pas of 2011 ...](https://celebs.allwomenstalk.com/ugliest-celebrity-fashion-faux-pas-of/)
 

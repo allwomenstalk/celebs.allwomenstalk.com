@@ -64,16 +64,16 @@ Top Photo Credit: [beastandbean](https://www.flickr.com/photos/12861589@N03/3930
 
 ## Related Posts
 
-- [renee zellweger kenny chesney wedding](https://celebs.allwomenstalk.com/famous-hollywood-divorces/)
-- [child stars who aged badly](https://celebs.allwomenstalk.com/celebrities-that-look-older-than-their-true-age/)
-- [worst table manners](https://celebs.allwomenstalk.com/celebrities-with-awful-table-manners/)
-- [female celebrities with dimples](https://celebs.allwomenstalk.com/cool-celebrities-with-dimples/)
 - [katharine hepburn height weight](https://celebs.allwomenstalk.com/enduring-celebrity-myths/)
+- [child stars who aged badly](https://celebs.allwomenstalk.com/celebrities-that-look-older-than-their-true-age/)
 - [celebrities to follow on twitter](https://celebs.allwomenstalk.com/celebs-to-follow-on-twitter/)
 - [beta male drawing](https://celebs.allwomenstalk.com/sweetly-sexy-hollywood-beta-males/)
-- [fashionable celebrities](https://celebs.allwomenstalk.com/fashionable-celebrities-to-watch-in/)
+- [worst table manners](https://celebs.allwomenstalk.com/celebrities-with-awful-table-manners/)
+- [female celebrities with dimples](https://celebs.allwomenstalk.com/cool-celebrities-with-dimples/)
 - [bubbly personality celebrities](https://celebs.allwomenstalk.com/7-of-my-favorite-celebrities/)
+- [fashionable celebrities](https://celebs.allwomenstalk.com/fashionable-celebrities-to-watch-in/)
 - [celebs who live in nyc](https://celebs.allwomenstalk.com/celebrities-who-live-in-nyc/)
+- [renee zellweger kenny chesney wedding](https://celebs.allwomenstalk.com/famous-hollywood-divorces/)
 - [7 Biggest Celebrity Weddings ...](https://wedding.allwomenstalk.com/biggest-celebrity-weddings/)
 - [7 Greatly Astonishing Celebrity Scandals ...](https://celebs.allwomenstalk.com/greatly-astonishing-celebrity-scandals/)
 

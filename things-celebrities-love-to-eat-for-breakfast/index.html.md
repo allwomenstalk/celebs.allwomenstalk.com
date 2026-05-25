@@ -63,16 +63,16 @@ _shape.com_
 
 ## Related Posts
 
-- [foods with bromine in them](https://food.allwomenstalk.com/toxic-ingredients-to-watch-out-for-in-food/)
 - [sweet potatoes estrogen dominance](https://food.allwomenstalk.com/hormone-balancing-foods-to-cool-you-off/)
-- [fab foods](https://hair.allwomenstalk.com/fab-foods-that-prevent-hair-loss-and-taste-great/)
-- [can sugar cause anxiety and panic attacks](https://food.allwomenstalk.com/critical-foods-to-avoid-if-you-suffer-from-anxiety/)
-- [do fresh mushrooms have maggots](https://food.allwomenstalk.com/more-things-you-might-not-know-about-your-food/)
 - [bromelain whole foods](https://food.allwomenstalk.com/whole-foods-that-aid-in-digestion-and-keep-you-healthy/)
+- [can sugar cause anxiety and panic attacks](https://food.allwomenstalk.com/critical-foods-to-avoid-if-you-suffer-from-anxiety/)
 - [using xanthan gum in smoothies](https://food.allwomenstalk.com/astounding-substitutes-for-bananas-in-smoothies-that-are-just-as-delicious/)
-- [silk unsweetened almond milk](https://food.allwomenstalk.com/fabulous-vegan-ingredients-to-put-in-your-next-smoothie/)
+- [do fresh mushrooms have maggots](https://food.allwomenstalk.com/more-things-you-might-not-know-about-your-food/)
 - [foods to eat for recovery](https://food.allwomenstalk.com/foods-that-are-great-for-eating-disorder-recovery/)
+- [silk unsweetened almond milk](https://food.allwomenstalk.com/fabulous-vegan-ingredients-to-put-in-your-next-smoothie/)
 - [are lentils good after a workout](https://fitness.allwomenstalk.com/plant-based-proteins-to-help-you-recover-after-your-next-workout/)
+- [fab foods](https://hair.allwomenstalk.com/fab-foods-that-prevent-hair-loss-and-taste-great/)
+- [foods with bromine in them](https://food.allwomenstalk.com/toxic-ingredients-to-watch-out-for-in-food/)
 - [7 Healthiest Foods for Losing Weight ...](https://weightloss.allwomenstalk.com/healthiest-foods-for-losing-weight/)
 - [7 Healthy Fast Foods to Opt for ...](https://diet.allwomenstalk.com/healthy-fast-foods-to-opt-for/)
 

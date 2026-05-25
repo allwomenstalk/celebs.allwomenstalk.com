@@ -56,16 +56,16 @@ On the subject of Adam, it seems people have strong views. Those who dislike him
 
 ## Related Posts
 
-- [7 Awesome Reasons to Love Madelaine Hasson ...](https://celebs.allwomenstalk.com/awesome-reasons-to-love-madelaine-hasson/)
 - [francofest](https://movies.allwomenstalk.com/reasons-why-franco-fest-was-the-best-thing-to-have-happened-in-a-while/)
-- [what is a daemon in the golden compass](https://books.allwomenstalk.com/reasons-i-found-the-golden-compass-trilogy-fascinating/)
+- [is ghost adventures fake](https://movies.allwomenstalk.com/reasons-i-love-watching-ghost-adventures/)
+- [7 Awesome Reasons to Love Madelaine Hasson ...](https://celebs.allwomenstalk.com/awesome-reasons-to-love-madelaine-hasson/)
+- [beauty trilogy](https://books.allwomenstalk.com/reasons-i-loved-a-great-and-terrible-beauty-trilogy/)
 - [willow summers actor](https://movies.allwomenstalk.com/reasons-why-buffy-summers-is-the-best-female-tv-character-of-all-time/)
-- [who is your role model](https://celebs.allwomenstalk.com/reasons-marilyn-monroe-is-a-great-role-model/)
-- [fifth harmony better together lyrics](https://music.allwomenstalk.com/reasons-you-should-be-a-fifth-harmony-fan/)
 - [lupita nyongo ethnicity](https://celebs.allwomenstalk.com/reasons-why-we-love-lupita-nyongo/)
 - [blake lively best friend](https://celebs.allwomenstalk.com/reasons-why-blake-lively-would-make-the-perfect-bff/)
-- [is ghost adventures fake](https://movies.allwomenstalk.com/reasons-i-love-watching-ghost-adventures/)
-- [beauty trilogy](https://books.allwomenstalk.com/reasons-i-loved-a-great-and-terrible-beauty-trilogy/)
+- [fifth harmony better together lyrics](https://music.allwomenstalk.com/reasons-you-should-be-a-fifth-harmony-fan/)
+- [who is your role model](https://celebs.allwomenstalk.com/reasons-marilyn-monroe-is-a-great-role-model/)
+- [what is a daemon in the golden compass](https://books.allwomenstalk.com/reasons-i-found-the-golden-compass-trilogy-fascinating/)
 - [5 Reasons Why I Love Twilight ...](https://twilight.allwomenstalk.com/5-reasons-why-i-love-twilight/)
 - [5 Reasons Why I Love Vampires ...](https://twilight.allwomenstalk.com/5-reasons-why-i-love-vampires/)
 

@@ -74,16 +74,16 @@ These are just some celebrities who have embraced the crop top trend. As you can
 
 ## Related Posts
 
-- [desperate housewives gabrielle solis outfits](https://fashion.allwomenstalk.com/most-stylish-tv-characters/)
-- [orange theme party outfit](https://celebs.allwomenstalk.com/celebrities-in-little-orange-dresses-who-wore-it-best/)
+- [celebrities 54](https://celebs.allwomenstalk.com/celebrities-wearing-striped-dresses-who-wore-it-best/)
+- [floral dress celebrity](https://celebs.allwomenstalk.com/celebrities-wearing-floral-dresses-who-wore-it-best/)
+- [celebrities with overalls](https://celebs.allwomenstalk.com/celebrities-wearing-dungarees-who-wore-it-best/)
+- [celebrity short dresses](https://celebs.allwomenstalk.com/celebrities-wearing-lace-dresses-who-wore-it-best/)
 - [jordana brewster](https://celebs.allwomenstalk.com/celebrities-wearing-printed-pants-who-wore-it-best/)
 - [female celebrities wearing leather jackets](https://celebs.allwomenstalk.com/celebrities-wearing-leather-pants-who-wore-it-best/)
 - [celebrity festival outfits](https://celebs.allwomenstalk.com/celebrities-festival-fashion-who-wore-it-best/)
+- [desperate housewives gabrielle solis outfits](https://fashion.allwomenstalk.com/most-stylish-tv-characters/)
+- [orange theme party outfit](https://celebs.allwomenstalk.com/celebrities-in-little-orange-dresses-who-wore-it-best/)
 - [celebrities in polka dot dress](https://celebs.allwomenstalk.com/celebrities-wearing-polka-dots-who-wore-it-best/)
-- [celebrities 54](https://celebs.allwomenstalk.com/celebrities-wearing-striped-dresses-who-wore-it-best/)
-- [celebrities with overalls](https://celebs.allwomenstalk.com/celebrities-wearing-dungarees-who-wore-it-best/)
-- [celebrity short dresses](https://celebs.allwomenstalk.com/celebrities-wearing-lace-dresses-who-wore-it-best/)
-- [floral dress celebrity](https://celebs.allwomenstalk.com/celebrities-wearing-floral-dresses-who-wore-it-best/)
 - [10 Celebrities in Red Dresses  Who Wore It Best](https://celebs.allwomenstalk.com/celebrities-in-red-dresses-who-wore-it-best/)
 - [10 Celebrities in Chequered Clothes  Who Wore It B...](https://celebs.allwomenstalk.com/celebrities-in-chequered-clothes-who-wore-it-best/)
 

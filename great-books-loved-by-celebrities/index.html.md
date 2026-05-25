@@ -56,16 +56,16 @@ I've always been intrigued by the type of books that could influence my favorite
 
 ## Related Posts
 
-- [the happy wives club](https://books.allwomenstalk.com/things-to-love-about-the-book-happy-wives-club/)
-- [life is so good book](https://teen.allwomenstalk.com/best-books-about-teen-life/)
-- [dog man 13](https://books.allwomenstalk.com/influential-books-that-have-been-banned/)
-- [find new books](https://books.allwomenstalk.com/must-use-sites-for-finding-new-books/)
 - [books the wealthy read](https://money.allwomenstalk.com/best-finance-books-rich-people-read/)
-- [how to get free kindle](https://books.allwomenstalk.com/easy-ways-to-find-free-kindle-books-on-amazon/)
-- [novels set in 1920s](https://books.allwomenstalk.com/books-set-in-the-jazz-age/)
-- [leadership books for young adults](https://inspiration.allwomenstalk.com/best-leadership-books-every-young-leader-should-read/)
-- [magazine topics](https://lifestyle.allwomenstalk.com/magazines-chock-full-of-awesome-information/)
 - [historical books everyone should read](https://books.allwomenstalk.com/reasons-to-read-historical-fiction/)
+- [dog man 13](https://books.allwomenstalk.com/influential-books-that-have-been-banned/)
+- [how to get free kindle](https://books.allwomenstalk.com/easy-ways-to-find-free-kindle-books-on-amazon/)
+- [the happy wives club](https://books.allwomenstalk.com/things-to-love-about-the-book-happy-wives-club/)
+- [magazine topics](https://lifestyle.allwomenstalk.com/magazines-chock-full-of-awesome-information/)
+- [novels set in 1920s](https://books.allwomenstalk.com/books-set-in-the-jazz-age/)
+- [life is so good book](https://teen.allwomenstalk.com/best-books-about-teen-life/)
+- [find new books](https://books.allwomenstalk.com/must-use-sites-for-finding-new-books/)
+- [leadership books for young adults](https://inspiration.allwomenstalk.com/best-leadership-books-every-young-leader-should-read/)
 - [8 Surprisingly Good Books by Celebrities ...](https://celebs.allwomenstalk.com/surprisingly-good-books-by-celebrities/)
 - [8 Worst Books Written by Celebs ...](https://celebs.allwomenstalk.com/8-worst-books-written-by-celebs/)
 

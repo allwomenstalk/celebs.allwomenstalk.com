@@ -24,16 +24,16 @@ While we're on the subject, someone tell me why are the two separating?
 
 ## Related Posts
 
-- [kate bosworth skinny](https://celebs.allwomenstalk.com/kates-skinny-cargo-pants/)
+- [selena gomez red lips](https://celebs.allwomenstalk.com/selenas-fashion-line/)
 - [serena william hot](https://celebs.allwomenstalk.com/serenas-day-at-the-beach/)
-- [amandah dominic](https://celebs.allwomenstalk.com/amanda-and-dominic-check-in/)
 - [color le stylo emerald conquest](https://celebs.allwomenstalk.com/karas-poor-fit/)
 - [emma thompson photos](https://celebs.allwomenstalk.com/5-photos-of-emma-in-london/)
-- [kristen stewart in the runaways](https://celebs.allwomenstalk.com/9-photos-of-kristen-arrives/)
+- [amandah dominic](https://celebs.allwomenstalk.com/amanda-and-dominic-check-in/)
 - [niecy nash photos](https://celebs.allwomenstalk.com/nash-wears-yellow-on-live/)
+- [kate bosworth skinny](https://celebs.allwomenstalk.com/kates-skinny-cargo-pants/)
 - [yasmine zeroc](https://celebs.allwomenstalk.com/camilla-gets-a-push/)
-- [selena gomez red lips](https://celebs.allwomenstalk.com/selenas-fashion-line/)
 - [3 Photos of Ripa Works out ...](https://celebs.allwomenstalk.com/ripa-works-out/)
+- [kristen stewart in the runaways](https://celebs.allwomenstalk.com/9-photos-of-kristen-arrives/)
 - [4 Bridal Hair Accessories for the Royal Princess ....](https://wedding.allwomenstalk.com/4-bridal-hair-accessories-for-the-royal-princess/)
 - [7 Designer Bridal Gown Sketches for Kate Middleton...](https://wedding.allwomenstalk.com/7-designer-bridal-gown-sketches-for-kate-middleton/)
 

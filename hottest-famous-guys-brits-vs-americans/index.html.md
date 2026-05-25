@@ -100,16 +100,16 @@ Top Image Source: [stylefrizz.com](http://stylefrizz.com/201205/david-beckhams-e
 
 ## Related Posts
 
-- [famous eccentric person](https://celebs.allwomenstalk.com/most-eccentric-pop-stars/)
+- [famous celebrity haircuts](https://celebs.allwomenstalk.com/shocking-celebrity-haircuts/)
+- [zoe perry smoking](https://beauty.allwomenstalk.com/chic-celebrities-to-get-beauty-inspiration-from/)
+- [girl celeb crushes](https://movies.allwomenstalk.com/celebrity-girl-crushes-on-tv/)
+- [hot irish actor](https://celebs.allwomenstalk.com/most-talented-irish-actors/)
+- [big easy baddies](https://movies.allwomenstalk.com/top-tv-baddies-we-love/)
 - [famous person who learned from their mistakes](https://celebs.allwomenstalk.com/celebrities-who-blew-it-and-how-not-to-repeat-their-mistakes/)
 - [ed begley jnr](https://celebs.allwomenstalk.com/celebrities-who-care-about-the-environment/)
-- [hot irish actor](https://celebs.allwomenstalk.com/most-talented-irish-actors/)
-- [girl celeb crushes](https://movies.allwomenstalk.com/celebrity-girl-crushes-on-tv/)
-- [big easy baddies](https://movies.allwomenstalk.com/top-tv-baddies-we-love/)
+- [famous eccentric person](https://celebs.allwomenstalk.com/most-eccentric-pop-stars/)
 - [famous couples in tv](https://movies.allwomenstalk.com/of-the-best-tv-couples/)
-- [famous celebrity haircuts](https://celebs.allwomenstalk.com/shocking-celebrity-haircuts/)
 - [role models for teenagers](https://celebs.allwomenstalk.com/best-tv-teen-role-models/)
-- [zoe perry smoking](https://beauty.allwomenstalk.com/chic-celebrities-to-get-beauty-inspiration-from/)
 - [10 Hottest Celebrity Vacation Spots ...](https://travel.allwomenstalk.com/hottest-celebrity-vacation-spots/)
 - [10 Amazing British Movie Stars ...](https://movies.allwomenstalk.com/amazing-british-movie-stars/)
 

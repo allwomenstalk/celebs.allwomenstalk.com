@@ -64,16 +64,16 @@ Top image source: [24.media.tumblr.com](https://64.media.tumblr.com/tumblr_lko2z
 
 ## Related Posts
 
-- [inspiring celebrities](https://celebs.allwomenstalk.com/inspiring-celebrities-of/)
-- [4 Celebs That Shot to Fame after Cosmetic Surgery....](https://celebs.allwomenstalk.com/celebs-that-shot-to-fame-after-cosmetic-surgery/)
-- [weather girl wardrobe malfunctions](https://celebs.allwomenstalk.com/25-celebrity-wardrobe-malfunctions/)
 - [christopher walken angelina jolie](https://celebs.allwomenstalk.com/surprising-music-video-stars/)
-- [who are the nicest celebrity chefs](https://cooking.allwomenstalk.com/7-best-celebrity-chefs/)
-- [model off duty look](https://celebs.allwomenstalk.com/celebrities-with-excellent-off-duty-style/)
-- [7 Awesomely Impressive Celebrity Entrepreneurs ...](https://celebs.allwomenstalk.com/awesomely-impressive-celebrity-entrepreneurs/)
+- [smoking cigarette quotes](https://celebs.allwomenstalk.com/celebrity-smoking-quotes/)
 - [olivia wilde bangs](https://celebs.allwomenstalk.com/celebrities-proving-that-bangs-are-back/)
 - [beautiful actress under 25](https://celebs.allwomenstalk.com/25-hottest-female-celebrities-under-25/)
-- [smoking cigarette quotes](https://celebs.allwomenstalk.com/celebrity-smoking-quotes/)
+- [4 Celebs That Shot to Fame after Cosmetic Surgery....](https://celebs.allwomenstalk.com/celebs-that-shot-to-fame-after-cosmetic-surgery/)
+- [weather girl wardrobe malfunctions](https://celebs.allwomenstalk.com/25-celebrity-wardrobe-malfunctions/)
+- [who are the nicest celebrity chefs](https://cooking.allwomenstalk.com/7-best-celebrity-chefs/)
+- [7 Awesomely Impressive Celebrity Entrepreneurs ...](https://celebs.allwomenstalk.com/awesomely-impressive-celebrity-entrepreneurs/)
+- [inspiring celebrities](https://celebs.allwomenstalk.com/inspiring-celebrities-of/)
+- [model off duty look](https://celebs.allwomenstalk.com/celebrities-with-excellent-off-duty-style/)
 - [8 Iconic Red Carpet Celebrity Looks ...](https://celebs.allwomenstalk.com/iconic-red-carpet-celebrity-looks/)
 - [8 Celebrities with the Best Makeup ...](https://allwomenstalk.com/8-celebrities-with-the-best-makeup/)
 

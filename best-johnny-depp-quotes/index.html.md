@@ -54,16 +54,16 @@ You see, there is so much more to Johnny Depp than his gorgeous good looks. Thes
 
 ## Related Posts
 
-- [how tall was joan crawford](https://movies.allwomenstalk.com/classic-joan-crawford-quotes/)
 - [sometimes the right path is not easiest one](https://lifestyle.allwomenstalk.com/quotes-to-live-by/)
-- [friendships fade quotes](https://movies.allwomenstalk.com/tv-quotes-about-friendship/)
-- [7 year itch funny quotes](https://movies.allwomenstalk.com/inspiring-quotes-from-classic-old-movies/)
 - [site:health.allwomenstalk.com](https://health.allwomenstalk.com/great-quotes-from-jillian-michaels/)
 - [death bed quotes](https://lifestyle.allwomenstalk.com/wittiest-deathbed-quotes/)
-- [karl lagerfeld quote short men](https://fashion.allwomenstalk.com/infamous-quotes-by-karl-lagerfeld/)
 - [quote from the help you is kind](https://movies.allwomenstalk.com/best-movie-quotes-of-all-time/)
-- [sword quotes](https://beauty.allwomenstalk.com/famous-and-fab-quotes-on-beauty/)
+- [7 year itch funny quotes](https://movies.allwomenstalk.com/inspiring-quotes-from-classic-old-movies/)
+- [how tall was joan crawford](https://movies.allwomenstalk.com/classic-joan-crawford-quotes/)
+- [karl lagerfeld quote short men](https://fashion.allwomenstalk.com/infamous-quotes-by-karl-lagerfeld/)
 - [quotes about healing a broken heart](https://love.allwomenstalk.com/quotes-to-help-heal-a-broken-heart/)
+- [friendships fade quotes](https://movies.allwomenstalk.com/tv-quotes-about-friendship/)
+- [sword quotes](https://beauty.allwomenstalk.com/famous-and-fab-quotes-on-beauty/)
 - [Top 10 Lines from the Movies ...](https://movies.allwomenstalk.com/top-10-lines-from-the-movies/)
 - [10 Amazing British Movie Stars ...](https://movies.allwomenstalk.com/amazing-british-movie-stars/)
 

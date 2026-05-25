@@ -59,15 +59,15 @@ Top Photo Credit: [oko-kino.ru](http://oko-kino.ru/Akteru/DG-D-1.jpg)
 ## Related Posts
 
 - [cute guys wearing skirts](https://celebs.allwomenstalk.com/sexiest-celebrity-men-in-skirts/)
-- [celebrity news 2011](https://celebs.allwomenstalk.com/big-celebrity-news-of/)
+- [celebrity cancer survivors](https://celebs.allwomenstalk.com/wonderfully-remarkable-celebrity-cancer-survivor-stories/)
 - [most popular person](https://celebs.allwomenstalk.com/gorgeous-full-figured-celebrities/)
 - [sundance film festival outfits](https://allwomenstalk.com/star-sightings-at-the-sundance-film-festival-january-18-22/)
 - [Sexiest Men Alive up for Auction ...](https://celebs.allwomenstalk.com/sexiest-men-alive-up-for-auction/)
-- [current events with celebrities](https://celebs.allwomenstalk.com/best-celebrity-gossip-websites/)
 - [sarah jessica parker south oark](https://celebs.allwomenstalk.com/favourite-south-park-celebrity-targets/)
+- [celebrity news 2011](https://celebs.allwomenstalk.com/big-celebrity-news-of/)
 - [most famous affairs](https://love.allwomenstalk.com/extraordinary-famous-love-affairs/)
+- [current events with celebrities](https://celebs.allwomenstalk.com/best-celebrity-gossip-websites/)
 - [bob hope chrysler classic](https://allwomenstalk.com/celebrity-stalking-at-the-bob-hope-chrysler-classic/)
-- [celebrity cancer survivors](https://celebs.allwomenstalk.com/wonderfully-remarkable-celebrity-cancer-survivor-stories/)
 - [7 of My Favorite Celebrities ...](https://celebs.allwomenstalk.com/7-of-my-favorite-celebrities/)
 - [7 Women Celebrities Who Smoke ...](https://celebs.allwomenstalk.com/women-celebrities-who-smoke/)
 

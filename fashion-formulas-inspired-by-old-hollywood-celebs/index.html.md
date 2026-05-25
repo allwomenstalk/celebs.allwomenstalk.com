@@ -74,16 +74,16 @@ Which one of these fashion icons is your favorite?
 
 ## Related Posts
 
-- [celebrities who are fashion designers](https://fashion.allwomenstalk.com/celebs-that-double-as-insanely-talented-fashion-designers/)
-- [sleek outfit](https://fashion.allwomenstalk.com/sleek-black-outfits-inspired-by-the-kardashians/)
-- [kate middleton makeup tutorial](https://celebs.allwomenstalk.com/you-must-see-these-kate-middletons-best-looks-from-last-year/)
 - [french beauties](https://fashion.allwomenstalk.com/fashion-tips-inspired-by-french-beauties/)
-- [kendall jenner best looks](https://celebs.allwomenstalk.com/a-look-at-kendall-jenners-best-outfits-of/)
-- [90s office wear](https://fashion.allwomenstalk.com/these-classic-tv-icons-will-influence-your-holiday-style/)
+- [celebrities who are fashion designers](https://fashion.allwomenstalk.com/celebs-that-double-as-insanely-talented-fashion-designers/)
 - [marquita pring height weight](https://fashion.allwomenstalk.com/these-breathtaking-models-are-changing-the-face-of-fashion/)
+- [90s office wear](https://fashion.allwomenstalk.com/these-classic-tv-icons-will-influence-your-holiday-style/)
+- [taylor swift 1989 outfits](https://celebs.allwomenstalk.com/see-taylor-swifts-best-outfits-from-over-this-past-year/)
+- [sleek outfit](https://fashion.allwomenstalk.com/sleek-black-outfits-inspired-by-the-kardashians/)
 - [taylor swift fashion line](https://celebs.allwomenstalk.com/fab-photos-of-taylor-swifts-new-clothing-line/)
 - [jobs related to modeling](https://fashion.allwomenstalk.com/awesome-fashion-careers-that-dont-require-modeling/)
-- [taylor swift 1989 outfits](https://celebs.allwomenstalk.com/see-taylor-swifts-best-outfits-from-over-this-past-year/)
+- [kendall jenner best looks](https://celebs.allwomenstalk.com/a-look-at-kendall-jenners-best-outfits-of/)
+- [kate middleton makeup tutorial](https://celebs.allwomenstalk.com/you-must-see-these-kate-middletons-best-looks-from-last-year/)
 - [Top 10 Sexy Women in Hollywood ...](https://movies.allwomenstalk.com/top-10-sexy-women-in-hollywood/)
 - [10 Gorgeous Full-Figured Celebrities ...](https://celebs.allwomenstalk.com/gorgeous-full-figured-celebrities/)
 

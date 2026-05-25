@@ -42,16 +42,16 @@ Well, there you have it. These are just seven out of many foolproof ways to deep
 
 ## Related Posts
 
-- [how to flirt properly](https://love.allwomenstalk.com/ways-to-be-a-great-flirt/)
-- [caring gestures](https://love.allwomenstalk.com/sweet-gestures-to-make-that-show-him-you-care/)
 - [how to flirt at a party](https://love.allwomenstalk.com/fabulous-festive-flirting-tips-for-your-next-christmas-party/)
+- [how to tell someone you dont want to give them you...](https://funny.allwomenstalk.com/ways-to-react-when-you-dont-want-to-give-him-your-number/)
 - [boyfriend pandora mens rings](https://wedding.allwomenstalk.com/hints-to-give-your-boyfriend-about-the-engagement-ring-you-want/)
+- [he didnt touch me on first date](https://love.allwomenstalk.com/important-things-you-can-tell-about-a-man-on-the-first-date/)
+- [caring gestures](https://love.allwomenstalk.com/sweet-gestures-to-make-that-show-him-you-care/)
 - [look for a boyfriend](https://teen.allwomenstalk.com/places-teens-can-look-for-boyfriends/)
 - [how to get your boyfriend in the mood](https://love.allwomenstalk.com/ways-to-tell-him-youre-in-the-mood-without-saying-a-word/)
+- [how to flirt properly](https://love.allwomenstalk.com/ways-to-be-a-great-flirt/)
 - [how to turn on a boyfriend](https://love.allwomenstalk.com/ways-to-turn-your-boyfriend-into-a-fiance/)
-- [he didnt touch me on first date](https://love.allwomenstalk.com/important-things-you-can-tell-about-a-man-on-the-first-date/)
 - [when a guy wants to show you off](https://love.allwomenstalk.com/ways-a-proud-boyfriend-will-show-you-off/)
-- [how to tell someone you dont want to give them you...](https://funny.allwomenstalk.com/ways-to-react-when-you-dont-want-to-give-him-your-number/)
 - [7 Ways to Impress Your Man ...](https://allwomenstalk.com/7-ways-to-impress-your-man/)
 - [7 Ways to Make over Your Man ...](https://allwomenstalk.com/7-ways-to-make-over-your-man/)
 

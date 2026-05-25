@@ -56,16 +56,16 @@ So maybe not all of these boards are put together entirely by the celebrities th
 
 ## Related Posts
 
-- [julia roberts jon bon jovi](https://celebs.allwomenstalk.com/celebrities-who-are-terrible-to-work-with/)
-- [instagram melinda shankar](https://celebs.allwomenstalk.com/degrassi-celebrities-to-follow-on-instagram/)
-- [famous actress in bikini](https://celebs.allwomenstalk.com/celebrities-bikini-ready-bodies/)
-- [90s celebrities](https://celebs.allwomenstalk.com/celebrities-who-were-in-90s-commercials/)
-- [crazy actor transformations](https://movies.allwomenstalk.com/actors-who-transformed-their-bodies-for-a-movie-role/)
-- [sophie turner and taylor swift](https://celebs.allwomenstalk.com/celebrities-who-are-great-friends-with-taylor-swift/)
-- [surprising celebrity couples](https://celebs.allwomenstalk.com/celebrity-couples-that-you-never-knew-about/)
-- [mickey mouse club mouseketeers list](https://celebs.allwomenstalk.com/former-disney-mouseketeers-who-now-made-names-for-themselves/)
-- [does zac efron have a sister](https://celebs.allwomenstalk.com/celebrities-with-attractive-siblings/)
 - [celebrities suffering from anxiety](https://celebs.allwomenstalk.com/celebrities-with-anxiety-disorders/)
+- [sophie turner and taylor swift](https://celebs.allwomenstalk.com/celebrities-who-are-great-friends-with-taylor-swift/)
+- [does zac efron have a sister](https://celebs.allwomenstalk.com/celebrities-with-attractive-siblings/)
+- [surprising celebrity couples](https://celebs.allwomenstalk.com/celebrity-couples-that-you-never-knew-about/)
+- [90s celebrities](https://celebs.allwomenstalk.com/celebrities-who-were-in-90s-commercials/)
+- [famous actress in bikini](https://celebs.allwomenstalk.com/celebrities-bikini-ready-bodies/)
+- [julia roberts jon bon jovi](https://celebs.allwomenstalk.com/celebrities-who-are-terrible-to-work-with/)
+- [mickey mouse club mouseketeers list](https://celebs.allwomenstalk.com/former-disney-mouseketeers-who-now-made-names-for-themselves/)
+- [instagram melinda shankar](https://celebs.allwomenstalk.com/degrassi-celebrities-to-follow-on-instagram/)
+- [crazy actor transformations](https://movies.allwomenstalk.com/actors-who-transformed-their-bodies-for-a-movie-role/)
 - [9 Amazing Celebrity Wedding Dresses ...](https://celebs.allwomenstalk.com/amazing-celebrity-wedding-dresses/)
 - [7 Inspiring Celebrities of 2011 ...](https://celebs.allwomenstalk.com/inspiring-celebrities-of/)
 

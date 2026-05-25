@@ -42,16 +42,16 @@ Are you an Ed Sheeran fan? Do you think these are some of the best Ed Sheeran ly
 
 ## Related Posts
 
-- [upbeat cheer songs](https://lifestyle.allwomenstalk.com/songs-to-cheer-you-up/)
-- [best songs for a road trip](https://lifestyle.allwomenstalk.com/songs-for-your-road-trip-playlist/)
-- [kat deluna feet](https://lifestyle.allwomenstalk.com/songs-to-start-your-day-off-on-the-right-feet/)
+- [girl power anthems](https://lifestyle.allwomenstalk.com/girl-power-anthems/)
 - [bruno mars best dance song](https://lifestyle.allwomenstalk.com/dance-songs-to-run-to/)
 - [study time songs](https://lifestyle.allwomenstalk.com/songs-for-your-study-playlist/)
-- [girl power anthems](https://lifestyle.allwomenstalk.com/girl-power-anthems/)
+- [kat deluna feet](https://lifestyle.allwomenstalk.com/songs-to-start-your-day-off-on-the-right-feet/)
 - [clean good songs](https://lifestyle.allwomenstalk.com/songs-to-clean-your-house-to/)
-- [dance with my daddy](https://wedding.allwomenstalk.com/fabulous-father-daughter-dance-songs/)
-- [festivals like warped tour](https://travel.allwomenstalk.com/amazing-music-festivals-to-attend-in/)
 - [songs to win your ex back](https://love.allwomenstalk.com/best-songs-to-get-over-your-ex/)
+- [festivals like warped tour](https://travel.allwomenstalk.com/amazing-music-festivals-to-attend-in/)
+- [best songs for a road trip](https://lifestyle.allwomenstalk.com/songs-for-your-road-trip-playlist/)
+- [upbeat cheer songs](https://lifestyle.allwomenstalk.com/songs-to-cheer-you-up/)
+- [dance with my daddy](https://wedding.allwomenstalk.com/fabulous-father-daughter-dance-songs/)
 - [7 Amazing Adeles Love Songs ...](https://celebs.allwomenstalk.com/amazing-adeles-love-songs/)
 - [7 of the Best Love Letters Ever Written ...](https://allwomenstalk.com/7-of-the-best-love-letters-ever-written/)
 

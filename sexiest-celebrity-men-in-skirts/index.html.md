@@ -64,16 +64,16 @@ Top Photo Credit: [mugley](https://www.flickr.com/photos/mugley/267701188/)
 
 ## Related Posts
 
-- [celebrity news 2011](https://celebs.allwomenstalk.com/big-celebrity-news-of/)
 - [sarah jessica parker south oark](https://celebs.allwomenstalk.com/favourite-south-park-celebrity-targets/)
-- [popbyes](https://allwomenstalk.com/kate-winslets-hollywood-life/)
-- [celebrity cancer survivors](https://celebs.allwomenstalk.com/wonderfully-remarkable-celebrity-cancer-survivor-stories/)
-- [bob hope chrysler classic](https://allwomenstalk.com/celebrity-stalking-at-the-bob-hope-chrysler-classic/)
-- [most famous affairs](https://love.allwomenstalk.com/extraordinary-famous-love-affairs/)
-- [sundance film festival outfits](https://allwomenstalk.com/star-sightings-at-the-sundance-film-festival-january-18-22/)
 - [current events with celebrities](https://celebs.allwomenstalk.com/best-celebrity-gossip-websites/)
+- [sundance film festival outfits](https://allwomenstalk.com/star-sightings-at-the-sundance-film-festival-january-18-22/)
+- [celebrity cancer survivors](https://celebs.allwomenstalk.com/wonderfully-remarkable-celebrity-cancer-survivor-stories/)
+- [popbyes](https://allwomenstalk.com/kate-winslets-hollywood-life/)
 - [Sexiest Men Alive up for Auction ...](https://celebs.allwomenstalk.com/sexiest-men-alive-up-for-auction/)
 - [most popular person](https://celebs.allwomenstalk.com/gorgeous-full-figured-celebrities/)
+- [celebrity news 2011](https://celebs.allwomenstalk.com/big-celebrity-news-of/)
+- [most famous affairs](https://love.allwomenstalk.com/extraordinary-famous-love-affairs/)
+- [bob hope chrysler classic](https://allwomenstalk.com/celebrity-stalking-at-the-bob-hope-chrysler-classic/)
 - [8 Iconic Red Carpet Celebrity Looks ...](https://celebs.allwomenstalk.com/iconic-red-carpet-celebrity-looks/)
 - [8 Great Spring Skirts ...](https://fashion.allwomenstalk.com/great-spring-skirts/)
 

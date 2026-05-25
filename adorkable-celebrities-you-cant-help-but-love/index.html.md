@@ -56,16 +56,16 @@ Well ladies, this is my list of my 7 favorite adorkable celebrities. What dorks 
 
 ## Related Posts
 
-- [stylish celebrities](https://fashion.allwomenstalk.com/stylish-celebrities-under-20-who-have-style-beyond-their-years/)
-- [role model celebrity](https://celebs.allwomenstalk.com/awesome-celebrity-moms-that-are-great-role-models/)
 - [ginger denial midnight](https://celebs.allwomenstalk.com/of-the-most-amazing-redhead-celebrities/)
-- [jamie lynn weight gain](https://celebs.allwomenstalk.com/dramatic-celebrity-weight-loss-stories/)
-- [celebrity bffs](https://celebs.allwomenstalk.com/celebrity-bffs-who-are-the-real-deal/)
-- [celebrity stunt meaning](https://celebs.allwomenstalk.com/worst-celebrity-publicity-stunts-we-have-ever-seen/)
 - [florence welch haircut](https://hair.allwomenstalk.com/of-the-best-bangs-in-hollywood/)
-- [black haired female actresses](https://celebs.allwomenstalk.com/funniest-female-actresses-in-hollywood/)
 - [late bloomer celebrities](https://celebs.allwomenstalk.com/celebrities-who-found-success-later-in-life/)
 - [twins who are both actors](https://celebs.allwomenstalk.com/celebrities-you-didnt-know-were-twins-thatll-surprise-you/)
+- [black haired female actresses](https://celebs.allwomenstalk.com/funniest-female-actresses-in-hollywood/)
+- [stylish celebrities](https://fashion.allwomenstalk.com/stylish-celebrities-under-20-who-have-style-beyond-their-years/)
+- [jamie lynn weight gain](https://celebs.allwomenstalk.com/dramatic-celebrity-weight-loss-stories/)
+- [role model celebrity](https://celebs.allwomenstalk.com/awesome-celebrity-moms-that-are-great-role-models/)
+- [celebrity stunt meaning](https://celebs.allwomenstalk.com/worst-celebrity-publicity-stunts-we-have-ever-seen/)
+- [celebrity bffs](https://celebs.allwomenstalk.com/celebrity-bffs-who-are-the-real-deal/)
 - [7 of My Favorite Celebrities ...](https://celebs.allwomenstalk.com/7-of-my-favorite-celebrities/)
 - [7 Cool Celebrities with Dimples ...](https://celebs.allwomenstalk.com/cool-celebrities-with-dimples/)
 

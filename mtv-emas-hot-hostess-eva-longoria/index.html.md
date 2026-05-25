@@ -44,16 +44,16 @@ On stage with Katy Perry
 
 ## Related Posts
 
-- [kanye and kim music video](https://celebs.allwomenstalk.com/kim-kardashian-makes-a-video-with-kanye-west/)
-- [penn badgely height](https://celebs.allwomenstalk.com/blake-and-penn-still-friends/)
-- [colleen locklear](https://celebs.allwomenstalk.com/heather-locklear-takes-sis-shopping/)
-- [kristen stewart](https://celebs.allwomenstalk.com/kristen-stewart-gets-edgy-for-vogue-italia/)
-- [Angelina Reveals Her Latest Talent](https://celebs.allwomenstalk.com/angelina-reveals-her-latest-talent/)
-- [katy naughty](https://celebs.allwomenstalk.com/katy-perry-to-get-naughty-with-ted-mosby/)
-- [katy perry snow white](https://celebs.allwomenstalk.com/katy-perry-channels-the-roaring-20s-for-ghd/)
-- [christina aguilera kids](https://celebs.allwomenstalk.com/christina-takes-max-shopping/)
 - [4 Photos of Lilly Allens Growing Belly ...](https://celebs.allwomenstalk.com/lilly-allens-growing-belly/)
+- [christina aguilera kids](https://celebs.allwomenstalk.com/christina-takes-max-shopping/)
+- [kristen stewart](https://celebs.allwomenstalk.com/kristen-stewart-gets-edgy-for-vogue-italia/)
+- [kanye and kim music video](https://celebs.allwomenstalk.com/kim-kardashian-makes-a-video-with-kanye-west/)
+- [colleen locklear](https://celebs.allwomenstalk.com/heather-locklear-takes-sis-shopping/)
+- [penn badgely height](https://celebs.allwomenstalk.com/blake-and-penn-still-friends/)
+- [katy naughty](https://celebs.allwomenstalk.com/katy-perry-to-get-naughty-with-ted-mosby/)
 - [Justin the New Man in Olivias Life](https://celebs.allwomenstalk.com/justin-the-new-man-in-olivias-life/)
+- [katy perry snow white](https://celebs.allwomenstalk.com/katy-perry-channels-the-roaring-20s-for-ghd/)
+- [Angelina Reveals Her Latest Talent](https://celebs.allwomenstalk.com/angelina-reveals-her-latest-talent/)
 - [81 Photos of 2010 MTV Movie Awards ...](https://celebs.allwomenstalk.com/mtv-movie-awards/)
 - [2010 Hollywood Style Awards ...](https://celebs.allwomenstalk.com/hollywood-style-awards/)
 

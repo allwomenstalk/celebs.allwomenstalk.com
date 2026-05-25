@@ -38,16 +38,16 @@ Interested in what happened at other venues, [keep reading](https://celebs.allwo
 
 ## Related Posts
 
-- [awesome birds](https://gardening.allwomenstalk.com/5-awesome-birds/)
-- [amazing butterflies](https://gardening.allwomenstalk.com/5-amazing-butterflies/)
-- [Fat: a Love Story ...](https://health.allwomenstalk.com/fat-a-love-story/)
-- [rare and unusual types of phobias](https://health.allwomenstalk.com/extraordinary-rare-phobias-and-their-meaning/)
-- [charlie lifestyle](https://celebs.allwomenstalk.com/this-is-charlies-lifestyle-and-it-is-what-it-is/)
-- [Larry King Live Ends after 25 Years ...](https://celebs.allwomenstalk.com/larry-king-live-ends-after-25-years/)
 - [mythbusters obama](https://celebs.allwomenstalk.com/obama-on-mythbusters/)
 - [7 People Who Shouldnt Have Been Assassinated ...](https://celebs.allwomenstalk.com/7-people-who-shouldnt-have-been-assassinated/)
+- [rare and unusual types of phobias](https://health.allwomenstalk.com/extraordinary-rare-phobias-and-their-meaning/)
+- [awesome birds](https://gardening.allwomenstalk.com/5-awesome-birds/)
 - [bangles definition](https://jewelry.allwomenstalk.com/8-statement-bangles/)
+- [Fat: a Love Story ...](https://health.allwomenstalk.com/fat-a-love-story/)
+- [amazing butterflies](https://gardening.allwomenstalk.com/5-amazing-butterflies/)
 - [7 Predictions That Might Come True ...](https://lifestyle.allwomenstalk.com/predictions-that-might-come-true/)
+- [Larry King Live Ends after 25 Years ...](https://celebs.allwomenstalk.com/larry-king-live-ends-after-25-years/)
+- [charlie lifestyle](https://celebs.allwomenstalk.com/this-is-charlies-lifestyle-and-it-is-what-it-is/)
 - [5 Ways to Celebrate Your New Years Eve Wedding ...](https://wedding.allwomenstalk.com/5-ways-to-celebrate-your-new-years-eve-wedding/)
 - [New Year Bash Wrap-up: Part 2 ...](https://celebs.allwomenstalk.com/new-year-bash-wrap-up-part-2/)
 

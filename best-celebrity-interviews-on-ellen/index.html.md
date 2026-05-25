@@ -42,16 +42,16 @@ Now that I’ve gone through this list of great celebrity interviews on Ellen, I
 
 ## Related Posts
 
-- [zan efron](https://celebs.allwomenstalk.com/disney-celebs-whove-gone-on-to-do-big-things/)
-- [lauren jauregui weight gain](https://celebs.allwomenstalk.com/celebs-who-rock-bold-brows-and-look-fab/)
-- [zooey deschanel and joseph gordon-levitt relations...](https://celebs.allwomenstalk.com/favorite-real-life-will-theywont-they-celebrity-couples/)
 - [alyson hannigan looks like](https://celebs.allwomenstalk.com/celebrities-who-look-like-they-never-age/)
+- [brendan fraser sexiest man alive](https://celebs.allwomenstalk.com/celebrities-who-are-fading-quickly/)
+- [zooey deschanel and joseph gordon-levitt relations...](https://celebs.allwomenstalk.com/favorite-real-life-will-theywont-they-celebrity-couples/)
+- [new york actresses over 50](https://celebs.allwomenstalk.com/actresses-over-50-who-are-still-fabulous/)
+- [lauren jauregui weight gain](https://celebs.allwomenstalk.com/celebs-who-rock-bold-brows-and-look-fab/)
+- [zan efron](https://celebs.allwomenstalk.com/disney-celebs-whove-gone-on-to-do-big-things/)
+- [celebrities with non famous spouses](https://celebs.allwomenstalk.com/celebrities-who-married-non-celebrities/)
+- [justin berfield height](https://movies.allwomenstalk.com/noughties-tv-stars-we-all-seriously-miss/)
 - [dilligaf tattoo meaning](https://celebs.allwomenstalk.com/celebs-who-are-obsessed-with-tattoos/)
 - [riche le stylo eye timeless spark](https://celebs.allwomenstalk.com/celebrities-with-famous-godparents-that-you-probably-didnt-know-about/)
-- [justin berfield height](https://movies.allwomenstalk.com/noughties-tv-stars-we-all-seriously-miss/)
-- [celebrities with non famous spouses](https://celebs.allwomenstalk.com/celebrities-who-married-non-celebrities/)
-- [new york actresses over 50](https://celebs.allwomenstalk.com/actresses-over-50-who-are-still-fabulous/)
-- [brendan fraser sexiest man alive](https://celebs.allwomenstalk.com/celebrities-who-are-fading-quickly/)
 - [7 Biggest Celebrity Weddings ...](https://wedding.allwomenstalk.com/biggest-celebrity-weddings/)
 - [7 of My Favorite Celebrities ...](https://celebs.allwomenstalk.com/7-of-my-favorite-celebrities/)
 

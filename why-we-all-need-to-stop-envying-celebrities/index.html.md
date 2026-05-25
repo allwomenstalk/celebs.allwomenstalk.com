@@ -42,16 +42,16 @@ Envying others gets you nowhere and makes you feel more down, so concentrate on 
 
 ## Related Posts
 
-- [big bang top hair](https://music.allwomenstalk.com/kpop-stars-who-rocked-their-hair-color/)
-- [gay love stories movie](https://movies.allwomenstalk.com/times-hollywood-got-gay-love-right/)
-- [middle aged male actors](https://movies.allwomenstalk.com/these-hot-british-actors-will-get-your-pulse-racing/)
-- [ariana grande workout clothes](https://fitness.allwomenstalk.com/sweat-in-style-check-out-these-celebs-in-workout-gear/)
 - [celebs in open marriages](https://celebs.allwomenstalk.com/inspiring-celeb-marriages-that-are-actually-long-lasting/)
-- [ariana grande doughnut drama](https://celebs.allwomenstalk.com/arianas-not-alone-here-are-some-other-celebs-eating-donuts/)
-- [whoopi goldberg avpd](https://celebs.allwomenstalk.com/successful-stars-with-mental-disorders/)
-- [affleck and garner having a cozy moment](https://celebs.allwomenstalk.com/ben-affleck-and-jennifer-garners-cutest-moments/)
-- [sensational beginnings](https://movies.allwomenstalk.com/actors-with-terrible-tv-beginnings/)
 - [cute celebrity couples](https://celebs.allwomenstalk.com/the-cutest-new-celebrity-couples-of/)
+- [affleck and garner having a cozy moment](https://celebs.allwomenstalk.com/ben-affleck-and-jennifer-garners-cutest-moments/)
+- [ariana grande doughnut drama](https://celebs.allwomenstalk.com/arianas-not-alone-here-are-some-other-celebs-eating-donuts/)
+- [middle aged male actors](https://movies.allwomenstalk.com/these-hot-british-actors-will-get-your-pulse-racing/)
+- [whoopi goldberg avpd](https://celebs.allwomenstalk.com/successful-stars-with-mental-disorders/)
+- [ariana grande workout clothes](https://fitness.allwomenstalk.com/sweat-in-style-check-out-these-celebs-in-workout-gear/)
+- [gay love stories movie](https://movies.allwomenstalk.com/times-hollywood-got-gay-love-right/)
+- [sensational beginnings](https://movies.allwomenstalk.com/actors-with-terrible-tv-beginnings/)
+- [big bang top hair](https://music.allwomenstalk.com/kpop-stars-who-rocked-their-hair-color/)
 - [7 Reasons Why Celebrities Shouldnt Tweet ...](https://celebs.allwomenstalk.com/reasons-why-celebrities-shouldnt-tweet/)
 - [8 Reasons Why We Love Celebrity Gossip ...](https://allwomenstalk.com/reasons-why-we-love-celebrity-gossip/)
 

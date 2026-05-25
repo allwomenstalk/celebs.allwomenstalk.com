@@ -44,16 +44,16 @@ Top Photo Credit: [HouseofCole](https://www.flickr.com/photos/houseofcole/430380
 
 ## Related Posts
 
-- [elegantly fashionable](https://hair.allwomenstalk.com/elegantly-fashionable-ways-to-style-your-curly-hair/)
-- [cute ponytails](https://hair.allwomenstalk.com/ponytails-that-look-adorable/)
-- [wings in your hair](https://hair.allwomenstalk.com/pretty-things-for-your-hair-from-mod-cloth/)
-- [ochre 7 comic](https://hair.allwomenstalk.com/7-ways-to-jazz-up-your-hair-color/)
 - [rock short hair](https://hair.allwomenstalk.com/ways-to-rock-a-pixie-cut/)
+- [ochre 7 comic](https://hair.allwomenstalk.com/7-ways-to-jazz-up-your-hair-color/)
 - [celebrity haircuts](https://hair.allwomenstalk.com/fabulous-celebrity-hair-cuts/)
-- [paris le smoky blinged and brilliant](https://hair.allwomenstalk.com/enchantingly-creative-ponytail-hair-styles/)
 - [princess hairstyle for little girl](https://hair.allwomenstalk.com/great-blogs-on-hairstyles-for-little-girls/)
-- [balayage hair](https://hair.allwomenstalk.com/top-celebrity-hair-styles-of-today/)
+- [cute ponytails](https://hair.allwomenstalk.com/ponytails-that-look-adorable/)
 - [hairstyles for school trip](https://hair.allwomenstalk.com/7-fun-hairstyles-for-school/)
+- [wings in your hair](https://hair.allwomenstalk.com/pretty-things-for-your-hair-from-mod-cloth/)
+- [elegantly fashionable](https://hair.allwomenstalk.com/elegantly-fashionable-ways-to-style-your-curly-hair/)
+- [balayage hair](https://hair.allwomenstalk.com/top-celebrity-hair-styles-of-today/)
+- [paris le smoky blinged and brilliant](https://hair.allwomenstalk.com/enchantingly-creative-ponytail-hair-styles/)
 - [7 Classic Hairstyles to Try ...](https://hair.allwomenstalk.com/7-classic-hairstyles-to-try/)
 - [10 Hottest Celebrity Hairstyles ...](https://hair.allwomenstalk.com/hottest-celebrity-hairstyles/)
 

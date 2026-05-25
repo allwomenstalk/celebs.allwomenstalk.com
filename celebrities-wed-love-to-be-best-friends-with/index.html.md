@@ -68,16 +68,16 @@ Which celebrity would you love to be your best friend? Let me know in the commen
 
 ## Related Posts
 
+- [funny celebrity memes](https://7fun.net/of-the-best-celebrity-memes-on-the-internet/)
+- [7 Actresses Who Never Really Made It as Singers .....](https://celebs.allwomenstalk.com/actresses-who-never-really-made-it-as-singers/)
+- [funny celebrity scandals](https://celebs.allwomenstalk.com/celebrity-scandals-from-that-didnt-surprise-anyone/)
+- [7 Celebs You Didnt Know Were Voice Actors ...](https://celebs.allwomenstalk.com/celebs-you-didnt-know-were-voice-actors/)
+- [7 Celebrity Apologies That Are Impossible to Forge...](https://celebs.allwomenstalk.com/celebrity-apologies-that-are-impossible-to-forget/)
+- [7 Amazing American Idol Contestants That Never Mad...](https://music.allwomenstalk.com/amazing-american-idol-contestants-that-never-made-it-through/)
+- [9 Celebrity Relationship Scandals That We Still Ta...](https://celebs.allwomenstalk.com/celebrity-relationship-scandals-that-we-still-talk-about/)
+- [taram killian](https://celebs.allwomenstalk.com/crush-worthy-celebrities-you-should-start-paying-more-attention-to/)
 - [7 Engaged Celebrities Who Will Hopefully Tie the K...](https://celebs.allwomenstalk.com/engaged-celebrities-who-will-hopefully-tie-the-knot-in/)
 - [7 Breakout Stars of 2013 We Came to Love ...](https://celebs.allwomenstalk.com/breakout-stars-of-we-came-to-love/)
-- [7 Celebrity Apologies That Are Impossible to Forge...](https://celebs.allwomenstalk.com/celebrity-apologies-that-are-impossible-to-forget/)
-- [9 Celebrity Relationship Scandals That We Still Ta...](https://celebs.allwomenstalk.com/celebrity-relationship-scandals-that-we-still-talk-about/)
-- [funny celebrity scandals](https://celebs.allwomenstalk.com/celebrity-scandals-from-that-didnt-surprise-anyone/)
-- [funny celebrity memes](https://7fun.net/of-the-best-celebrity-memes-on-the-internet/)
-- [taram killian](https://celebs.allwomenstalk.com/crush-worthy-celebrities-you-should-start-paying-more-attention-to/)
-- [7 Amazing American Idol Contestants That Never Mad...](https://music.allwomenstalk.com/amazing-american-idol-contestants-that-never-made-it-through/)
-- [7 Celebs You Didnt Know Were Voice Actors ...](https://celebs.allwomenstalk.com/celebs-you-didnt-know-were-voice-actors/)
-- [7 Actresses Who Never Really Made It as Singers .....](https://celebs.allwomenstalk.com/actresses-who-never-really-made-it-as-singers/)
 - [7 Celebrities I Would like to Hang with ...](https://celebs.allwomenstalk.com/7-celebrities-i-would-like-to-hang-with/)
 - [9 Celebs to Follow on Twitter ...](https://celebs.allwomenstalk.com/celebs-to-follow-on-twitter/)
 

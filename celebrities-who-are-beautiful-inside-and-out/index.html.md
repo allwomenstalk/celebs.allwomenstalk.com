@@ -56,16 +56,16 @@ Do you have any other celebrities to add to this list? I hope you have a new res
 
 ## Related Posts
 
-- [carrie underwood prego](https://fashion.allwomenstalk.com/stars-with-the-best-baby-bump-style-of-all-time/)
-- [hemsworth brothers shirtless](https://celebs.allwomenstalk.com/photos-of-the-hemsworth-brothers-to-make-your-ovaries-explode/)
-- [richard madden hairstyle](https://celebs.allwomenstalk.com/male-actors-to-swoon-over-this-year/)
-- [jack falahee weight gain](https://celebs.allwomenstalk.com/breakout-celebrities-of/)
 - [kelly osbourne skinny](https://celebs.allwomenstalk.com/celebrities-that-had-a-major-weight-loss-transformation/)
+- [carrie underwood prego](https://fashion.allwomenstalk.com/stars-with-the-best-baby-bump-style-of-all-time/)
 - [best celebrity tweets](https://funny.allwomenstalk.com/funniest-celebrities-read-mean-tweets-you-havent-seen-yet/)
-- [victoria justice and katharine mcphee](https://celebs.allwomenstalk.com/underrated-celebrities-that-should-be-more-famous/)
-- [famous people on twitter](https://celebs.allwomenstalk.com/of-the-most-followed-celebrities-on-twitter/)
-- [man in tight leather pants](https://celebs.allwomenstalk.com/our-favorite-male-celebrities-looking-good-in-leather/)
+- [hemsworth brothers shirtless](https://celebs.allwomenstalk.com/photos-of-the-hemsworth-brothers-to-make-your-ovaries-explode/)
 - [reese witherspoon as june carter](https://celebs.allwomenstalk.com/celebrities-who-look-exactly-like-who-they-portrayed-in-a-biopic/)
+- [famous people on twitter](https://celebs.allwomenstalk.com/of-the-most-followed-celebrities-on-twitter/)
+- [jack falahee weight gain](https://celebs.allwomenstalk.com/breakout-celebrities-of/)
+- [victoria justice and katharine mcphee](https://celebs.allwomenstalk.com/underrated-celebrities-that-should-be-more-famous/)
+- [man in tight leather pants](https://celebs.allwomenstalk.com/our-favorite-male-celebrities-looking-good-in-leather/)
+- [richard madden hairstyle](https://celebs.allwomenstalk.com/male-actors-to-swoon-over-this-year/)
 - [10 Gorgeous Full-Figured Celebrities ...](https://celebs.allwomenstalk.com/gorgeous-full-figured-celebrities/)
 - [More on Celebs amp Their Weight ...](https://allwomenstalk.com/more-on-celebs-their-weight/)
 

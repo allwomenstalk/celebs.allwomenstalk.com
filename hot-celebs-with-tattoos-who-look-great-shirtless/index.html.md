@@ -66,16 +66,16 @@ If you think ink is awesome, then you should appreciate all of these sexy men wi
 
 ## Related Posts
 
-- [mean girls anniversary](https://celebs.allwomenstalk.com/celebs-who-celebrated-mean-girls-10-year-anniversary/)
-- [his three daughters cast](https://celebs.allwomenstalk.com/celebrities-with-more-than-3-children/)
-- [celebrities twitter accounts](https://celebs.allwomenstalk.com/hilarious-celebrity-twitter-accounts-to-follow/)
-- [danny zugelder](https://celebs.allwomenstalk.com/female-celebrities-who-have-been-married-more-than-once/)
 - [celebrities giving back to the community](https://celebs.allwomenstalk.com/wonderful-celebrities-that-help-the-community/)
-- [underrated.lee](https://fitness.allwomenstalk.com/amazing-sports-stars-who-make-their-sport-an-art/)
 - [famous people who are inspiring](https://celebs.allwomenstalk.com/inspiring-celebrities-that-i-look-up-to/)
 - [cute famous couples](https://celebs.allwomenstalk.com/adorable-celebrity-couples-we-wish-were-more-public/)
-- [anna chlumsky swimsuit](https://celebs.allwomenstalk.com/child-stars-and-where-they-are-now/)
+- [mean girls anniversary](https://celebs.allwomenstalk.com/celebs-who-celebrated-mean-girls-10-year-anniversary/)
 - [nde celebrities](https://celebs.allwomenstalk.com/celebrities-who-have-had-near-death-experiences/)
+- [underrated.lee](https://fitness.allwomenstalk.com/amazing-sports-stars-who-make-their-sport-an-art/)
+- [his three daughters cast](https://celebs.allwomenstalk.com/celebrities-with-more-than-3-children/)
+- [celebrities twitter accounts](https://celebs.allwomenstalk.com/hilarious-celebrity-twitter-accounts-to-follow/)
+- [anna chlumsky swimsuit](https://celebs.allwomenstalk.com/child-stars-and-where-they-are-now/)
+- [danny zugelder](https://celebs.allwomenstalk.com/female-celebrities-who-have-been-married-more-than-once/)
 - [8 Celebrities Who Have Aged Beautifully ...](https://celebs.allwomenstalk.com/celebrities-who-have-aged-beautifully/)
 - [10 Celebri tee Looks That We Love ...](https://allwomenstalk.com/10-celebri-tee-looks-that-we-love/)
 

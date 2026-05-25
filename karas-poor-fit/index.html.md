@@ -20,15 +20,15 @@ Don't you just hate women wearing the wrong bra? I know I do!
 
 ## Related Posts
 
-- [3 Photos of Ripa Works out ...](https://celebs.allwomenstalk.com/ripa-works-out/)
-- [Does Sofia Vergara Look Pretty in Blue](https://celebs.allwomenstalk.com/vergaras-lunch-date/)
 - [kristen stewart in the runaways](https://celebs.allwomenstalk.com/9-photos-of-kristen-arrives/)
-- [kylie minogue airport](https://celebs.allwomenstalk.com/kylie-lands-in-nice/)
+- [Does Sofia Vergara Look Pretty in Blue](https://celebs.allwomenstalk.com/vergaras-lunch-date/)
 - [selena gomez red lips](https://celebs.allwomenstalk.com/selenas-fashion-line/)
 - [kate bosworth skinny](https://celebs.allwomenstalk.com/kates-skinny-cargo-pants/)
+- [3 Photos of Ripa Works out ...](https://celebs.allwomenstalk.com/ripa-works-out/)
+- [fox upfronts](https://celebs.allwomenstalk.com/fox-upfronts-in-central-park/)
 - [antonio banderas photoshoot](https://celebs.allwomenstalk.com/antonios-motorbike-team/)
 - [in my sleep 2010](https://celebs.allwomenstalk.com/in-my-sleep-premiere/)
-- [fox upfronts](https://celebs.allwomenstalk.com/fox-upfronts-in-central-park/)
+- [kylie minogue airport](https://celebs.allwomenstalk.com/kylie-lands-in-nice/)
 - [rebecca gayheart](https://celebs.allwomenstalk.com/dane-and-gayheart-pass-through-paris/)
 - [3 Photos of Camilla Gets a Push ...](https://celebs.allwomenstalk.com/camilla-gets-a-push/)
 - [4 Photos of Jessica Szohr in Soho ...](https://celebs.allwomenstalk.com/szohr-in-soho/)

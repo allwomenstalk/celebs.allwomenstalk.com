@@ -22,16 +22,16 @@ Now if she was about 8-10 years older at least, I might not be shifting so much 
 
 ## Related Posts
 
-- [bird feeder how to make](https://gardening.allwomenstalk.com/5-tips-on-making-your-own-bird-feeder/)
-- [caring for koi fish](https://gardening.allwomenstalk.com/5-tips-on-caring-for-koi-fish/)
-- [5 Tips on Having a Bird Feeder ...](https://gardening.allwomenstalk.com/5-tips-on-having-a-bird-feeder/)
-- [last minute dinner ideas for company](https://cooking.allwomenstalk.com/7-tips-for-throwing-a-dinner-party-at-the-last-minute/)
-- [orange things on sushi](https://cooking.allwomenstalk.com/10-things-to-know-if-youre-a-sushi-beginner/)
+- [safe grilling tips](https://cooking.allwomenstalk.com/grilling-safety-tips/)
+- [tips on raising chickens](https://gardening.allwomenstalk.com/5-tips-on-raising-chickens/)
 - [chasing bugs](https://gardening.allwomenstalk.com/5-tips-on-chasing-bugs-away/)
 - [bbq for beginners](https://cooking.allwomenstalk.com/tips-for-the-barbecue-beginner/)
-- [safe grilling tips](https://cooking.allwomenstalk.com/grilling-safety-tips/)
+- [last minute dinner ideas for company](https://cooking.allwomenstalk.com/7-tips-for-throwing-a-dinner-party-at-the-last-minute/)
+- [caring for koi fish](https://gardening.allwomenstalk.com/5-tips-on-caring-for-koi-fish/)
 - [10 Tips for Setting a Lovely Table ...](https://cooking.allwomenstalk.com/tips-for-setting-a-lovely-table/)
-- [tips on raising chickens](https://gardening.allwomenstalk.com/5-tips-on-raising-chickens/)
+- [orange things on sushi](https://cooking.allwomenstalk.com/10-things-to-know-if-youre-a-sushi-beginner/)
+- [5 Tips on Having a Bird Feeder ...](https://gardening.allwomenstalk.com/5-tips-on-having-a-bird-feeder/)
+- [bird feeder how to make](https://gardening.allwomenstalk.com/5-tips-on-making-your-own-bird-feeder/)
 - [Try before You Buy ...](https://allwomenstalk.com/try-before-you-buy-2/)
 - [Repairing Torn Jeans ...](https://allwomenstalk.com/repairing-torn-jeans/)
 

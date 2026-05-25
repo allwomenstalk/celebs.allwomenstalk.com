@@ -84,16 +84,16 @@ h/t: elitedaily.com_
 
 ## Related Posts
 
-- [hemsworth brothers shirtless](https://celebs.allwomenstalk.com/photos-of-the-hemsworth-brothers-to-make-your-ovaries-explode/)
+- [celebrities giving back](https://celebs.allwomenstalk.com/celebrity-do-gooders-who-are-always-giving-back/)
+- [carrie underwood prego](https://fashion.allwomenstalk.com/stars-with-the-best-baby-bump-style-of-all-time/)
+- [richard madden hairstyle](https://celebs.allwomenstalk.com/male-actors-to-swoon-over-this-year/)
+- [man in tight leather pants](https://celebs.allwomenstalk.com/our-favorite-male-celebrities-looking-good-in-leather/)
+- [kelly osbourne skinny](https://celebs.allwomenstalk.com/celebrities-that-had-a-major-weight-loss-transformation/)
 - [victoria justice and katharine mcphee](https://celebs.allwomenstalk.com/underrated-celebrities-that-should-be-more-famous/)
 - [famous people on twitter](https://celebs.allwomenstalk.com/of-the-most-followed-celebrities-on-twitter/)
-- [best celebrity tweets](https://funny.allwomenstalk.com/funniest-celebrities-read-mean-tweets-you-havent-seen-yet/)
-- [celebrities giving back](https://celebs.allwomenstalk.com/celebrity-do-gooders-who-are-always-giving-back/)
-- [man in tight leather pants](https://celebs.allwomenstalk.com/our-favorite-male-celebrities-looking-good-in-leather/)
-- [carrie underwood prego](https://fashion.allwomenstalk.com/stars-with-the-best-baby-bump-style-of-all-time/)
 - [jack falahee weight gain](https://celebs.allwomenstalk.com/breakout-celebrities-of/)
-- [kelly osbourne skinny](https://celebs.allwomenstalk.com/celebrities-that-had-a-major-weight-loss-transformation/)
-- [richard madden hairstyle](https://celebs.allwomenstalk.com/male-actors-to-swoon-over-this-year/)
+- [best celebrity tweets](https://funny.allwomenstalk.com/funniest-celebrities-read-mean-tweets-you-havent-seen-yet/)
+- [hemsworth brothers shirtless](https://celebs.allwomenstalk.com/photos-of-the-hemsworth-brothers-to-make-your-ovaries-explode/)
 - [7 Iconic Movies Roles That Were Almost Played by O...](https://movies.allwomenstalk.com/7-iconic-movies-roles-that-were-almost-played-by-other-actors/)
 - [9 Iconic Roles in the Movies ...](https://movies.allwomenstalk.com/iconic-roles-in-the-movies/)
 

@@ -114,16 +114,16 @@ Who was your favorite of the bunch?
 
 ## Related Posts
 
+- [blair red dress paris](https://movies.allwomenstalk.com/the-screens-best-dressed-students/)
 - [kroes rocks](https://beauty.allwomenstalk.com/these-were-the-best-hair-and-makeup-looks-from-cannes-film-festival/)
 - [worlds highest paid models](https://celebs.allwomenstalk.com/who-are-the-worlds-highest-paid-models-in/)
 - [teen choice 2015](https://celebs.allwomenstalk.com/the-red-carpet-at-the-teen-choice-awards/)
-- [couple fashion editorial](https://celebs.allwomenstalk.com/are-these-the-most-stylish-couples-of-all-time/)
 - [drinking game with boyfriend](https://lifestyle.allwomenstalk.com/play-this-drinking-game-during-the-oscars/)
-- [blair red dress paris](https://movies.allwomenstalk.com/the-screens-best-dressed-students/)
-- [jimmy fallon ellen lip sync](https://celebs.allwomenstalk.com/ellen-degeneres-vs-jimmy-fallon-who-won-their-lip-sync-battle/)
 - [best couples of hollywood](https://celebs.allwomenstalk.com/the-best-dressed-hollywood-couples/)
-- [pulitzer prize winners 2017](https://books.allwomenstalk.com/check-out-the-awesome-pulitzer-prize-winners-of/)
 - [pulitzer prize 2016](https://books.allwomenstalk.com/who-won-pulitzer-prizes-in/)
+- [pulitzer prize winners 2017](https://books.allwomenstalk.com/check-out-the-awesome-pulitzer-prize-winners-of/)
+- [jimmy fallon ellen lip sync](https://celebs.allwomenstalk.com/ellen-degeneres-vs-jimmy-fallon-who-won-their-lip-sync-battle/)
+- [couple fashion editorial](https://celebs.allwomenstalk.com/are-these-the-most-stylish-couples-of-all-time/)
 - [The Best Dressed Women of 2010 ...](https://celebs.allwomenstalk.com/the-best-dressed-women-of/)
 - [5 People Who Made It on Vanity Fairs Best Dressed ...](https://celebs.allwomenstalk.com/people-who-made-it-on-vanity-fairs-best-dressed-list/)
 

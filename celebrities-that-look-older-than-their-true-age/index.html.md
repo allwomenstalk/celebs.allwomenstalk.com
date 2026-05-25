@@ -65,15 +65,15 @@ Top Photo Credit: [data.whicdn.com](http://data.whicdn.com/images/15221194/tumbl
 ## Related Posts
 
 - [worst table manners](https://celebs.allwomenstalk.com/celebrities-with-awful-table-manners/)
-- [renee zellweger kenny chesney wedding](https://celebs.allwomenstalk.com/famous-hollywood-divorces/)
-- [celebs who live in nyc](https://celebs.allwomenstalk.com/celebrities-who-live-in-nyc/)
-- [beta male drawing](https://celebs.allwomenstalk.com/sweetly-sexy-hollywood-beta-males/)
-- [fashionable celebrities](https://celebs.allwomenstalk.com/fashionable-celebrities-to-watch-in/)
-- [celebrities to follow on twitter](https://celebs.allwomenstalk.com/celebs-to-follow-on-twitter/)
-- [katharine hepburn height weight](https://celebs.allwomenstalk.com/enduring-celebrity-myths/)
 - [bubbly personality celebrities](https://celebs.allwomenstalk.com/7-of-my-favorite-celebrities/)
-- [female celebrities with dimples](https://celebs.allwomenstalk.com/cool-celebrities-with-dimples/)
+- [fashionable celebrities](https://celebs.allwomenstalk.com/fashionable-celebrities-to-watch-in/)
+- [celebs who live in nyc](https://celebs.allwomenstalk.com/celebrities-who-live-in-nyc/)
 - [matt damon buzz cut](https://celebs.allwomenstalk.com/celebrity-haircuts-this-week/)
+- [female celebrities with dimples](https://celebs.allwomenstalk.com/cool-celebrities-with-dimples/)
+- [celebrities to follow on twitter](https://celebs.allwomenstalk.com/celebs-to-follow-on-twitter/)
+- [beta male drawing](https://celebs.allwomenstalk.com/sweetly-sexy-hollywood-beta-males/)
+- [katharine hepburn height weight](https://celebs.allwomenstalk.com/enduring-celebrity-myths/)
+- [renee zellweger kenny chesney wedding](https://celebs.allwomenstalk.com/famous-hollywood-divorces/)
 - [8 Celebrities Who Have Aged Beautifully ...](https://celebs.allwomenstalk.com/celebrities-who-have-aged-beautifully/)
 - [10 Gorgeous Full-Figured Celebrities ...](https://celebs.allwomenstalk.com/gorgeous-full-figured-celebrities/)
 

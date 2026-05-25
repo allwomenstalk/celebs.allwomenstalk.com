@@ -20,16 +20,16 @@ And your verdict ladies?
 
 ## Related Posts
 
-- [fox upfronts](https://celebs.allwomenstalk.com/fox-upfronts-in-central-park/)
-- [kylie minogue airport](https://celebs.allwomenstalk.com/kylie-lands-in-nice/)
-- [in my sleep 2010](https://celebs.allwomenstalk.com/in-my-sleep-premiere/)
 - [rebecca gayheart](https://celebs.allwomenstalk.com/dane-and-gayheart-pass-through-paris/)
-- [brooklyn decker just go with it bikini](https://celebs.allwomenstalk.com/brooklyns-bikini-bod/)
-- [3 Photos of Ripa Works out ...](https://celebs.allwomenstalk.com/ripa-works-out/)
-- [liv tyler tights](https://celebs.allwomenstalk.com/liv-hails-and-waits/)
-- [27 Photos of the a-Team Premiere ...](https://celebs.allwomenstalk.com/the-a-team-premiere/)
-- [antonio banderas photoshoot](https://celebs.allwomenstalk.com/antonios-motorbike-team/)
 - [Does Sofia Vergara Look Pretty in Blue](https://celebs.allwomenstalk.com/vergaras-lunch-date/)
+- [in my sleep 2010](https://celebs.allwomenstalk.com/in-my-sleep-premiere/)
+- [kylie minogue airport](https://celebs.allwomenstalk.com/kylie-lands-in-nice/)
+- [27 Photos of the a-Team Premiere ...](https://celebs.allwomenstalk.com/the-a-team-premiere/)
+- [liv tyler tights](https://celebs.allwomenstalk.com/liv-hails-and-waits/)
+- [3 Photos of Ripa Works out ...](https://celebs.allwomenstalk.com/ripa-works-out/)
+- [brooklyn decker just go with it bikini](https://celebs.allwomenstalk.com/brooklyns-bikini-bod/)
+- [fox upfronts](https://celebs.allwomenstalk.com/fox-upfronts-in-central-park/)
+- [antonio banderas photoshoot](https://celebs.allwomenstalk.com/antonios-motorbike-team/)
 - [Kourtney Kardashians Nude Look- Hot or Not](https://celebs.allwomenstalk.com/kourtney-keeps-it-fashionable/)
 - [Does Kristen Dunst Have a Fabulous Bikini Body](https://celebs.allwomenstalk.com/dunsts-bikini-body/)
 

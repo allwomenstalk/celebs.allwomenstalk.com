@@ -17,16 +17,16 @@ Kudos to you, Keira. We adore you!
 
 ## Related Posts
 
-- [dior spokesmodel](https://celebs.allwomenstalk.com/jennifer-lawrence-stuns-in-new-dior-campaign/)
-- [disney breast cancer awareness](https://inspiration.allwomenstalk.com/talented-artist-uses-disney-princesses-to-promote-breast-cancer-awareness/)
-- [rihanna personality type](https://celebs.allwomenstalk.com/rihanna-proves-shes-a-huge-scandal-fan-with-these-d-c-pics/)
-- [amy jo johnson body](https://celebs.allwomenstalk.com/original-pink-power-ranger-amy-jo-johnson-suited-up-for-a-street-performance/)
 - [pretty girls 11 year olds](https://beauty.allwomenstalk.com/this-9-year-old-model-is-being-called-the-most-beautiful-girl-in-the-world/)
-- [dominique battiste](https://music.allwomenstalk.com/dance-class-does-a-better-anaconda-dance-than-nicki-minaj-herself-video/)
 - [lolnews](https://funny.allwomenstalk.com/lol-news-anchor-goes-viral-after-dancing-to-taylor-swift-t-i/)
+- [dominique battiste](https://music.allwomenstalk.com/dance-class-does-a-better-anaconda-dance-than-nicki-minaj-herself-video/)
+- [rihanna personality type](https://celebs.allwomenstalk.com/rihanna-proves-shes-a-huge-scandal-fan-with-these-d-c-pics/)
+- [disney breast cancer awareness](https://inspiration.allwomenstalk.com/talented-artist-uses-disney-princesses-to-promote-breast-cancer-awareness/)
+- [amy jo johnson body](https://celebs.allwomenstalk.com/original-pink-power-ranger-amy-jo-johnson-suited-up-for-a-street-performance/)
 - [jennifer lawrence house](https://lifestyle.allwomenstalk.com/home-tour-inside-jennifer-lawrences-7-mil-beverly-hills-home/)
-- [pitch perfect 2 trailer](https://movies.allwomenstalk.com/the-barden-bellas-return-in-new-aca-amazing-pitch-perfect-trailer/)
 - [liam hemsworth stuff](https://celebs.allwomenstalk.com/lol-watch-the-hunger-games-liam-hemsworth-strut-his-stuff-in-high-heels/)
+- [pitch perfect 2 trailer](https://movies.allwomenstalk.com/the-barden-bellas-return-in-new-aca-amazing-pitch-perfect-trailer/)
+- [dior spokesmodel](https://celebs.allwomenstalk.com/jennifer-lawrence-stuns-in-new-dior-campaign/)
 - [Stars Come out in Support of DADT Repeal ...](https://celebs.allwomenstalk.com/stars-come-out-in-support-of-dadt-repeal/)
 - [Kate Winslets Hollywood Life ...](https://allwomenstalk.com/kate-winslets-hollywood-life/)
 

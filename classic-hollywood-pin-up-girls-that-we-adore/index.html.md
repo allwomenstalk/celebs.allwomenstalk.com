@@ -56,16 +56,16 @@ All of these gals were at the top of their game during their time as a pin-up gi
 
 ## Related Posts
 
-- [curvy female athletes](https://fitness.allwomenstalk.com/of-the-fittest-women-in-the-world-and-how-they-achieved-this-status/)
-- [queens beyond beauty](https://beauty.allwomenstalk.com/women-who-went-beyond-being-beauty-queens/)
-- [maritoni fernandez cancer survivor](https://health.allwomenstalk.com/inspiring-breast-cancer-survivors/)
-- [spunk movie](https://movies.allwomenstalk.com/female-movie-characters-with-spunk/)
-- [fangirl things](https://movies.allwomenstalk.com/different-types-of-fangirls-you-will-encounter/)
-- [funniest girl in the world](https://movies.allwomenstalk.com/funniest-women-on-tv-who-never-get-old/)
-- [inspirational movies for women](https://movies.allwomenstalk.com/biolographical-movies-about-inspiring-women/)
 - [top characters in game of thrones](https://movies.allwomenstalk.com/most-fabulous-female-characters-in-game-of-thrones/)
-- [thoughts on feminism](https://lifestyle.allwomenstalk.com/thoughts-about-feminism-that-are-perfectly-fine/)
+- [funniest girl in the world](https://movies.allwomenstalk.com/funniest-women-on-tv-who-never-get-old/)
+- [queens beyond beauty](https://beauty.allwomenstalk.com/women-who-went-beyond-being-beauty-queens/)
+- [inspirational movies for women](https://movies.allwomenstalk.com/biolographical-movies-about-inspiring-women/)
 - [love majewski](https://movies.allwomenstalk.com/outrageous-women-from-vh1s-mob-wives/)
+- [curvy female athletes](https://fitness.allwomenstalk.com/of-the-fittest-women-in-the-world-and-how-they-achieved-this-status/)
+- [spunk movie](https://movies.allwomenstalk.com/female-movie-characters-with-spunk/)
+- [thoughts on feminism](https://lifestyle.allwomenstalk.com/thoughts-about-feminism-that-are-perfectly-fine/)
+- [fangirl things](https://movies.allwomenstalk.com/different-types-of-fangirls-you-will-encounter/)
+- [maritoni fernandez cancer survivor](https://health.allwomenstalk.com/inspiring-breast-cancer-survivors/)
 - [5 Sexy Vampire Girls from the Twilight Series ...](https://twilight.allwomenstalk.com/5-sexy-vampire-girls-from-the-twilight-series/)
 - [10 Stunning Leading Ladies ...](https://movies.allwomenstalk.com/stunning-leading-ladies/)
 

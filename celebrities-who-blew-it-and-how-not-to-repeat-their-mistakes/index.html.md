@@ -46,16 +46,16 @@ It seems celebrities find it easier to get second chances than the rest of us, b
 
 ## Related Posts
 
-- [famous couples in tv](https://movies.allwomenstalk.com/of-the-best-tv-couples/)
-- [engaged celebrities](https://wedding.allwomenstalk.com/recently-engaged-celebrities/)
-- [girl celeb crushes](https://movies.allwomenstalk.com/celebrity-girl-crushes-on-tv/)
-- [hot irish actor](https://celebs.allwomenstalk.com/most-talented-irish-actors/)
-- [teen role model](https://celebs.allwomenstalk.com/good-celebrity-teen-role-models/)
+- [worst relationship advice](https://celebs.allwomenstalk.com/celebrities-whod-give-you-the-worst-relationship-advice-ever/)
+- [famous tv show families](https://movies.allwomenstalk.com/famous-tv-families/)
 - [who looks like cillian murphy](https://lifestyle.allwomenstalk.com/famous-introverts/)
 - [role models for teenagers](https://celebs.allwomenstalk.com/best-tv-teen-role-models/)
-- [worst relationship advice](https://celebs.allwomenstalk.com/celebrities-whod-give-you-the-worst-relationship-advice-ever/)
+- [hot irish actor](https://celebs.allwomenstalk.com/most-talented-irish-actors/)
+- [girl celeb crushes](https://movies.allwomenstalk.com/celebrity-girl-crushes-on-tv/)
+- [engaged celebrities](https://wedding.allwomenstalk.com/recently-engaged-celebrities/)
+- [famous couples in tv](https://movies.allwomenstalk.com/of-the-best-tv-couples/)
 - [celebrity overexposure](https://celebs.allwomenstalk.com/overexposed-celebrities-im-sick-of/)
-- [famous tv show families](https://movies.allwomenstalk.com/famous-tv-families/)
+- [teen role model](https://celebs.allwomenstalk.com/good-celebrity-teen-role-models/)
 - [8 Ways to Avoid Financial Scams and Fraud ...](https://money.allwomenstalk.com/ways-to-avoid-financial-scams-and-fraud/)
 - [8 Beginner Bloopers in Gardening ...](https://gardening.allwomenstalk.com/8-beginner-bloopers-in-gardening-2/)
 

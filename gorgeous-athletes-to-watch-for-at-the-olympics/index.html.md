@@ -68,16 +68,16 @@ We’re halfway through the Olympics by now, but that doesn’t mean that there�
 
 ## Related Posts
 
-- [celebrities downfall](https://celebs.allwomenstalk.com/things-we-can-learn-from-the-downfall-of-celebrities/)
-- [most famous redheads](https://celebs.allwomenstalk.com/famous-redheads-and-their-amazing-careers/)
-- [one tree hill kenzie dalton](https://movies.allwomenstalk.com/one-tree-hill-stars-and-where-they-are-now/)
+- [prom queen the homecoming](https://celebs.allwomenstalk.com/celebrities-who-were-homecoming-queens/)
 - [why did danny leave the mindy project](https://hair.allwomenstalk.com/celebrities-who-tried-a-pixie-cut/)
 - [people that look like disney characters](https://celebs.allwomenstalk.com/celebrities-who-look-like-disney-characters-from-animated-movies/)
-- [prom queen the homecoming](https://celebs.allwomenstalk.com/celebrities-who-were-homecoming-queens/)
-- [celebrities then and now how theyve changed](https://celebs.allwomenstalk.com/celebrities-who-changed-their-lives-drastically/)
+- [most famous redheads](https://celebs.allwomenstalk.com/famous-redheads-and-their-amazing-careers/)
+- [one tree hill kenzie dalton](https://movies.allwomenstalk.com/one-tree-hill-stars-and-where-they-are-now/)
+- [celebrities downfall](https://celebs.allwomenstalk.com/things-we-can-learn-from-the-downfall-of-celebrities/)
 - [j law face](https://celebs.allwomenstalk.com/j-law-moments-that-left-us-in-total-awe/)
 - [celebrities that own companies](https://celebs.allwomenstalk.com/celebrities-who-started-their-own-companies/)
 - [who is a triple threat](https://celebs.allwomenstalk.com/of-the-biggest-triple-threats-in-hollywood/)
+- [celebrities then and now how theyve changed](https://celebs.allwomenstalk.com/celebrities-who-changed-their-lives-drastically/)
 - [7 Sexiest Athletes of 2011 ...](https://celebs.allwomenstalk.com/sexiest-athletes-of/)
 - [8 Random Celeb News to Check out ...](https://allwomenstalk.com/8-random-celeb-news-to-check-out/)
 

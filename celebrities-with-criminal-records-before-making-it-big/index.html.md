@@ -56,16 +56,16 @@ Did you know that some of these stars had serious offenses? While some of their 
 
 ## Related Posts
 
-- [actresses of the silver screen](https://movies.allwomenstalk.com/totally-ace-actors-from-scandinavia/)
-- [does zac efron have a sister](https://celebs.allwomenstalk.com/celebrities-with-attractive-siblings/)
-- [images of celebrities](https://celebs.allwomenstalk.com/stunning-celebrity-black-white-photos/)
-- [instagram melinda shankar](https://celebs.allwomenstalk.com/degrassi-celebrities-to-follow-on-instagram/)
-- [julia roberts jon bon jovi](https://celebs.allwomenstalk.com/celebrities-who-are-terrible-to-work-with/)
 - [mickey mouse club mouseketeers list](https://celebs.allwomenstalk.com/former-disney-mouseketeers-who-now-made-names-for-themselves/)
-- [celebs board](https://celebs.allwomenstalk.com/celebrity-pinterest-boards-youll-want-to-follow/)
 - [famous actress in bikini](https://celebs.allwomenstalk.com/celebrities-bikini-ready-bodies/)
-- [90s celebrities](https://celebs.allwomenstalk.com/celebrities-who-were-in-90s-commercials/)
+- [actresses of the silver screen](https://movies.allwomenstalk.com/totally-ace-actors-from-scandinavia/)
+- [images of celebrities](https://celebs.allwomenstalk.com/stunning-celebrity-black-white-photos/)
+- [celebs board](https://celebs.allwomenstalk.com/celebrity-pinterest-boards-youll-want-to-follow/)
 - [surprising celebrity couples](https://celebs.allwomenstalk.com/celebrity-couples-that-you-never-knew-about/)
+- [90s celebrities](https://celebs.allwomenstalk.com/celebrities-who-were-in-90s-commercials/)
+- [does zac efron have a sister](https://celebs.allwomenstalk.com/celebrities-with-attractive-siblings/)
+- [julia roberts jon bon jovi](https://celebs.allwomenstalk.com/celebrities-who-are-terrible-to-work-with/)
+- [instagram melinda shankar](https://celebs.allwomenstalk.com/degrassi-celebrities-to-follow-on-instagram/)
 - [7 Celebrities with Addictions ...](https://celebs.allwomenstalk.com/celebrities-with-addictions/)
 - [7 Greatly Astonishing Celebrity Scandals ...](https://celebs.allwomenstalk.com/greatly-astonishing-celebrity-scandals/)
 

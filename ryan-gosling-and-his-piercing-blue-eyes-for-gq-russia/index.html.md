@@ -30,14 +30,14 @@ Sigh. This entire photoshoot seems to be one of those where a brilliant idea wit
 
 ## Related Posts
 
-- [Mariahs Just Not There Yet](https://celebs.allwomenstalk.com/mariahs-just-not-there-yet/)
+- [Lady Gaga Goes Country](https://celebs.allwomenstalk.com/lady-gaga-goes-country/)
+- [Racy Snaps Were Meant for Christinas Stylist ...](https://celebs.allwomenstalk.com/racy-snaps-were-meant-for-christinas-stylist/)
 - [taylor lautner jawline](https://celebs.allwomenstalk.com/taylor-lautner-looks-refined-for-gq-australia/)
 - [bess bistro austin](https://celebs.allwomenstalk.com/could-ryan-and-sandra-be-the-flavor-of/)
-- [Rihanna Wants You to See Everything...](https://celebs.allwomenstalk.com/rihanna-wants-you-to-see-everything/)
-- [Racy Snaps Were Meant for Christinas Stylist ...](https://celebs.allwomenstalk.com/racy-snaps-were-meant-for-christinas-stylist/)
-- [And Just like That Im 19 Entertainments Bitch a...](https://allwomenstalk.com/and-just-like-that-im-19-entertainments-bitch-a/)
 - [Another Photo Shoot in NY ...](https://allwomenstalk.com/another-photo-shoot-in-ny/)
-- [Lady Gaga Goes Country](https://celebs.allwomenstalk.com/lady-gaga-goes-country/)
+- [Rihanna Wants You to See Everything...](https://celebs.allwomenstalk.com/rihanna-wants-you-to-see-everything/)
+- [Mariahs Just Not There Yet](https://celebs.allwomenstalk.com/mariahs-just-not-there-yet/)
+- [And Just like That Im 19 Entertainments Bitch a...](https://allwomenstalk.com/and-just-like-that-im-19-entertainments-bitch-a/)
 - [The Fabulous Fanning Sisters for W Magazine ...](https://celebs.allwomenstalk.com/the-fabulous-fanning-sisters-for-w-magazine/)
 - [melissa mccarthy mother](https://lifestyle.allwomenstalk.com/moms-are-talking-with-melissa-mccarthy-over-at-ivorys-the-soap-dish/)
 - [Kate Winslet for Harpers Bazaar UK ...](https://celebs.allwomenstalk.com/kate-winslet-for-harpers-bazaar-uk/)

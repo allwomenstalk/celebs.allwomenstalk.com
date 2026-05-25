@@ -68,16 +68,16 @@ I hope you enjoy checking out the Tumblrs of celebrities on this list! Blogs are
 
 ## Related Posts
 
+- [tumblrs to follow](https://funny.allwomenstalk.com/entertaining-tumblr-blogs-to-follow-for-a-laugh/)
+- [acne blogs](https://skincare.allwomenstalk.com/blogs-for-people-who-suffer-from-acne/)
+- [blogs about healthy eating](https://food.allwomenstalk.com/inspiring-whole-foods-blogs-to-follow/)
+- [blake lively blog](https://celebs.allwomenstalk.com/reasons-to-read-blake-livelys-lifestyle-blog/)
 - [best vloggers in the world](https://lifestyle.allwomenstalk.com/amazing-daily-vloggers-to-check-out/)
 - [blog about parenting](https://parenting.allwomenstalk.com/top-parenting-blogs/)
-- [acne blogs](https://skincare.allwomenstalk.com/blogs-for-people-who-suffer-from-acne/)
-- [plus size influencer](https://fashion.allwomenstalk.com/fabulous-plus-size-fashion-bloggers-to-follow-on-instagram/)
 - [inspirational website](https://inspiration.allwomenstalk.com/inspiring-websites-to-check-out/)
+- [plus size influencer](https://fashion.allwomenstalk.com/fabulous-plus-size-fashion-bloggers-to-follow-on-instagram/)
 - [leandra medine weight](https://fashion.allwomenstalk.com/fashion-bloggers-who-will-change-the-game-this-year/)
 - [celebrities with lifestyle blogs](https://celebs.allwomenstalk.com/awesome-blogs-run-by-celebrities/)
-- [blake lively blog](https://celebs.allwomenstalk.com/reasons-to-read-blake-livelys-lifestyle-blog/)
-- [blogs about healthy eating](https://food.allwomenstalk.com/inspiring-whole-foods-blogs-to-follow/)
-- [tumblrs to follow](https://funny.allwomenstalk.com/entertaining-tumblr-blogs-to-follow-for-a-laugh/)
 - [7 Best Celebrity Gossip Websites ...](https://celebs.allwomenstalk.com/best-celebrity-gossip-websites/)
 - [9 Celebs to Follow on Twitter ...](https://celebs.allwomenstalk.com/celebs-to-follow-on-twitter/)
 

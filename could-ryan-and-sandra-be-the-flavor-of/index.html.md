@@ -26,16 +26,16 @@ Personally, I think Scarlett suited Ryan better, but then again the chemistry th
 
 ## Related Posts
 
-- [And Just like That Im 19 Entertainments Bitch a...](https://allwomenstalk.com/and-just-like-that-im-19-entertainments-bitch-a/)
-- [The Fabulous Fanning Sisters for W Magazine ...](https://celebs.allwomenstalk.com/the-fabulous-fanning-sisters-for-w-magazine/)
-- [Somebodys Hot Friend 2](https://allwomenstalk.com/somebodys-hot-friend-2/)
-- [Rihanna Wants You to See Everything...](https://celebs.allwomenstalk.com/rihanna-wants-you-to-see-everything/)
-- [Lady Gaga Goes Country](https://celebs.allwomenstalk.com/lady-gaga-goes-country/)
-- [melissa mccarthy mother](https://lifestyle.allwomenstalk.com/moms-are-talking-with-melissa-mccarthy-over-at-ivorys-the-soap-dish/)
-- [An Elke in NY Update.](https://allwomenstalk.com/an-elke-in-ny-update/)
 - [PHOTO SHOOT: Hello Dollie ...](https://allwomenstalk.com/photo-shoot-hello-dollie/)
+- [melissa mccarthy mother](https://lifestyle.allwomenstalk.com/moms-are-talking-with-melissa-mccarthy-over-at-ivorys-the-soap-dish/)
+- [Lady Gaga Goes Country](https://celebs.allwomenstalk.com/lady-gaga-goes-country/)
+- [Rihanna Wants You to See Everything...](https://celebs.allwomenstalk.com/rihanna-wants-you-to-see-everything/)
 - [Another Photo Shoot in NY ...](https://allwomenstalk.com/another-photo-shoot-in-ny/)
+- [Somebodys Hot Friend 2](https://allwomenstalk.com/somebodys-hot-friend-2/)
 - [Brit Scientist -- round 2 Date 4 ...](https://allwomenstalk.com/brit-scientist-round-2-date-4/)
+- [The Fabulous Fanning Sisters for W Magazine ...](https://celebs.allwomenstalk.com/the-fabulous-fanning-sisters-for-w-magazine/)
+- [And Just like That Im 19 Entertainments Bitch a...](https://allwomenstalk.com/and-just-like-that-im-19-entertainments-bitch-a/)
+- [An Elke in NY Update.](https://allwomenstalk.com/an-elke-in-ny-update/)
 - [If I Could Pick the Cast for the Twilight Movie  T...](https://twilight.allwomenstalk.com/if-i-could-pick-the-cast-for-the-twilight-movie-this-is-who-i-would-pick/)
 - [Mel Rose and Jeremy Piven Are a New Item](https://allwomenstalk.com/mel-rose-and-jeremy-piven-are-a-new-item/)
 

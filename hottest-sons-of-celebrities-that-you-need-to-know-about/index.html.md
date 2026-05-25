@@ -56,16 +56,16 @@ While these celebrity sons aren't quite as successful as their parents, they are
 
 ## Related Posts
 
-- [most successful child actor](https://celebs.allwomenstalk.com/most-successful-child-stars-that-we-cant-get-enough-of/)
 - [2014 rock and roll hall of fame](https://music.allwomenstalk.com/new-members-of-the-rock-and-roll-hall-of-fame-for/)
-- [disney stars grown up](https://celebs.allwomenstalk.com/child-celebs-who-grew-up-to-be-great-role-models/)
-- [celebrities with binge eating](https://celebs.allwomenstalk.com/celebrities-who-have-battled-eating-disorders/)
-- [people who died too soon](https://celebs.allwomenstalk.com/talented-people-who-died-too-soon-in-the-last-decade/)
 - [beyonce reaction](https://celebs.allwomenstalk.com/celeb-reactions-to-beyonces-new-album/)
-- [environmentally friendly celebrities](https://celebs.allwomenstalk.com/celebrities-and-the-environmental-causes-they-support/)
-- [lara spencer beach](https://celebs.allwomenstalk.com/celebs-who-have-dressed-up-as-miley-cyrus/)
+- [people who died too soon](https://celebs.allwomenstalk.com/talented-people-who-died-too-soon-in-the-last-decade/)
+- [celebrities with binge eating](https://celebs.allwomenstalk.com/celebrities-who-have-battled-eating-disorders/)
+- [disney stars grown up](https://celebs.allwomenstalk.com/child-celebs-who-grew-up-to-be-great-role-models/)
 - [always trending](https://celebs.allwomenstalk.com/popular-celebrities-who-are-always-trending/)
+- [environmentally friendly celebrities](https://celebs.allwomenstalk.com/celebrities-and-the-environmental-causes-they-support/)
+- [most successful child actor](https://celebs.allwomenstalk.com/most-successful-child-stars-that-we-cant-get-enough-of/)
 - [celebrities who currently live in kentucky](https://celebs.allwomenstalk.com/celebrities-who-are-originally-from-kentucky/)
+- [lara spencer beach](https://celebs.allwomenstalk.com/celebs-who-have-dressed-up-as-miley-cyrus/)
 - [10 Hottest Men in Hollywood ...](https://celebs.allwomenstalk.com/hottest-men-in-hollywood/)
 - [6 Hottest Celebrity Buzz ...](https://allwomenstalk.com/6-hottest-celebrity-buzz/)
 

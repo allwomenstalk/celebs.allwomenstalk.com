@@ -42,16 +42,16 @@ Well, there you have it! These are just seven out of many reasons to love Amanda
 
 ## Related Posts
 
-- [bastille itunes](https://music.allwomenstalk.com/amazing-reasons-to-love-bastille/)
-- [orange is the new black season 1 cast](https://movies.allwomenstalk.com/reasons-to-watch-orange-is-the-new-black/)
-- [opening act fall out boy](https://music.allwomenstalk.com/reasons-to-be-excited-for-fall-out-boys-upcoming-tour/)
-- [awkward. show](https://movies.allwomenstalk.com/reasons-to-love-awkward-and-add-it-to-your-favorites/)
-- [watcharrow](https://movies.allwomenstalk.com/reasons-to-watch-arrow-and-love-it/)
-- [lucy hale with glasses](https://celebs.allwomenstalk.com/reasons-why-lucy-hale-is-bff-material/)
-- [teen wolf love](https://movies.allwomenstalk.com/reasons-why-you-should-give-teen-wolf-a-chance/)
 - [long distance friendships](https://lifestyle.allwomenstalk.com/awesome-reasons-long-distance-friendships-rock/)
 - [guilt free tv](https://movies.allwomenstalk.com/reasons-to-watch-reality-tv-without-feeling-guilty/)
+- [watcharrow](https://movies.allwomenstalk.com/reasons-to-watch-arrow-and-love-it/)
+- [orange is the new black season 1 cast](https://movies.allwomenstalk.com/reasons-to-watch-orange-is-the-new-black/)
 - [mindy rock of love](https://celebs.allwomenstalk.com/awesome-reasons-to-love-mindy-kaling/)
+- [bastille itunes](https://music.allwomenstalk.com/amazing-reasons-to-love-bastille/)
+- [opening act fall out boy](https://music.allwomenstalk.com/reasons-to-be-excited-for-fall-out-boys-upcoming-tour/)
+- [awkward. show](https://movies.allwomenstalk.com/reasons-to-love-awkward-and-add-it-to-your-favorites/)
+- [lucy hale with glasses](https://celebs.allwomenstalk.com/reasons-why-lucy-hale-is-bff-material/)
+- [teen wolf love](https://movies.allwomenstalk.com/reasons-why-you-should-give-teen-wolf-a-chance/)
 - [10 Reasons to Love Jennifer Aniston ...](https://allwomenstalk.com/10-reasons-to-love-jennifer-aniston/)
 - [10 Reasons to Love Kate Winslet ...](https://allwomenstalk.com/10-reasons-to-love-kate-winslet/)
 

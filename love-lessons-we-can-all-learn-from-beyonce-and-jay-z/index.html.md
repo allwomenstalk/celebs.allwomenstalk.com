@@ -44,16 +44,16 @@ Beyonce and Jay Z are the modern day version of a King and Queen. The pair has t
 
 ## Related Posts
 
-- [up friends](https://love.allwomenstalk.com/ways-to-set-up-your-friends/)
-- [learn to love yourself before you love others](https://love.allwomenstalk.com/ways-to-love-yourself-before-you-can-love-someone-else/)
-- [long distance feeling disconnected](https://love.allwomenstalk.com/ways-to-keep-your-long-distance-relationship-strong/)
 - [myths of marriage](https://wedding.allwomenstalk.com/popular-myths-about-marriage-that-arent-true/)
-- [serious things to talk about](https://love.allwomenstalk.com/things-to-talk-about-in-a-serious-relationship/)
-- [a new relationship](https://love.allwomenstalk.com/best-things-about-a-new-relationship-that-we-adore/)
 - [cutest tv couples](https://celebs.allwomenstalk.com/best-tv-couples-to-model-your-relationships-after/)
-- [best ways to connect with your partner](https://travel.allwomenstalk.com/ways-to-connect-with-your-partner-on-family-vacations/)
-- [how to become a better listener in a relationship](https://inspiration.allwomenstalk.com/effective-ways-to-become-a-better-listener-and-enhance-your-relationships/)
+- [learn to love yourself before you love others](https://love.allwomenstalk.com/ways-to-love-yourself-before-you-can-love-someone-else/)
 - [a friend for lifetime](https://lifestyle.allwomenstalk.com/ways-to-improve-your-friendships-so-that-they-last-a-lifetime/)
+- [serious things to talk about](https://love.allwomenstalk.com/things-to-talk-about-in-a-serious-relationship/)
+- [long distance feeling disconnected](https://love.allwomenstalk.com/ways-to-keep-your-long-distance-relationship-strong/)
+- [a new relationship](https://love.allwomenstalk.com/best-things-about-a-new-relationship-that-we-adore/)
+- [up friends](https://love.allwomenstalk.com/ways-to-set-up-your-friends/)
+- [how to become a better listener in a relationship](https://inspiration.allwomenstalk.com/effective-ways-to-become-a-better-listener-and-enhance-your-relationships/)
+- [best ways to connect with your partner](https://travel.allwomenstalk.com/ways-to-connect-with-your-partner-on-family-vacations/)
 - [8 Things Celebs Can Teach You about Dating ...](https://celebs.allwomenstalk.com/things-celebs-can-teach-you-about-dating/)
 - [7 Love Lessons Ive Learned from ABCs the Bachelore...](https://allwomenstalk.com/love-lessons-ive-learned-from-abcs-the-bachelorette/)
 

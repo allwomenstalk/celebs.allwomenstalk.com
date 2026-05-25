@@ -21,15 +21,15 @@ What do you think?
 ## Related Posts
 
 - [3 Photos of Ripa Works out ...](https://celebs.allwomenstalk.com/ripa-works-out/)
-- [rebecca gayheart](https://celebs.allwomenstalk.com/dane-and-gayheart-pass-through-paris/)
-- [fox upfronts](https://celebs.allwomenstalk.com/fox-upfronts-in-central-park/)
-- [Does Sofia Vergara Look Pretty in Blue](https://celebs.allwomenstalk.com/vergaras-lunch-date/)
-- [liv tyler tights](https://celebs.allwomenstalk.com/liv-hails-and-waits/)
 - [in my sleep 2010](https://celebs.allwomenstalk.com/in-my-sleep-premiere/)
-- [antonio banderas photoshoot](https://celebs.allwomenstalk.com/antonios-motorbike-team/)
+- [liv tyler tights](https://celebs.allwomenstalk.com/liv-hails-and-waits/)
+- [Does Sofia Vergara Look Pretty in Blue](https://celebs.allwomenstalk.com/vergaras-lunch-date/)
+- [fox upfronts](https://celebs.allwomenstalk.com/fox-upfronts-in-central-park/)
 - [brooklyn decker just go with it bikini](https://celebs.allwomenstalk.com/brooklyns-bikini-bod/)
-- [kylie minogue airport](https://celebs.allwomenstalk.com/kylie-lands-in-nice/)
+- [rebecca gayheart](https://celebs.allwomenstalk.com/dane-and-gayheart-pass-through-paris/)
 - [kate bosworth skinny](https://celebs.allwomenstalk.com/kates-skinny-cargo-pants/)
+- [antonio banderas photoshoot](https://celebs.allwomenstalk.com/antonios-motorbike-team/)
+- [kylie minogue airport](https://celebs.allwomenstalk.com/kylie-lands-in-nice/)
 - [Does Serena Williams Have a Hot Body](https://celebs.allwomenstalk.com/serenas-day-at-the-beach/)
 - [Is Trinny Woodall Hot in Blue](https://celebs.allwomenstalk.com/trinny-in-blue/)
 

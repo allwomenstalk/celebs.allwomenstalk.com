@@ -68,16 +68,16 @@ These are just some celebs that we’ve spotted rocking the patent skirt. Fitted
 
 ## Related Posts
 
-- [singers wearing red](https://makeup.allwomenstalk.com/celebrities-wearing-a-red-lip-who-wore-it-best/)
-- [celebrities who show too much skin](https://celebs.allwomenstalk.com/worst-dressed-celebrities-who-need-a-fashion-makeover/)
-- [female celebrities in jeans](https://celebs.allwomenstalk.com/celebrities-wearing-ripped-jeans-who-wore-it-best/)
-- [dave skylark nicki minaj](https://celebs.allwomenstalk.com/james-franco-interviews-stars-for-the-vmas/)
-- [male celebrities with braids](https://hair.allwomenstalk.com/celebrities-wearing-braids-who-wore-it-best/)
-- [blake lively stunning](https://fashion.allwomenstalk.com/of-blake-livelys-red-carpet-looks-that-were-incredibly-swoon-worthy/)
 - [monique lhuillier famous works](https://fashion.allwomenstalk.com/celebrities-in-monique-lhuillier-who-wore-it-best/)
+- [celebrities who show too much skin](https://celebs.allwomenstalk.com/worst-dressed-celebrities-who-need-a-fashion-makeover/)
 - [what to wear with a bomber jacket female](https://celebs.allwomenstalk.com/celebrities-wearing-bomber-jackets-who-wore-it-best/)
-- [met gala 2014](https://fashion.allwomenstalk.com/red-carpet-fashions-at-the-met-gala/)
+- [female celebrities in jeans](https://celebs.allwomenstalk.com/celebrities-wearing-ripped-jeans-who-wore-it-best/)
 - [mindy project season 7](https://celebs.allwomenstalk.com/of-mindys-best-outfits-from-the-mindy-project-finale/)
+- [singers wearing red](https://makeup.allwomenstalk.com/celebrities-wearing-a-red-lip-who-wore-it-best/)
+- [dave skylark nicki minaj](https://celebs.allwomenstalk.com/james-franco-interviews-stars-for-the-vmas/)
+- [blake lively stunning](https://fashion.allwomenstalk.com/of-blake-livelys-red-carpet-looks-that-were-incredibly-swoon-worthy/)
+- [male celebrities with braids](https://hair.allwomenstalk.com/celebrities-wearing-braids-who-wore-it-best/)
+- [met gala 2014](https://fashion.allwomenstalk.com/red-carpet-fashions-at-the-met-gala/)
 - [7 Celebrities in Pencil Skirts  Who Wore It Best](https://celebs.allwomenstalk.com/celebrities-in-pencil-skirts-who-wore-it-best/)
 - [10 Celebrities Wearing Leather Pants  Who Wore It ...](https://celebs.allwomenstalk.com/celebrities-wearing-leather-pants-who-wore-it-best/)
 

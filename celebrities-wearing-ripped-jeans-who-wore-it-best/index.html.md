@@ -80,16 +80,16 @@ They all look effortlessly chic in their ripped jeans, but which of these celebs
 
 ## Related Posts
 
-- [oprah met gala](https://fashion.allwomenstalk.com/a-look-at-oscar-de-la-rentas-most-iconic-red-carpet-gowns/)
 - [celebrities who show too much skin](https://celebs.allwomenstalk.com/worst-dressed-celebrities-who-need-a-fashion-makeover/)
-- [beyonce with a ponytail](https://hair.allwomenstalk.com/celebrities-wearing-ponytails-who-wore-it-best/)
-- [america singer red dress](https://fashion.allwomenstalk.com/who-had-the-best-red-carpet-fashion-at-the-american-music-awards/)
-- [famous people nide](https://celebs.allwomenstalk.com/epic-naked-celeb-photos-whos-the-fairest-of-them-all/)
-- [dave skylark nicki minaj](https://celebs.allwomenstalk.com/james-franco-interviews-stars-for-the-vmas/)
 - [monique lhuillier famous works](https://fashion.allwomenstalk.com/celebrities-in-monique-lhuillier-who-wore-it-best/)
-- [redheads in emerald green](https://hair.allwomenstalk.com/celebrities-with-red-hair-who-wore-it-best/)
+- [america singer red dress](https://fashion.allwomenstalk.com/who-had-the-best-red-carpet-fashion-at-the-american-music-awards/)
 - [met gala 2014](https://fashion.allwomenstalk.com/red-carpet-fashions-at-the-met-gala/)
+- [dave skylark nicki minaj](https://celebs.allwomenstalk.com/james-franco-interviews-stars-for-the-vmas/)
+- [redheads in emerald green](https://hair.allwomenstalk.com/celebrities-with-red-hair-who-wore-it-best/)
+- [oprah met gala](https://fashion.allwomenstalk.com/a-look-at-oscar-de-la-rentas-most-iconic-red-carpet-gowns/)
 - [alfonso ribeiro dwts winner](https://movies.allwomenstalk.com/dancing-with-the-stars-crowns-their-season-champs/)
+- [famous people nide](https://celebs.allwomenstalk.com/epic-naked-celeb-photos-whos-the-fairest-of-them-all/)
+- [beyonce with a ponytail](https://hair.allwomenstalk.com/celebrities-wearing-ponytails-who-wore-it-best/)
 - [10 Celebrities Wearing Dungarees  Who Wore It Best](https://celebs.allwomenstalk.com/celebrities-wearing-dungarees-who-wore-it-best/)
 - [10 Celebrities in Metallic Clothes  Who Wore It Be...](https://celebs.allwomenstalk.com/celebrities-in-metallic-clothes-who-wore-it-best/)
 

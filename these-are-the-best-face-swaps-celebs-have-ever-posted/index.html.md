@@ -56,16 +56,16 @@ Have you seen any other fun (or frightening) celeb face swaps? I need to know!
 
 ## Related Posts
 
-- [20 under 20](https://teen.allwomenstalk.com/most-influential-people-under-20/)
-- [harry potter cast oliver wood](https://celebs.allwomenstalk.com/where-the-supporting-harry-potter-cast-is-now/)
-- [was joan crawford beautiful](https://movies.allwomenstalk.com/classic-hollywood-stars/)
-- [halle berry sarah palin](https://celebs.allwomenstalk.com/did-you-know-these-celebs-were-beauty-queens-before-they-became-stars/)
 - [pictures of hollywood actors](https://movies.allwomenstalk.com/hottest-hollywood-actors-of-all-time/)
 - [celebrities](https://celebs.allwomenstalk.com/be-inspired-by-celebrities-who-have-branched-out-to-try-new-things/)
-- [social media food trends](https://food.allwomenstalk.com/foods-that-broke-the-internet-as-much-as-kim/)
-- [lyia liu](https://fitness.allwomenstalk.com/celebrities-who-wear-waist-trainers/)
-- [how to snap celebrities](https://celebs.allwomenstalk.com/the-hottest-celebs-to-follow-on-snapchat/)
 - [most awkward interviews](https://celebs.allwomenstalk.com/youll-cringe-at-these-unbelievably-awkward-celeb-interviews/)
+- [20 under 20](https://teen.allwomenstalk.com/most-influential-people-under-20/)
+- [was joan crawford beautiful](https://movies.allwomenstalk.com/classic-hollywood-stars/)
+- [lyia liu](https://fitness.allwomenstalk.com/celebrities-who-wear-waist-trainers/)
+- [halle berry sarah palin](https://celebs.allwomenstalk.com/did-you-know-these-celebs-were-beauty-queens-before-they-became-stars/)
+- [harry potter cast oliver wood](https://celebs.allwomenstalk.com/where-the-supporting-harry-potter-cast-is-now/)
+- [social media food trends](https://food.allwomenstalk.com/foods-that-broke-the-internet-as-much-as-kim/)
+- [how to snap celebrities](https://celebs.allwomenstalk.com/the-hottest-celebs-to-follow-on-snapchat/)
 - [7 Funkiest Celebrity Hairstyles ...](https://celebs.allwomenstalk.com/7-funkiest-celebrity-hairstyles/)
 - [7 of My Favorite Celebrities ...](https://celebs.allwomenstalk.com/7-of-my-favorite-celebrities/)
 

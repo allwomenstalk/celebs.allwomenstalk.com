@@ -42,16 +42,16 @@ Well, there you have it! These are just seven out of many awesome reasons you sh
 
 ## Related Posts
 
+- [emma watson scuba](https://celebs.allwomenstalk.com/reasons-why-emma-watson-is-awesome/)
+- [black butlet](https://movies.allwomenstalk.com/reasons-you-should-watch-black-butler/)
+- [tina fey height and weight](https://celebs.allwomenstalk.com/awesome-reasons-to-love-tina-fey/)
+- [tv shows like orphan black](https://movies.allwomenstalk.com/reasons-why-orphan-black-is-a-show-you-should-be-watching/)
+- [geeks are cool](https://lifestyle.allwomenstalk.com/reasons-why-its-awesome-to-be-a-geek/)
 - [wilfred watch](https://movies.allwomenstalk.com/reasons-to-watch-wilfred-if-you-dont-already/)
 - [josh widdicombe disabled](https://movies.allwomenstalk.com/reasons-to-watch-the-last-leg/)
-- [tv shows like orphan black](https://movies.allwomenstalk.com/reasons-why-orphan-black-is-a-show-you-should-be-watching/)
-- [is kerry washington in a sorority](https://celebs.allwomenstalk.com/reasons-to-be-totally-obsessed-with-kerry-washington/)
-- [tina fey height and weight](https://celebs.allwomenstalk.com/awesome-reasons-to-love-tina-fey/)
-- [demi lovato neon lights tour](https://music.allwomenstalk.com/reasons-i-loved-demis-neon-lights-tour/)
-- [geeks are cool](https://lifestyle.allwomenstalk.com/reasons-why-its-awesome-to-be-a-geek/)
-- [black butlet](https://movies.allwomenstalk.com/reasons-you-should-watch-black-butler/)
-- [emma watson scuba](https://celebs.allwomenstalk.com/reasons-why-emma-watson-is-awesome/)
 - [house of cards 7](https://movies.allwomenstalk.com/reasons-to-watch-house-of-cards/)
+- [is kerry washington in a sorority](https://celebs.allwomenstalk.com/reasons-to-be-totally-obsessed-with-kerry-washington/)
+- [demi lovato neon lights tour](https://music.allwomenstalk.com/reasons-i-loved-demis-neon-lights-tour/)
 - [7 Wonderful Reasons to Love Lauren Conrad ...](https://celebs.allwomenstalk.com/wonderful-reasons-to-love-lauren-conrad/)
 - [7 Reasons to Love Cara Delevingne ...](https://celebs.allwomenstalk.com/reasons-to-love-cara-delevingne/)
 

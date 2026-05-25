@@ -68,16 +68,16 @@ And that’s it – my list of celebs I think need to take a trip back to charm 
 
 ## Related Posts
 
-- [stylish celebrities](https://fashion.allwomenstalk.com/stylish-celebrities-under-20-who-have-style-beyond-their-years/)
-- [celebrity bffs](https://celebs.allwomenstalk.com/celebrity-bffs-who-are-the-real-deal/)
-- [weird looking actresses](https://celebs.allwomenstalk.com/adorkable-celebrities-you-cant-help-but-love/)
-- [role model celebrity](https://celebs.allwomenstalk.com/awesome-celebrity-moms-that-are-great-role-models/)
-- [ginger denial midnight](https://celebs.allwomenstalk.com/of-the-most-amazing-redhead-celebrities/)
-- [jamie lynn weight gain](https://celebs.allwomenstalk.com/dramatic-celebrity-weight-loss-stories/)
+- [celebrity stunt meaning](https://celebs.allwomenstalk.com/worst-celebrity-publicity-stunts-we-have-ever-seen/)
 - [florence welch haircut](https://hair.allwomenstalk.com/of-the-best-bangs-in-hollywood/)
 - [late bloomer celebrities](https://celebs.allwomenstalk.com/celebrities-who-found-success-later-in-life/)
-- [celebrity stunt meaning](https://celebs.allwomenstalk.com/worst-celebrity-publicity-stunts-we-have-ever-seen/)
+- [ginger denial midnight](https://celebs.allwomenstalk.com/of-the-most-amazing-redhead-celebrities/)
+- [jamie lynn weight gain](https://celebs.allwomenstalk.com/dramatic-celebrity-weight-loss-stories/)
+- [stylish celebrities](https://fashion.allwomenstalk.com/stylish-celebrities-under-20-who-have-style-beyond-their-years/)
+- [weird looking actresses](https://celebs.allwomenstalk.com/adorkable-celebrities-you-cant-help-but-love/)
+- [celebrity bffs](https://celebs.allwomenstalk.com/celebrity-bffs-who-are-the-real-deal/)
 - [black haired female actresses](https://celebs.allwomenstalk.com/funniest-female-actresses-in-hollywood/)
+- [role model celebrity](https://celebs.allwomenstalk.com/awesome-celebrity-moms-that-are-great-role-models/)
 - [7 Celebrities Who Dropped out of High School ...](https://allwomenstalk.com/8-celebrities-that-dropped-out-of-highschool/)
 - [7 Celebrities I Wish Would Just Go Away ...](https://allwomenstalk.com/7-celebrities-i-wish-would-just-go-away/)
 

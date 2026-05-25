@@ -42,16 +42,16 @@ Well, there you have it! These are just seven out of many awesome reasons to lov
 
 ## Related Posts
 
+- [how many pages are in the fault in our stars](https://books.allwomenstalk.com/reasons-to-read-the-fault-in-our-stars/)
+- [why are vampires popular](https://movies.allwomenstalk.com/reasons-why-we-love-vampires/)
 - [emmy rossum mean](https://celebs.allwomenstalk.com/awesome-reasons-to-love-emmy-rossum/)
 - [what can i watch degrassi on](https://teen.allwomenstalk.com/reasons-why-you-should-watch-degrassi/)
-- [the great summer tour meaning](https://music.allwomenstalk.com/reasons-to-get-excited-for-max-schneiders-summer-tour/)
-- [how many pages are in the fault in our stars](https://books.allwomenstalk.com/reasons-to-read-the-fault-in-our-stars/)
-- [is dolly parton a nice person](https://celebs.allwomenstalk.com/surprising-reasons-to-admire-dolly-parton/)
-- [listen to us the duo no matter where you are](https://music.allwomenstalk.com/fantastic-reasons-to-listen-to-us-the-duo/)
-- [jake johnson workout](https://celebs.allwomenstalk.com/awesome-reasons-to-love-jake-johnson/)
-- [why are vampires popular](https://movies.allwomenstalk.com/reasons-why-we-love-vampires/)
-- [i want to become a mermaid](https://funny.allwomenstalk.com/reasons-why-being-a-mermaid-would-be-awesome/)
 - [alexz](https://celebs.allwomenstalk.com/cool-reasons-to-love-alexz-johnson/)
+- [listen to us the duo no matter where you are](https://music.allwomenstalk.com/fantastic-reasons-to-listen-to-us-the-duo/)
+- [the great summer tour meaning](https://music.allwomenstalk.com/reasons-to-get-excited-for-max-schneiders-summer-tour/)
+- [is dolly parton a nice person](https://celebs.allwomenstalk.com/surprising-reasons-to-admire-dolly-parton/)
+- [i want to become a mermaid](https://funny.allwomenstalk.com/reasons-why-being-a-mermaid-would-be-awesome/)
+- [jake johnson workout](https://celebs.allwomenstalk.com/awesome-reasons-to-love-jake-johnson/)
 - [7 Reasons to Love Cara Delevingne ...](https://celebs.allwomenstalk.com/reasons-to-love-cara-delevingne/)
 - [7 Awesome Reasons to Love Zendaya ...](https://celebs.allwomenstalk.com/awesome-reasons-to-love-zendaya/)
 

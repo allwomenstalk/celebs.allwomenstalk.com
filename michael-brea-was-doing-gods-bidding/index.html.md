@@ -24,16 +24,16 @@ Brea is being held on charges of 2nd degree murder and criminal possession of a 
 
 ## Related Posts
 
-- [favorite vines](https://gardening.allwomenstalk.com/5-of-my-favorite-vines/)
-- [New Year Bash Wrap-up: Part 1 ...](https://celebs.allwomenstalk.com/new-year-bash-wrap-up-part-1/)
+- [mythbusters obama](https://celebs.allwomenstalk.com/obama-on-mythbusters/)
 - [dadt pink](https://celebs.allwomenstalk.com/stars-come-out-in-support-of-dadt-repeal/)
+- [daniello carting](https://celebs.allwomenstalk.com/ramsays-trash-talk/)
 - [The Hobbit Shooting in Jeopardy Once Again...](https://celebs.allwomenstalk.com/the-hobbit-shooting-in-jeopardy-once-again/)
 - [cool butterflies](https://gardening.allwomenstalk.com/5-cool-butterflies/)
-- [daniello carting](https://celebs.allwomenstalk.com/ramsays-trash-talk/)
-- [New Year Bash Wrap-up: Part 2 ...](https://celebs.allwomenstalk.com/new-year-bash-wrap-up-part-2/)
 - [best rags to riches stories](https://celebs.allwomenstalk.com/best-from-rags-to-riches-stories/)
+- [New Year Bash Wrap-up: Part 1 ...](https://celebs.allwomenstalk.com/new-year-bash-wrap-up-part-1/)
 - [Cooks Love for Mother Earth Revealed...](https://celebs.allwomenstalk.com/cooks-love-for-mother-earth-revealed/)
-- [mythbusters obama](https://celebs.allwomenstalk.com/obama-on-mythbusters/)
+- [favorite vines](https://gardening.allwomenstalk.com/5-of-my-favorite-vines/)
+- [New Year Bash Wrap-up: Part 2 ...](https://celebs.allwomenstalk.com/new-year-bash-wrap-up-part-2/)
 - [George Michael Ready to Start Again ...](https://celebs.allwomenstalk.com/george-michael-ready-to-start-again/)
 - [Michael Lohan Doesnt Mind Lindsay Movie...](https://celebs.allwomenstalk.com/michael-lohan-doesnt-mind-lindsay-movie/)
 

@@ -192,16 +192,16 @@ Portia always just knows how to complement Ellen's signature style of blazers an
 
 ## Related Posts
 
-- [pulitzer prize winners 2017](https://books.allwomenstalk.com/check-out-the-awesome-pulitzer-prize-winners-of/)
 - [worlds highest paid models](https://celebs.allwomenstalk.com/who-are-the-worlds-highest-paid-models-in/)
+- [pulitzer prize winners 2017](https://books.allwomenstalk.com/check-out-the-awesome-pulitzer-prize-winners-of/)
 - [Rumors about the MTV Movie Awards ...](https://allwomenstalk.com/rumors-about-the-mtv-movie-awards/)
-- [42nd Annual Juno Awards ...](https://allwomenstalk.com/42nd-annual-juno-awards/)
-- [Jeff Foxworthy Hosts Tonights CMT Awards ...](https://allwomenstalk.com/jeff-foxworthy-hosts-tonights-cmt-awards/)
-- [blair red dress paris](https://movies.allwomenstalk.com/the-screens-best-dressed-students/)
-- [pulitzer prize 2016](https://books.allwomenstalk.com/who-won-pulitzer-prizes-in/)
 - [year of the Dog - Hollywood Premiere](https://allwomenstalk.com/year-of-the-dog-hollywood-premiere/)
 - [Oscars - Jennifer and Leo](https://allwomenstalk.com/oscars-jennifer-and-leo/)
+- [42nd Annual Juno Awards ...](https://allwomenstalk.com/42nd-annual-juno-awards/)
+- [blair red dress paris](https://movies.allwomenstalk.com/the-screens-best-dressed-students/)
+- [pulitzer prize 2016](https://books.allwomenstalk.com/who-won-pulitzer-prizes-in/)
 - [Sasha Goes for Black Accessories  the Blog Awards](https://allwomenstalk.com/sasha-goes-for-black-accessories-the-blog-awards/)
+- [Jeff Foxworthy Hosts Tonights CMT Awards ...](https://allwomenstalk.com/jeff-foxworthy-hosts-tonights-cmt-awards/)
 - [5 Celebrity Couples Who Recently Said Yes](https://wedding.allwomenstalk.com/5-celebrity-couples-who-recently-said-yes/)
 - [Most Fashionable Celebrity Parents](https://allwomenstalk.com/most-fashionable-celebrity-parents/)
 

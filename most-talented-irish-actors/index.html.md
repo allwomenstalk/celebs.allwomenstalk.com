@@ -46,16 +46,16 @@ This collection of excellent Irish actors should show how much talent the Emeral
 
 ## Related Posts
 
-- [who looks like cillian murphy](https://lifestyle.allwomenstalk.com/famous-introverts/)
-- [taurus celebrities male rappers](https://movies.allwomenstalk.com/rappers-turned-actors/)
-- [teen role model](https://celebs.allwomenstalk.com/good-celebrity-teen-role-models/)
-- [celebrity overexposure](https://celebs.allwomenstalk.com/overexposed-celebrities-im-sick-of/)
-- [engaged celebrities](https://wedding.allwomenstalk.com/recently-engaged-celebrities/)
 - [famous tv show families](https://movies.allwomenstalk.com/famous-tv-families/)
-- [role models for teenagers](https://celebs.allwomenstalk.com/best-tv-teen-role-models/)
-- [worst relationship advice](https://celebs.allwomenstalk.com/celebrities-whod-give-you-the-worst-relationship-advice-ever/)
+- [teen role model](https://celebs.allwomenstalk.com/good-celebrity-teen-role-models/)
 - [when love crossed over](https://movies.allwomenstalk.com/movie-stars-that-crossed-over-to-tv/)
+- [role models for teenagers](https://celebs.allwomenstalk.com/best-tv-teen-role-models/)
+- [engaged celebrities](https://wedding.allwomenstalk.com/recently-engaged-celebrities/)
+- [who looks like cillian murphy](https://lifestyle.allwomenstalk.com/famous-introverts/)
+- [worst relationship advice](https://celebs.allwomenstalk.com/celebrities-whod-give-you-the-worst-relationship-advice-ever/)
 - [best celebrity marriages](https://celebs.allwomenstalk.com/long-lasting-celebrity-marriages/)
+- [taurus celebrities male rappers](https://movies.allwomenstalk.com/rappers-turned-actors/)
+- [celebrity overexposure](https://celebs.allwomenstalk.com/overexposed-celebrities-im-sick-of/)
 - [8 Enduring Celebrity Myths ...](https://celebs.allwomenstalk.com/enduring-celebrity-myths/)
 - [8 Most down to Earth Celebrities ...](https://celebs.allwomenstalk.com/most-down-to-earth-celebrities/)
 

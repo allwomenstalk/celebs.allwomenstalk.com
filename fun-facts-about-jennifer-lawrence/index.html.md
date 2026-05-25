@@ -62,16 +62,16 @@ We all love Jennifer Lawrence. She is the girl we can be best friends with. And 
 
 ## Related Posts
 
-- [7 Shocking Truths about the Media That Will Blow Y...](https://lifestyle.allwomenstalk.com/shocking-truths-about-the-media-that-will-blow-your-mind/)
-- [funny facts about money](https://money.allwomenstalk.com/fascinating-facts-from-the-history-of-money/)
 - [costco makeup](https://money.allwomenstalk.com/less-known-facts-about-costco-you-should-know-about/)
-- [why do giraffes sleep standing up](https://lifestyle.allwomenstalk.com/interesting-and-fun-facts-about-giraffes/)
+- [7 Shocking Truths about the Media That Will Blow Y...](https://lifestyle.allwomenstalk.com/shocking-truths-about-the-media-that-will-blow-your-mind/)
 - [new girl fun facts](https://celebs.allwomenstalk.com/fun-facts-about-zooey-deschanel-that-will-make-you-love-her-even-more/)
+- [portia de rossi loreal](https://celebs.allwomenstalk.com/fun-facts-about-portia-de-rossi/)
 - [interesting things about spiders](https://lifestyle.allwomenstalk.com/interesting-things-about-spiders-you-probably-dont-want-to-know/)
-- [misconceptions about history](https://lifestyle.allwomenstalk.com/mind-blowing-historical-misconceptions-you-should-be-clear-on/)
 - [paris le stylo eye sunshine](https://lifestyle.allwomenstalk.com/facts-about-the-sun-that-are-amazing-interesting/)
 - [does shailene woodley wear a wig in divergent](https://celebs.allwomenstalk.com/interesting-facts-about-shailene-woodley-youre-going-to-want-to-read/)
-- [portia de rossi loreal](https://celebs.allwomenstalk.com/fun-facts-about-portia-de-rossi/)
+- [misconceptions about history](https://lifestyle.allwomenstalk.com/mind-blowing-historical-misconceptions-you-should-be-clear-on/)
+- [why do giraffes sleep standing up](https://lifestyle.allwomenstalk.com/interesting-and-fun-facts-about-giraffes/)
+- [funny facts about money](https://money.allwomenstalk.com/fascinating-facts-from-the-history-of-money/)
 - [5 Facts on Robert Pattinson ...](https://twilight.allwomenstalk.com/5-facts-on-robert-pattinson/)
 - [9 Female Movie Superheroes ...](https://movies.allwomenstalk.com/female-movie-superheroes/)
 

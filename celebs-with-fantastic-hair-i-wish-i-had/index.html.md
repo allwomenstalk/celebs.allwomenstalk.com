@@ -128,15 +128,15 @@ So girlies, now that you know all of the celebs that I absolutely love, do you h
 
 ## Related Posts
 
-- [nicole richies biological parents](https://celebs.allwomenstalk.com/celebrities-who-were-adopted-that-you-probably-didnt-know-of/)
-- [laguna beach food](https://celebs.allwomenstalk.com/laguna-beach-celebrities-and-where-they-are-now/)
-- [celebrity stunt meaning](https://celebs.allwomenstalk.com/worst-celebrity-publicity-stunts-we-have-ever-seen/)
-- [9 Obnoxious Celebrities Who Really Need to Go Back...](https://celebs.allwomenstalk.com/obnoxious-celebrities-who-really-need-to-go-back-to-charm-school/)
 - [role model celebrity](https://celebs.allwomenstalk.com/awesome-celebrity-moms-that-are-great-role-models/)
+- [9 Obnoxious Celebrities Who Really Need to Go Back...](https://celebs.allwomenstalk.com/obnoxious-celebrities-who-really-need-to-go-back-to-charm-school/)
+- [celebrity stunt meaning](https://celebs.allwomenstalk.com/worst-celebrity-publicity-stunts-we-have-ever-seen/)
+- [laguna beach food](https://celebs.allwomenstalk.com/laguna-beach-celebrities-and-where-they-are-now/)
+- [stylish celebrities](https://fashion.allwomenstalk.com/stylish-celebrities-under-20-who-have-style-beyond-their-years/)
 - [ian somerhalder cheekbones](https://movies.allwomenstalk.com/of-the-hottest-men-on-tv-right-now/)
 - [weird looking actresses](https://celebs.allwomenstalk.com/adorkable-celebrities-you-cant-help-but-love/)
 - [florence welch haircut](https://hair.allwomenstalk.com/of-the-best-bangs-in-hollywood/)
-- [stylish celebrities](https://fashion.allwomenstalk.com/stylish-celebrities-under-20-who-have-style-beyond-their-years/)
+- [nicole richies biological parents](https://celebs.allwomenstalk.com/celebrities-who-were-adopted-that-you-probably-didnt-know-of/)
 - [ginger denial midnight](https://celebs.allwomenstalk.com/of-the-most-amazing-redhead-celebrities/)
 - [7 Funkiest Celebrity Hairstyles ...](https://celebs.allwomenstalk.com/7-funkiest-celebrity-hairstyles/)
 - [10 Hottest Celebrity Hairstyles ...](https://hair.allwomenstalk.com/hottest-celebrity-hairstyles/)

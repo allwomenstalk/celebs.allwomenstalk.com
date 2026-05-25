@@ -72,16 +72,16 @@ Are you following these celebs on Instagram?
 
 ## Related Posts
 
-- [10 Celebrity Posts You Mightve Missed This Weekend...](https://celebs.allwomenstalk.com/celebrity-posts-you-mightve-missed-this-weekend-9/)
-- [7 Biggest Style Stars of 2014 ...](https://fashion.allwomenstalk.com/biggest-style-stars-of/)
-- [7 Stars Who Have Completely Altered Their Style .....](https://fashion.allwomenstalk.com/stars-who-have-completely-altered-their-style/)
-- [10 Celebrity TBT Photos You May Have Missed This W...](https://celebs.allwomenstalk.com/celebrity-tbt-photos-you-may-have-missed-this-week-5/)
 - [10 Celebrity TBT Photos You May Have Missed This W...](https://celebs.allwomenstalk.com/celebrity-tbt-photos-you-may-have-missed-this-week-6/)
-- [7 Celebs Whod Be Fab BFFs ...](https://celebs.allwomenstalk.com/celebs-whod-be-fab-bffs/)
-- [Youtube Star Covers all I Want for Christmas in 20...](https://music.allwomenstalk.com/youtube-star-covers-all-i-want-for-christmas-in-different-celeb-voices/)
+- [10 Celebrity Posts You Mightve Missed This Weekend...](https://celebs.allwomenstalk.com/celebrity-posts-you-mightve-missed-this-weekend-9/)
+- [10 Celebrity Posts You Mightve Missed This Weekend...](https://celebs.allwomenstalk.com/celebrity-posts-you-mightve-missed-this-weekend-11/)
+- [7 Biggest Style Stars of 2014 ...](https://fashion.allwomenstalk.com/biggest-style-stars-of/)
 - [cavario h](https://celebs.allwomenstalk.com/celebrity-tbt-photos-you-may-have-missed-this-week-7/)
 - [10 Celebrity Posts You Mightve Missed This Weekend...](https://celebs.allwomenstalk.com/celebrity-posts-you-mightve-missed-this-weekend-10/)
-- [10 Celebrity Posts You Mightve Missed This Weekend...](https://celebs.allwomenstalk.com/celebrity-posts-you-mightve-missed-this-weekend-11/)
+- [Youtube Star Covers all I Want for Christmas in 20...](https://music.allwomenstalk.com/youtube-star-covers-all-i-want-for-christmas-in-different-celeb-voices/)
+- [10 Celebrity TBT Photos You May Have Missed This W...](https://celebs.allwomenstalk.com/celebrity-tbt-photos-you-may-have-missed-this-week-5/)
+- [7 Stars Who Have Completely Altered Their Style .....](https://fashion.allwomenstalk.com/stars-who-have-completely-altered-their-style/)
+- [7 Celebs Whod Be Fab BFFs ...](https://celebs.allwomenstalk.com/celebs-whod-be-fab-bffs/)
 - [10 Celebrity TBT Posts You Mightve Missed This Wee...](https://celebs.allwomenstalk.com/celebrity-tbt-posts-you-mightve-missed-this-week/)
 - [10 Celebrity Posts You Mightve Missed This Weekend...](https://celebs.allwomenstalk.com/celebrity-posts-you-mightve-missed-this-weekend/)
 

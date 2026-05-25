@@ -42,16 +42,16 @@ Well, there you have it. These are just seven out of many awesome reasons to lov
 
 ## Related Posts
 
-- [best ayn rand book](https://books.allwomenstalk.com/reasons-to-love-ayn-rand/)
-- [the boyfriend netflix](https://funny.allwomenstalk.com/why-netflix-is-even-better-than-a-boyfriend/)
-- [why are cupcakes so popular](https://food.allwomenstalk.com/reasons-we-love-cupcakes-so-much/)
-- [spirt animal quiz](https://celebs.allwomenstalk.com/reasons-why-anna-kendrick-is-everyones-spirit-animal/)
 - [beautiful biracial girls](https://inspiration.allwomenstalk.com/readerknows-this-is-why-its-beautiful-to-be-a-biracial-child/)
+- [spirt animal quiz](https://celebs.allwomenstalk.com/reasons-why-anna-kendrick-is-everyones-spirit-animal/)
+- [rosamund pike height and weight](https://movies.allwomenstalk.com/reasons-why-rosamund-pike-should-win-best-actress-oscar/)
 - [monica frizzy hair episode](https://movies.allwomenstalk.com/reasons-why-f-r-i-e-n-d-s-is-still-an-awesome-t-v-show/)
+- [why are cupcakes so popular](https://food.allwomenstalk.com/reasons-we-love-cupcakes-so-much/)
+- [the boyfriend netflix](https://funny.allwomenstalk.com/why-netflix-is-even-better-than-a-boyfriend/)
 - [minions parachute](https://movies.allwomenstalk.com/reasons-why-the-minions-are-better-than-the-penguins/)
+- [best ayn rand book](https://books.allwomenstalk.com/reasons-to-love-ayn-rand/)
 - [how long should you hug](https://love.allwomenstalk.com/why-a-hug-is-better-than-a-kiss/)
 - [why did we stop wearing capes](https://fashion.allwomenstalk.com/reasons-to-love-wearing-a-cape/)
-- [rosamund pike height and weight](https://movies.allwomenstalk.com/reasons-why-rosamund-pike-should-win-best-actress-oscar/)
 - [10 Reasons to Love Kate Winslet ...](https://allwomenstalk.com/10-reasons-to-love-kate-winslet/)
 - [7 Reasons to Love Taylor Swift ...](https://allwomenstalk.com/7-reasons-to-love-taylor-swift/)
 

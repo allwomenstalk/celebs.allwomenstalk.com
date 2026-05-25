@@ -44,16 +44,16 @@ Top Image Source: [weheartit.com](https://weheartit.com/entry/16659965)
 
 ## Related Posts
 
-- [female celebrity smokers uk](https://celebs.allwomenstalk.com/women-celebrities-who-smoke/)
+- [smoking cigarette quotes](https://celebs.allwomenstalk.com/celebrity-smoking-quotes/)
+- [7 Greatly Astonishing Celebrity Scandals ...](https://celebs.allwomenstalk.com/greatly-astonishing-celebrity-scandals/)
+- [celebrity wedding favors](https://celebs.allwomenstalk.com/celebrity-weddings-to-watch-for-in/)
+- [philantrophists](https://celebs.allwomenstalk.com/top-celebrity-philantrophists/)
 - [down to earth actresses](https://celebs.allwomenstalk.com/most-down-to-earth-celebrities/)
 - [model off duty look](https://celebs.allwomenstalk.com/celebrities-with-excellent-off-duty-style/)
-- [who are the nicest celebrity chefs](https://cooking.allwomenstalk.com/7-best-celebrity-chefs/)
-- [smoking cigarette quotes](https://celebs.allwomenstalk.com/celebrity-smoking-quotes/)
-- [celebrity wedding favors](https://celebs.allwomenstalk.com/celebrity-weddings-to-watch-for-in/)
 - [jenna fischer coconut water](https://celebs.allwomenstalk.com/most-recent-celebrity-moms/)
-- [philantrophists](https://celebs.allwomenstalk.com/top-celebrity-philantrophists/)
 - [soulmte](https://celebs.allwomenstalk.com/sexiest-athletes-of/)
-- [7 Greatly Astonishing Celebrity Scandals ...](https://celebs.allwomenstalk.com/greatly-astonishing-celebrity-scandals/)
+- [who are the nicest celebrity chefs](https://cooking.allwomenstalk.com/7-best-celebrity-chefs/)
+- [female celebrity smokers uk](https://celebs.allwomenstalk.com/women-celebrities-who-smoke/)
 - [7 of My Favorite Celebrities ...](https://celebs.allwomenstalk.com/7-of-my-favorite-celebrities/)
 - [9 Brilliant Female Entrepreneurs ...](https://lifestyle.allwomenstalk.com/brilliant-female-entrepreneurs/)
 

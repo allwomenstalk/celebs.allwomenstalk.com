@@ -19,16 +19,16 @@ City: [London](https://celebs.allwomenstalk.com/tag/london/)
 
 ## Related Posts
 
-- [selena gomez red lips](https://celebs.allwomenstalk.com/selenas-fashion-line/)
-- [kate bosworth skinny](https://celebs.allwomenstalk.com/kates-skinny-cargo-pants/)
-- [Does Sofia Vergara Look Pretty in Blue](https://celebs.allwomenstalk.com/vergaras-lunch-date/)
-- [amandah dominic](https://celebs.allwomenstalk.com/amanda-and-dominic-check-in/)
-- [emma thompson photos](https://celebs.allwomenstalk.com/5-photos-of-emma-in-london/)
-- [color le stylo emerald conquest](https://celebs.allwomenstalk.com/karas-poor-fit/)
-- [serena william hot](https://celebs.allwomenstalk.com/serenas-day-at-the-beach/)
 - [niecy nash photos](https://celebs.allwomenstalk.com/nash-wears-yellow-on-live/)
+- [amandah dominic](https://celebs.allwomenstalk.com/amanda-and-dominic-check-in/)
 - [3 Photos of Ripa Works out ...](https://celebs.allwomenstalk.com/ripa-works-out/)
+- [color le stylo emerald conquest](https://celebs.allwomenstalk.com/karas-poor-fit/)
+- [Does Sofia Vergara Look Pretty in Blue](https://celebs.allwomenstalk.com/vergaras-lunch-date/)
+- [selena gomez red lips](https://celebs.allwomenstalk.com/selenas-fashion-line/)
 - [kristen stewart in the runaways](https://celebs.allwomenstalk.com/9-photos-of-kristen-arrives/)
+- [kate bosworth skinny](https://celebs.allwomenstalk.com/kates-skinny-cargo-pants/)
+- [serena william hot](https://celebs.allwomenstalk.com/serenas-day-at-the-beach/)
+- [emma thompson photos](https://celebs.allwomenstalk.com/5-photos-of-emma-in-london/)
 - [5 Celebrity Weddings of Spring 2011 ...](https://wedding.allwomenstalk.com/celebrity-weddings-of-spring/)
 - [1 Photos of Renee Leaves ...](https://celebs.allwomenstalk.com/renee-leaves/)
 

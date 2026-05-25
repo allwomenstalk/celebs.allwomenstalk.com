@@ -42,15 +42,15 @@ Portia de Rossi is an incredibly beautiful and all-around talented individual. I
 
 ## Related Posts
 
-- [why do giraffes sleep standing up](https://lifestyle.allwomenstalk.com/interesting-and-fun-facts-about-giraffes/)
-- [funny facts about money](https://money.allwomenstalk.com/fascinating-facts-from-the-history-of-money/)
-- [gypsy lifestyle](https://lifestyle.allwomenstalk.com/gypsy-myths-lifestyles-understood/)
 - [where did wawa get its name from](https://lifestyle.allwomenstalk.com/fun-facts-about-wawa-that-may-be-new-to-you/)
-- [facts on caffeine](https://food.allwomenstalk.com/surprising-facts-about-caffeine/)
-- [misconceptions about history](https://lifestyle.allwomenstalk.com/mind-blowing-historical-misconceptions-you-should-be-clear-on/)
-- [does shailene woodley wear a wig in divergent](https://celebs.allwomenstalk.com/interesting-facts-about-shailene-woodley-youre-going-to-want-to-read/)
-- [paris le stylo smoky shadow timeless blue spark](https://inspiration.allwomenstalk.com/types-of-art-you-probably-dont-know/)
 - [paris le stylo eye sunshine](https://lifestyle.allwomenstalk.com/facts-about-the-sun-that-are-amazing-interesting/)
+- [funny facts about money](https://money.allwomenstalk.com/fascinating-facts-from-the-history-of-money/)
+- [why do giraffes sleep standing up](https://lifestyle.allwomenstalk.com/interesting-and-fun-facts-about-giraffes/)
+- [gypsy lifestyle](https://lifestyle.allwomenstalk.com/gypsy-myths-lifestyles-understood/)
+- [paris le stylo smoky shadow timeless blue spark](https://inspiration.allwomenstalk.com/types-of-art-you-probably-dont-know/)
+- [misconceptions about history](https://lifestyle.allwomenstalk.com/mind-blowing-historical-misconceptions-you-should-be-clear-on/)
+- [facts on caffeine](https://food.allwomenstalk.com/surprising-facts-about-caffeine/)
+- [does shailene woodley wear a wig in divergent](https://celebs.allwomenstalk.com/interesting-facts-about-shailene-woodley-youre-going-to-want-to-read/)
 - [masquerade outfits plus size](https://fashion.allwomenstalk.com/things-you-should-know-about-the-history-of-masquerade-masks/)
 - [7 Facts on Adrienne Frantz ...](https://celebs.allwomenstalk.com/7-facts-on-adrienne-frantz/)
 - [8 Notorious Women ...](https://celebs.allwomenstalk.com/8-notorious-women/)

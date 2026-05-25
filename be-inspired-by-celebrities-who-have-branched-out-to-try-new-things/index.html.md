@@ -69,15 +69,15 @@ Scarlet is commonly known as an actress, having appeared in movies such as 'The 
 ## Related Posts
 
 - [was joan crawford beautiful](https://movies.allwomenstalk.com/classic-hollywood-stars/)
-- [male us actors](https://movies.allwomenstalk.com/hottest-male-voice-actors/)
 - [jamie dornan modeling](https://celebs.allwomenstalk.com/little-known-facts-about-jamie-dornan/)
-- [most awkward interviews](https://celebs.allwomenstalk.com/youll-cringe-at-these-unbelievably-awkward-celeb-interviews/)
+- [most famous child actors](https://celebs.allwomenstalk.com/child-stars-who-changed-dramatically/)
+- [male us actors](https://movies.allwomenstalk.com/hottest-male-voice-actors/)
 - [hot dubai prince](https://love.allwomenstalk.com/hot-princes-who-are-still-eligible/)
+- [most awkward interviews](https://celebs.allwomenstalk.com/youll-cringe-at-these-unbelievably-awkward-celeb-interviews/)
+- [lyia liu](https://fitness.allwomenstalk.com/celebrities-who-wear-waist-trainers/)
 - [harry potter cast oliver wood](https://celebs.allwomenstalk.com/where-the-supporting-harry-potter-cast-is-now/)
 - [pictures of hollywood actors](https://movies.allwomenstalk.com/hottest-hollywood-actors-of-all-time/)
 - [20 under 20](https://teen.allwomenstalk.com/most-influential-people-under-20/)
-- [most famous child actors](https://celebs.allwomenstalk.com/child-stars-who-changed-dramatically/)
-- [lyia liu](https://fitness.allwomenstalk.com/celebrities-who-wear-waist-trainers/)
 - [Women Who Inspire ...](https://allwomenstalk.com/women-who-inspire/)
 - [8 Random Celeb News to Check out ...](https://allwomenstalk.com/8-random-celeb-news-to-check-out/)
 

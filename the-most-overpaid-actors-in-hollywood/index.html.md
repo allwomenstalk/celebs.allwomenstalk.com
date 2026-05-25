@@ -37,15 +37,15 @@ Here's the complete list of the 10 most overpaid actors:
 ## Related Posts
 
 - [hot supermodels](https://celebs.allwomenstalk.com/25-hottest-supermodels/)
-- [older actress blonde hair](https://celebs.allwomenstalk.com/25-hottest-blonde-celebrities/)
-- [bubbly personality celebrities](https://celebs.allwomenstalk.com/7-of-my-favorite-celebrities/)
 - [why are hollywood actors on strike](https://celebs.allwomenstalk.com/25-most-messed-up-celebrities/)
 - [fashionable celebrities](https://celebs.allwomenstalk.com/fashionable-celebrities-to-watch-in/)
-- [child stars who aged badly](https://celebs.allwomenstalk.com/celebrities-that-look-older-than-their-true-age/)
-- [adopted people](https://celebs.allwomenstalk.com/10-famous-people-who-were-adopted/)
+- [bubbly personality celebrities](https://celebs.allwomenstalk.com/7-of-my-favorite-celebrities/)
+- [older actress blonde hair](https://celebs.allwomenstalk.com/25-hottest-blonde-celebrities/)
+- [celebrities to follow on twitter](https://celebs.allwomenstalk.com/celebs-to-follow-on-twitter/)
 - [best looking moms](https://celebs.allwomenstalk.com/25-hottest-celebrity-moms/)
 - [7 Recent Celebrity Breakups ...](https://celebs.allwomenstalk.com/recent-celebrity-breakups/)
-- [celebrities to follow on twitter](https://celebs.allwomenstalk.com/celebs-to-follow-on-twitter/)
+- [adopted people](https://celebs.allwomenstalk.com/10-famous-people-who-were-adopted/)
+- [child stars who aged badly](https://celebs.allwomenstalk.com/celebrities-that-look-older-than-their-true-age/)
 - [Top 10 Sexy Women in Hollywood ...](https://movies.allwomenstalk.com/top-10-sexy-women-in-hollywood/)
 - [Top Celebrity Philantrophists ...](https://celebs.allwomenstalk.com/top-celebrity-philantrophists/)
 

@@ -171,16 +171,16 @@ So these were my 25 super messed up celebrities of all time!! Be it horrendous p
 
 ## Related Posts
 
-- [child stars who aged badly](https://celebs.allwomenstalk.com/celebrities-that-look-older-than-their-true-age/)
 - [7 Recent Celebrity Breakups ...](https://celebs.allwomenstalk.com/recent-celebrity-breakups/)
+- [child stars who aged badly](https://celebs.allwomenstalk.com/celebrities-that-look-older-than-their-true-age/)
+- [celebs who live in nyc](https://celebs.allwomenstalk.com/celebrities-who-live-in-nyc/)
 - [female celebrities with dimples](https://celebs.allwomenstalk.com/cool-celebrities-with-dimples/)
-- [fashionable celebrities](https://celebs.allwomenstalk.com/fashionable-celebrities-to-watch-in/)
+- [celebrities to follow on twitter](https://celebs.allwomenstalk.com/celebs-to-follow-on-twitter/)
 - [hot supermodels](https://celebs.allwomenstalk.com/25-hottest-supermodels/)
+- [bubbly personality celebrities](https://celebs.allwomenstalk.com/7-of-my-favorite-celebrities/)
+- [fashionable celebrities](https://celebs.allwomenstalk.com/fashionable-celebrities-to-watch-in/)
 - [older actress blonde hair](https://celebs.allwomenstalk.com/25-hottest-blonde-celebrities/)
 - [adopted people](https://celebs.allwomenstalk.com/10-famous-people-who-were-adopted/)
-- [bubbly personality celebrities](https://celebs.allwomenstalk.com/7-of-my-favorite-celebrities/)
-- [celebs who live in nyc](https://celebs.allwomenstalk.com/celebrities-who-live-in-nyc/)
-- [celebrities to follow on twitter](https://celebs.allwomenstalk.com/celebs-to-follow-on-twitter/)
 - [25 Hottest Celebrity Moms ...](https://celebs.allwomenstalk.com/25-hottest-celebrity-moms/)
 - [25 Smartest Celebrities ...](https://celebs.allwomenstalk.com/25-smartest-celebrities/)
 

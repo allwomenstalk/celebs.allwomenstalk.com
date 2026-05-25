@@ -114,15 +114,15 @@ Best known for Jack in "Titanic"
 
 ## Related Posts
 
-- [it was sexier in the nineties](https://celebs.allwomenstalk.com/90s-stars-who-are-even-sexier-today/)
-- [social media food trends](https://food.allwomenstalk.com/foods-that-broke-the-internet-as-much-as-kim/)
-- [morgana mcnelis jewelry](https://celebs.allwomenstalk.com/celebrities-wed-love-to-swap-boyfriends-with-for-a-day/)
-- [halle berry sarah palin](https://celebs.allwomenstalk.com/did-you-know-these-celebs-were-beauty-queens-before-they-became-stars/)
-- [celebrity face swap](https://celebs.allwomenstalk.com/these-are-the-best-face-swaps-celebs-have-ever-posted/)
 - [full frontal movie stars](https://celebs.allwomenstalk.com/hot-actors-whove-gone-full-frontal-on-screen/)
-- [ryan reynolds crush](https://funny.allwomenstalk.com/everyone-who-has-a-crush-on-ryan-reynolds-needs-to-see-these-tweets/)
+- [social media food trends](https://food.allwomenstalk.com/foods-that-broke-the-internet-as-much-as-kim/)
 - [best celebrity workouts](https://fitness.allwomenstalk.com/celeb-workouts-for-women-who-want-to-look-like-stars/)
 - [celebrities](https://celebs.allwomenstalk.com/be-inspired-by-celebrities-who-have-branched-out-to-try-new-things/)
+- [morgana mcnelis jewelry](https://celebs.allwomenstalk.com/celebrities-wed-love-to-swap-boyfriends-with-for-a-day/)
+- [halle berry sarah palin](https://celebs.allwomenstalk.com/did-you-know-these-celebs-were-beauty-queens-before-they-became-stars/)
+- [ryan reynolds crush](https://funny.allwomenstalk.com/everyone-who-has-a-crush-on-ryan-reynolds-needs-to-see-these-tweets/)
+- [it was sexier in the nineties](https://celebs.allwomenstalk.com/90s-stars-who-are-even-sexier-today/)
+- [celebrity face swap](https://celebs.allwomenstalk.com/these-are-the-best-face-swaps-celebs-have-ever-posted/)
 - [how to snap celebrities](https://celebs.allwomenstalk.com/the-hottest-celebs-to-follow-on-snapchat/)
 - [20 Cutest Celebrity Kids ...](https://allwomenstalk.com/20-cutest-celebrity-kids/)
 - [19 Skinniest Celebrities of Today ...](https://allwomenstalk.com/14-skinniest-celebrities-of-today/)

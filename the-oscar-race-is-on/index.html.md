@@ -119,16 +119,16 @@ And in case you are interested in the remaining categories of nominations, you c
 
 ## Related Posts
 
-- [gwen palthrow](https://allwomenstalk.com/hits-misses-at-the-golden-globes/)
+- [The Red Carpet or just Another Day on the Job.](https://allwomenstalk.com/the-red-carpet-or-just-another-day-on-the-job/)
+- [Gorgeous Makeup at the Emmys](https://allwomenstalk.com/gorgeous-makeup-at-the-emmys-2/)
+- [10 Golden Globes Looks for Less ...](https://celebs.allwomenstalk.com/golden-globes-looks-for-less/)
 - [2007 Golden Globes: Back to the Makeup Chair for Y...](https://allwomenstalk.com/golden-globes-back-to-the-makeup-chair-for-you/)
 - [So There I Was All Ready to Blog the Oscars to P.....](https://allwomenstalk.com/so-there-i-was-all-ready-to-blog-the-oscars-to-p/)
-- [The Red Carpet or just Another Day on the Job.](https://allwomenstalk.com/the-red-carpet-or-just-another-day-on-the-job/)
-- [Surprise Glam Holds Blog Awards](https://allwomenstalk.com/surprise-glam-holds-blog-awards/)
-- [B Glam Nominated for SIX Awards](https://allwomenstalk.com/b-glam-nominated-for-six-awards-bglam/)
-- [10 Golden Globes Looks for Less ...](https://celebs.allwomenstalk.com/golden-globes-looks-for-less/)
-- [Gorgeous Makeup at the Emmys](https://allwomenstalk.com/gorgeous-makeup-at-the-emmys-2/)
-- [vanity fair best dressed](https://celebs.allwomenstalk.com/people-who-made-it-on-vanity-fairs-best-dressed-list/)
 - [The Stars Dressed up or Got Dressing-downs](https://allwomenstalk.com/the-stars-dressed-up-or-got-dressing-downs/)
+- [gwen palthrow](https://allwomenstalk.com/hits-misses-at-the-golden-globes/)
+- [Surprise Glam Holds Blog Awards](https://allwomenstalk.com/surprise-glam-holds-blog-awards/)
+- [vanity fair best dressed](https://celebs.allwomenstalk.com/people-who-made-it-on-vanity-fairs-best-dressed-list/)
+- [B Glam Nominated for SIX Awards](https://allwomenstalk.com/b-glam-nominated-for-six-awards-bglam/)
 - [The Kings Speech Leads the SAG Nominations...](https://celebs.allwomenstalk.com/the-kings-speech-leads-the-sag-nominations/)
 - [The Hobbit Shooting in Jeopardy Once Again...](https://celebs.allwomenstalk.com/the-hobbit-shooting-in-jeopardy-once-again/)
 

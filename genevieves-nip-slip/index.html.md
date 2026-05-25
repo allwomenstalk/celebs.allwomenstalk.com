@@ -35,14 +35,14 @@ City: [New York](https://celebs.allwomenstalk.com/tag/new-york/)
 
 ## Related Posts
 
-- [kelly brook tight dress](https://celebs.allwomenstalk.com/kellys-tight-dress/)
 - [season 9 winner american idol](https://celebs.allwomenstalk.com/american-idol-finale-arrivals/)
-- [peyton list short hair](https://celebs.allwomenstalk.com/ginnifer-and-peyton-head-to-work/)
-- [paris hilton soles](https://celebs.allwomenstalk.com/paris-gets-a-lift/)
+- [kelly brook tight dress](https://celebs.allwomenstalk.com/kellys-tight-dress/)
 - [jonah hex makeup](https://celebs.allwomenstalk.com/premiere-of-jonah-hex/)
-- [gordon ramsay topless](https://celebs.allwomenstalk.com/ramsay-spots-a-nudist/)
 - [8 Photos of Miley Makes an Appearance ...](https://celebs.allwomenstalk.com/miley-makes-an-appearance/)
+- [gordon ramsay topless](https://celebs.allwomenstalk.com/ramsay-spots-a-nudist/)
+- [peyton list short hair](https://celebs.allwomenstalk.com/ginnifer-and-peyton-head-to-work/)
 - [kristen dunst](https://celebs.allwomenstalk.com/dunsts-bikini-body/)
+- [paris hilton soles](https://celebs.allwomenstalk.com/paris-gets-a-lift/)
 - [kimberly wyatt legs](https://celebs.allwomenstalk.com/wyatts-short-shorts/)
 - [amy poehler pregnant](https://celebs.allwomenstalk.com/pregnant-poehler-gets-groceries/)
 - [6 Photos of Niecy Nash Wears Yellow on Live ...](https://celebs.allwomenstalk.com/nash-wears-yellow-on-live/)

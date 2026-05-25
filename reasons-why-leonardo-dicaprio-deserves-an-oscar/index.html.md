@@ -42,16 +42,16 @@ There you have it! These are just seven out of many reasons why Leonardo DiCapri
 
 ## Related Posts
 
-- [guilt free tv](https://movies.allwomenstalk.com/reasons-to-watch-reality-tv-without-feeling-guilty/)
-- [neon hitch](https://music.allwomenstalk.com/awesome-reasons-to-love-neon-hitch/)
-- [orange is the new black season 1 cast](https://movies.allwomenstalk.com/reasons-to-watch-orange-is-the-new-black/)
-- [awkward. show](https://movies.allwomenstalk.com/reasons-to-love-awkward-and-add-it-to-your-favorites/)
-- [teen wolf love](https://movies.allwomenstalk.com/reasons-why-you-should-give-teen-wolf-a-chance/)
-- [bastille itunes](https://music.allwomenstalk.com/amazing-reasons-to-love-bastille/)
-- [books like divergent with romance](https://books.allwomenstalk.com/wonderful-reasons-to-read-divergent/)
-- [amanda seyfried](https://celebs.allwomenstalk.com/awesome-reasons-to-love-amanda-seyfried/)
 - [watcharrow](https://movies.allwomenstalk.com/reasons-to-watch-arrow-and-love-it/)
+- [teen wolf love](https://movies.allwomenstalk.com/reasons-why-you-should-give-teen-wolf-a-chance/)
 - [opening act fall out boy](https://music.allwomenstalk.com/reasons-to-be-excited-for-fall-out-boys-upcoming-tour/)
+- [awkward. show](https://movies.allwomenstalk.com/reasons-to-love-awkward-and-add-it-to-your-favorites/)
+- [guilt free tv](https://movies.allwomenstalk.com/reasons-to-watch-reality-tv-without-feeling-guilty/)
+- [amanda seyfried](https://celebs.allwomenstalk.com/awesome-reasons-to-love-amanda-seyfried/)
+- [books like divergent with romance](https://books.allwomenstalk.com/wonderful-reasons-to-read-divergent/)
+- [orange is the new black season 1 cast](https://movies.allwomenstalk.com/reasons-to-watch-orange-is-the-new-black/)
+- [bastille itunes](https://music.allwomenstalk.com/amazing-reasons-to-love-bastille/)
+- [neon hitch](https://music.allwomenstalk.com/awesome-reasons-to-love-neon-hitch/)
 - [5 Reasons the Book is Better than the Movie ...](https://twilight.allwomenstalk.com/5-reasons-the-book-is-better-than-the-movie/)
 - [5 Reasons Youll like the Twilight Movie ...](https://twilight.allwomenstalk.com/5-reasons-youll-like-the-twilight-movie/)
 

@@ -20,16 +20,16 @@ I don't know about the rest of you, but this is definitely something that I am m
 
 ## Related Posts
 
-- [The Hobbit Shooting in Jeopardy Once Again...](https://celebs.allwomenstalk.com/the-hobbit-shooting-in-jeopardy-once-again/)
-- [daniello carting](https://celebs.allwomenstalk.com/ramsays-trash-talk/)
-- [michael brea](https://celebs.allwomenstalk.com/michael-brea-was-doing-gods-bidding/)
-- [Leslie Nielsen Passes Away at 84 ...](https://celebs.allwomenstalk.com/leslie-nielsen-passes-away-at-84/)
 - [cool butterflies](https://gardening.allwomenstalk.com/5-cool-butterflies/)
-- [dadt pink](https://celebs.allwomenstalk.com/stars-come-out-in-support-of-dadt-repeal/)
+- [The Hobbit Shooting in Jeopardy Once Again...](https://celebs.allwomenstalk.com/the-hobbit-shooting-in-jeopardy-once-again/)
+- [Cooks Love for Mother Earth Revealed...](https://celebs.allwomenstalk.com/cooks-love-for-mother-earth-revealed/)
+- [Leslie Nielsen Passes Away at 84 ...](https://celebs.allwomenstalk.com/leslie-nielsen-passes-away-at-84/)
+- [michael brea](https://celebs.allwomenstalk.com/michael-brea-was-doing-gods-bidding/)
+- [New Year Bash Wrap-up: Part 2 ...](https://celebs.allwomenstalk.com/new-year-bash-wrap-up-part-2/)
+- [daniello carting](https://celebs.allwomenstalk.com/ramsays-trash-talk/)
 - [best rags to riches stories](https://celebs.allwomenstalk.com/best-from-rags-to-riches-stories/)
 - [favorite vines](https://gardening.allwomenstalk.com/5-of-my-favorite-vines/)
-- [New Year Bash Wrap-up: Part 2 ...](https://celebs.allwomenstalk.com/new-year-bash-wrap-up-part-2/)
-- [Cooks Love for Mother Earth Revealed...](https://celebs.allwomenstalk.com/cooks-love-for-mother-earth-revealed/)
+- [dadt pink](https://celebs.allwomenstalk.com/stars-come-out-in-support-of-dadt-repeal/)
 - [8 Mystical Places ...](https://travel.allwomenstalk.com/8-mystical-places/)
 - [8 Terrific Treks ...](https://travel.allwomenstalk.com/terrific-treks/)
 

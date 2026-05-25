@@ -43,15 +43,15 @@ These’re 7 interesting facts about Bethany Mota. What’re some of your favori
 ## Related Posts
 
 - [medieval hygiene facts](https://health.allwomenstalk.com/facts-about-hygiene-that-may-surprise-you/)
-- [interesting facts about the aurora borealis](https://travel.allwomenstalk.com/interesting-facts-about-the-northern-lights/)
+- [american horror story facts](https://movies.allwomenstalk.com/facts-about-american-horror-story-you-have-to-know/)
 - [pebble clouds](https://lifestyle.allwomenstalk.com/facts-about-cloud-formations-you-might-not-know-of/)
 - [christmas facts about reindeer](https://lifestyle.allwomenstalk.com/fascinating-facts-about-reindeer/)
+- [do any mythical creatures exist](https://lifestyle.allwomenstalk.com/mythical-creatures-that-actually-existed/)
 - [the grinch references](https://movies.allwomenstalk.com/funny-facts-about-the-grinch-that-stole-christmas/)
 - [polar bears information and facts](https://lifestyle.allwomenstalk.com/interesting-facts-about-polar-bears/)
-- [american horror story facts](https://movies.allwomenstalk.com/facts-about-american-horror-story-you-have-to-know/)
-- [pyramids closer to dinosaurs](https://lifestyle.allwomenstalk.com/puzzling-facts-about-time/)
-- [do any mythical creatures exist](https://lifestyle.allwomenstalk.com/mythical-creatures-that-actually-existed/)
 - [why are spider webs a popular christmas decoration...](https://lifestyle.allwomenstalk.com/interesting-facts-about-christmas-that-you-didnt-know/)
+- [pyramids closer to dinosaurs](https://lifestyle.allwomenstalk.com/puzzling-facts-about-time/)
+- [interesting facts about the aurora borealis](https://travel.allwomenstalk.com/interesting-facts-about-the-northern-lights/)
 - [5 Facts on Bella Swan ...](https://twilight.allwomenstalk.com/5-facts-on-bella-swan/)
 - [5 Facts on Robert Pattinson ...](https://twilight.allwomenstalk.com/5-facts-on-robert-pattinson/)
 

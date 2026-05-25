@@ -56,16 +56,16 @@ Well, there you have it! Surprisingly, there are SO many celebrities with famous
 
 ## Related Posts
 
-- [celebs on tour](https://celebs.allwomenstalk.com/celebs-who-have-shown-their-support-at-mileys-tour/)
-- [ashton klein](https://celebs.allwomenstalk.com/celebrities-who-used-to-model-before-getting-their-big-break/)
-- [harry styles vines](https://funny.allwomenstalk.com/silliest-celebrity-vines-you-have-to-see-at-least-once/)
-- [blake lively sobriety](https://celebs.allwomenstalk.com/celebs-who-live-a-sober-lifestyle/)
 - [male actors 60 years old](https://celebs.allwomenstalk.com/celebrities-who-only-get-better-with-age/)
+- [harry styles vines](https://funny.allwomenstalk.com/silliest-celebrity-vines-you-have-to-see-at-least-once/)
 - [ezra fitz brother](https://celebs.allwomenstalk.com/abc-celebrities-who-are-totally-crush-worthy/)
+- [ashton klein](https://celebs.allwomenstalk.com/celebrities-who-used-to-model-before-getting-their-big-break/)
 - [comedian with red hat](https://celebs.allwomenstalk.com/stars-who-died-whilst-doing-what-they-loved/)
-- [camilla luddington twitter](https://celebs.allwomenstalk.com/greys-anatomy-celebrities-who-are-social-on-twitter/)
-- [zooey deschanel and joseph gordon-levitt relations...](https://celebs.allwomenstalk.com/favorite-real-life-will-theywont-they-celebrity-couples/)
 - [justin berfield height](https://movies.allwomenstalk.com/noughties-tv-stars-we-all-seriously-miss/)
+- [zooey deschanel and joseph gordon-levitt relations...](https://celebs.allwomenstalk.com/favorite-real-life-will-theywont-they-celebrity-couples/)
+- [camilla luddington twitter](https://celebs.allwomenstalk.com/greys-anatomy-celebrities-who-are-social-on-twitter/)
+- [blake lively sobriety](https://celebs.allwomenstalk.com/celebs-who-live-a-sober-lifestyle/)
+- [celebs on tour](https://celebs.allwomenstalk.com/celebs-who-have-shown-their-support-at-mileys-tour/)
 - [9 Amazing Celebrity Families ...](https://allwomenstalk.com/9-amazing-celebrity-families/)
 - [8 Celebrity Adoptive Parents ...](https://allwomenstalk.com/8-celebrity-adoptive-parents/)
 

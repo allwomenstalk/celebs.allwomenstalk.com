@@ -48,16 +48,16 @@ Top Image Source: [pinterest.com](https://www.pinterest.com/pin/410150125/)
 
 ## Related Posts
 
-- [Sexiest Men Alive up for Auction ...](https://celebs.allwomenstalk.com/sexiest-men-alive-up-for-auction/)
-- [cute guys wearing skirts](https://celebs.allwomenstalk.com/sexiest-celebrity-men-in-skirts/)
-- [highest earning celebrities](https://celebs.allwomenstalk.com/highest-earning-celebrities-of/)
 - [sarah jessica parker south oark](https://celebs.allwomenstalk.com/favourite-south-park-celebrity-targets/)
-- [celebrity cancer survivors](https://celebs.allwomenstalk.com/wonderfully-remarkable-celebrity-cancer-survivor-stories/)
-- [most famous affairs](https://love.allwomenstalk.com/extraordinary-famous-love-affairs/)
 - [most popular person](https://celebs.allwomenstalk.com/gorgeous-full-figured-celebrities/)
+- [cute guys wearing skirts](https://celebs.allwomenstalk.com/sexiest-celebrity-men-in-skirts/)
+- [Sexiest Men Alive up for Auction ...](https://celebs.allwomenstalk.com/sexiest-men-alive-up-for-auction/)
 - [ray krocs wives](https://celebs.allwomenstalk.com/celebrities-with-addictions/)
-- [celebrity news 2011](https://celebs.allwomenstalk.com/big-celebrity-news-of/)
+- [highest earning celebrities](https://celebs.allwomenstalk.com/highest-earning-celebrities-of/)
+- [celebrity cancer survivors](https://celebs.allwomenstalk.com/wonderfully-remarkable-celebrity-cancer-survivor-stories/)
 - [current events with celebrities](https://celebs.allwomenstalk.com/best-celebrity-gossip-websites/)
+- [celebrity news 2011](https://celebs.allwomenstalk.com/big-celebrity-news-of/)
+- [most famous affairs](https://love.allwomenstalk.com/extraordinary-famous-love-affairs/)
 - [8 Celebrities That Look Older than Their True Age ...](https://celebs.allwomenstalk.com/celebrities-that-look-older-than-their-true-age/)
 - [10 Most Amazing 40 Celebrities ...](https://allwomenstalk.com/10-most-amazing-40-celebrities/)
 

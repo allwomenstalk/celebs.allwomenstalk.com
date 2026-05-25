@@ -50,16 +50,16 @@ Top Photo Credit: [manfrys](https://www.flickr.com/photos/manfrys/2134591387/)
 
 ## Related Posts
 
-- [7 Facts about Coffee ...](https://lifestyle.allwomenstalk.com/7-facts-about-coffee/)
 - [facts about lemons](https://cooking.allwomenstalk.com/7-facts-about-lemons/)
 - [beetle trivia](https://gardening.allwomenstalk.com/5-cool-facts-on-beetles/)
-- [who is tiffany from tiffany and co](https://jewelry.allwomenstalk.com/7-interesting-facts-about-tiffany-co-you-may-not-know/)
-- [7 Things You Didnt Know about Parasites ...](https://health.allwomenstalk.com/7-things-you-didnt-know-about-parasites/)
 - [7 Amazing Facts about Your Sense of Smell ...](https://health.allwomenstalk.com/amazing-facts-about-your-sense-of-smell/)
-- [7 Facts on Breasts ...](https://health.allwomenstalk.com/7-facts-on-breasts/)
+- [who is tiffany from tiffany and co](https://jewelry.allwomenstalk.com/7-interesting-facts-about-tiffany-co-you-may-not-know/)
 - [5 facts about roses](https://gardening.allwomenstalk.com/5-facts-on-roses/)
+- [7 Facts on Breasts ...](https://health.allwomenstalk.com/7-facts-on-breasts/)
 - [ladybug description](https://gardening.allwomenstalk.com/facts-on-the-ladybug/)
+- [7 Things You Didnt Know about Parasites ...](https://health.allwomenstalk.com/7-things-you-didnt-know-about-parasites/)
 - [9 Uncommon Facts about the Human Body ...](https://health.allwomenstalk.com/uncommon-facts-about-the-human-body/)
+- [7 Facts about Coffee ...](https://lifestyle.allwomenstalk.com/7-facts-about-coffee/)
 - [5 Facts on Bella Swan ...](https://twilight.allwomenstalk.com/5-facts-on-bella-swan/)
 - [10 Things You Didnt Know about Jessica Alba](https://allwomenstalk.com/10-things-you-didnt-know-about-jessica-alba/)
 

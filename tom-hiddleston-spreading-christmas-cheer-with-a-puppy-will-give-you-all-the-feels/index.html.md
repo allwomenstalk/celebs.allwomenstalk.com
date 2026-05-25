@@ -16,16 +16,16 @@ What'd you think? It's pretty awesome seeing Loki sing a Christmas song, right?!
 
 ## Related Posts
 
-- [For the Love of Dogs: 30 Mutts Have Canine-Themed ...](https://lifestyle.allwomenstalk.com/for-the-love-of-dogs-mutts-have-canine-themed-items/)
-- [40 Items Purr-Fect for Feline Fanciers ...](https://lifestyle.allwomenstalk.com/items-purr-fect-for-feline-fanciers/)
-- [35 Things to Show off Your Love of Elephants ...](https://lifestyle.allwomenstalk.com/things-to-show-off-your-love-of-elephants/)
-- [This Artist Draws His Doggie in a Whole New Way .....](https://funny.allwomenstalk.com/this-artist-draws-his-doggie-in-a-whole-new-way/)
-- [things dogs teach us](https://lifestyle.allwomenstalk.com/lessons-dogs-can-teach-us-about-happiness/)
-- [Top Tips for Keeping Your Pets Safe at Christmas ....](https://lifestyle.allwomenstalk.com/tips-for-keeping-your-pets-safe-at-christmas/)
 - [scaly pets](https://lifestyle.allwomenstalk.com/furry-feathery-or-scaly-pets-will-love-these-gifts/)
-- [animal kingdom pics](https://lifestyle.allwomenstalk.com/these-touching-photos-of-love-in-the-animal-kingdom-will-melt-your-heart/)
 - [7 Lovely Reasons to Adopt an Older Animal ...](https://lifestyle.allwomenstalk.com/lovely-reasons-to-adopt-an-older-animal/)
+- [things dogs teach us](https://lifestyle.allwomenstalk.com/lessons-dogs-can-teach-us-about-happiness/)
+- [35 Things to Show off Your Love of Elephants ...](https://lifestyle.allwomenstalk.com/things-to-show-off-your-love-of-elephants/)
+- [40 Items Purr-Fect for Feline Fanciers ...](https://lifestyle.allwomenstalk.com/items-purr-fect-for-feline-fanciers/)
+- [animal kingdom pics](https://lifestyle.allwomenstalk.com/these-touching-photos-of-love-in-the-animal-kingdom-will-melt-your-heart/)
+- [For the Love of Dogs: 30 Mutts Have Canine-Themed ...](https://lifestyle.allwomenstalk.com/for-the-love-of-dogs-mutts-have-canine-themed-items/)
 - [Would You Create a Bucket List for Your Pet Lauren...](https://love.allwomenstalk.com/would-you-create-a-bucket-list-for-your-pet-lauren-did/)
+- [Top Tips for Keeping Your Pets Safe at Christmas ....](https://lifestyle.allwomenstalk.com/tips-for-keeping-your-pets-safe-at-christmas/)
+- [This Artist Draws His Doggie in a Whole New Way .....](https://funny.allwomenstalk.com/this-artist-draws-his-doggie-in-a-whole-new-way/)
 - [The New Years Eve Kiss ...](https://allwomenstalk.com/the-new-years-eve-kiss/)
 - [Helpless Dogs and Cats Are Crying for Your Help](https://allwomenstalk.com/helpless-dogs-and-cats-are-crying-for-your-help/)
 

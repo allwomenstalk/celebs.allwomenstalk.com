@@ -57,15 +57,15 @@ Who was your favorite star in the Bad Blood music video? I still can’t get ove
 ## Related Posts
 
 - [female hispanic celebrities](https://celebs.allwomenstalk.com/amazing-latina-celebrities-thatll-be-your-fashion-inspiration/)
-- [nina dobrev eye surgery](https://fashion.allwomenstalk.com/steal-nina-dobrevs-stunning-style/)
-- [scarlett johansson fringe](https://celebs.allwomenstalk.com/get-a-little-edgy-or-glam-by-borrowing-some-of-scarlett-johanssons-style/)
 - [erika linder age](https://fashion.allwomenstalk.com/models-who-are-redefining-the-fashion-industry/)
+- [zoe kravitz y penn badgley](https://celebs.allwomenstalk.com/zoe-kravitz-street-style-petite-girls-will-love/)
+- [nina dobrev eye surgery](https://fashion.allwomenstalk.com/steal-nina-dobrevs-stunning-style/)
+- [tattoos that look like bracelets](https://beauty.allwomenstalk.com/fashion-tattoos-even-vogue-editors-would-love/)
+- [scarlett johansson fringe](https://celebs.allwomenstalk.com/get-a-little-edgy-or-glam-by-borrowing-some-of-scarlett-johanssons-style/)
 - [fashion inspos](https://streetstyle.allwomenstalk.com/kate-middletons-street-style-inspos-you-can-copy/)
 - [fashion designers in africa](https://fashion.allwomenstalk.com/african-fashion-designers-making-waves/)
-- [mindy kaling fashion](https://celebs.allwomenstalk.com/get-a-little-fashion-inspo-from-mindy-kalings-lookbook/)
-- [zoe kravitz y penn badgley](https://celebs.allwomenstalk.com/zoe-kravitz-street-style-petite-girls-will-love/)
 - [celebs in leggings](https://celebs.allwomenstalk.com/pins-on-parade-celebs-giving-lessons-in-leggings/)
-- [tattoos that look like bracelets](https://beauty.allwomenstalk.com/fashion-tattoos-even-vogue-editors-would-love/)
+- [mindy kaling fashion](https://celebs.allwomenstalk.com/get-a-little-fashion-inspo-from-mindy-kalings-lookbook/)
 - [5 Best Dressed Celebrities at the MTV Video Music ...](https://celebs.allwomenstalk.com/best-dressed-celebrities-at-the-mtv-video-music-awards/)
 - [5 Hollywood Moms with Great Street Style ...](https://allwomenstalk.com/5-hollywood-moms-with-great-street-style/)
 

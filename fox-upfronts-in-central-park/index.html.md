@@ -72,16 +72,16 @@ Hmmm. Jenny Wade's dress leaves me feeling a little confused. What do you think 
 
 ## Related Posts
 
-- [antonio banderas photoshoot](https://celebs.allwomenstalk.com/antonios-motorbike-team/)
-- [3 Photos of McConaughey in a Shirt and Tie ...](https://celebs.allwomenstalk.com/mcconaughey-in-a-shirt-and-tie/)
 - [in my sleep 2010](https://celebs.allwomenstalk.com/in-my-sleep-premiere/)
-- [paris stylo primped previous](https://celebs.allwomenstalk.com/szohr-in-soho/)
-- [liv tyler tights](https://celebs.allwomenstalk.com/liv-hails-and-waits/)
-- [6 Photos of Holmes and Her Girls ...](https://celebs.allwomenstalk.com/holmes-and-her-girls/)
-- [brooklyn decker just go with it bikini](https://celebs.allwomenstalk.com/brooklyns-bikini-bod/)
-- [27 Photos of the a-Team Premiere ...](https://celebs.allwomenstalk.com/the-a-team-premiere/)
-- [shakira hottest](https://celebs.allwomenstalk.com/shakira-stretches-it-out/)
 - [entourage series 7](https://celebs.allwomenstalk.com/season-7-premiere-of-entourage/)
+- [shakira hottest](https://celebs.allwomenstalk.com/shakira-stretches-it-out/)
+- [27 Photos of the a-Team Premiere ...](https://celebs.allwomenstalk.com/the-a-team-premiere/)
+- [liv tyler tights](https://celebs.allwomenstalk.com/liv-hails-and-waits/)
+- [3 Photos of McConaughey in a Shirt and Tie ...](https://celebs.allwomenstalk.com/mcconaughey-in-a-shirt-and-tie/)
+- [brooklyn decker just go with it bikini](https://celebs.allwomenstalk.com/brooklyns-bikini-bod/)
+- [antonio banderas photoshoot](https://celebs.allwomenstalk.com/antonios-motorbike-team/)
+- [6 Photos of Holmes and Her Girls ...](https://celebs.allwomenstalk.com/holmes-and-her-girls/)
+- [paris stylo primped previous](https://celebs.allwomenstalk.com/szohr-in-soho/)
 - [36 Photos of the GLEE Spring Premiere Soiree ...](https://celebs.allwomenstalk.com/glee-premiere/)
 - [21 Photos of the Losers Premiere ...](https://celebs.allwomenstalk.com/the-losers-premiere/)
 

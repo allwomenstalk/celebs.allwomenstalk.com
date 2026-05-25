@@ -92,16 +92,16 @@ I always enjoy reading a good autobiography, especially about someone that inter
 
 ## Related Posts
 
-- [harry potter cast facts](https://movies.allwomenstalk.com/fun-facts-about-the-harry-potter-movies/)
-- [what are considered green leafy vegetables](https://food.allwomenstalk.com/awesome-facts-about-leafy-greens-that-you-should-know/)
-- [best looking minerals](https://lifestyle.allwomenstalk.com/most-beautiful-minerals-and-unique-facts-related-to-them/)
-- [why cant you split the pole](https://lifestyle.allwomenstalk.com/of-the-most-interesting-and-common-superstitions/)
-- [fun fact about almonds](https://food.allwomenstalk.com/interesting-facts-about-almonds-i-bet-you-didnt-know-yet/)
-- [what is the weirdest national holiday](https://lifestyle.allwomenstalk.com/strange-national-holidays-you-never-knew-existed/)
-- [mythical creatures that heal](https://books.allwomenstalk.com/awesome-mythical-creatures-you-should-know-about/)
-- [fun facts about fashion designers](https://fashion.allwomenstalk.com/fun-facts-about-jean-paul-gaultier-i-bet-you-didnt-know/)
-- [how much is a white truffle](https://food.allwomenstalk.com/white-truffle-facts-that-you-should-know/)
 - [the river amazon facts](https://travel.allwomenstalk.com/awesome-facts-about-the-amazon-river-and-basin/)
+- [harry potter cast facts](https://movies.allwomenstalk.com/fun-facts-about-the-harry-potter-movies/)
+- [fun facts about fashion designers](https://fashion.allwomenstalk.com/fun-facts-about-jean-paul-gaultier-i-bet-you-didnt-know/)
+- [mythical creatures that heal](https://books.allwomenstalk.com/awesome-mythical-creatures-you-should-know-about/)
+- [what is the weirdest national holiday](https://lifestyle.allwomenstalk.com/strange-national-holidays-you-never-knew-existed/)
+- [why cant you split the pole](https://lifestyle.allwomenstalk.com/of-the-most-interesting-and-common-superstitions/)
+- [how much is a white truffle](https://food.allwomenstalk.com/white-truffle-facts-that-you-should-know/)
+- [best looking minerals](https://lifestyle.allwomenstalk.com/most-beautiful-minerals-and-unique-facts-related-to-them/)
+- [what are considered green leafy vegetables](https://food.allwomenstalk.com/awesome-facts-about-leafy-greens-that-you-should-know/)
+- [fun fact about almonds](https://food.allwomenstalk.com/interesting-facts-about-almonds-i-bet-you-didnt-know-yet/)
 - [7 Interesting Facts about Tiffany  Co. You May Not...](https://jewelry.allwomenstalk.com/7-interesting-facts-about-tiffany-co-you-may-not-know/)
 - [5 Blogs by Celebrities Youd Love to Get to Know .....](https://allwomenstalk.com/5-blogs-by-celebrities-youd-love-to-get-to-know/)
 

@@ -39,16 +39,16 @@ City: [Los Angeles](https://celebs.allwomenstalk.com/tag/los-angeles/)
 
 ## Related Posts
 
+- [Angelina Reveals Her Latest Talent](https://celebs.allwomenstalk.com/angelina-reveals-her-latest-talent/)
 - [ed oneill photo fan](https://celebs.allwomenstalk.com/ed-oneill-is-janes-biggest-fan/)
+- [katy perry snow white](https://celebs.allwomenstalk.com/katy-perry-channels-the-roaring-20s-for-ghd/)
+- [kristen stewart](https://celebs.allwomenstalk.com/kristen-stewart-gets-edgy-for-vogue-italia/)
+- [justin holding selenas hand](https://celebs.allwomenstalk.com/selena-justin-hold-hands-almost/)
 - [kanye and kim music video](https://celebs.allwomenstalk.com/kim-kardashian-makes-a-video-with-kanye-west/)
+- [katy naughty](https://celebs.allwomenstalk.com/katy-perry-to-get-naughty-with-ted-mosby/)
 - [4 Photos of Lilly Allens Growing Belly ...](https://celebs.allwomenstalk.com/lilly-allens-growing-belly/)
 - [Justin the New Man in Olivias Life](https://celebs.allwomenstalk.com/justin-the-new-man-in-olivias-life/)
-- [katy naughty](https://celebs.allwomenstalk.com/katy-perry-to-get-naughty-with-ted-mosby/)
-- [justin holding selenas hand](https://celebs.allwomenstalk.com/selena-justin-hold-hands-almost/)
-- [kristen stewart](https://celebs.allwomenstalk.com/kristen-stewart-gets-edgy-for-vogue-italia/)
 - [Victoria Beckham: Thank God David Looks like Crap....](https://celebs.allwomenstalk.com/victoria-beckham-thank-god-david-looks-like-crap/)
-- [katy perry snow white](https://celebs.allwomenstalk.com/katy-perry-channels-the-roaring-20s-for-ghd/)
-- [Angelina Reveals Her Latest Talent](https://celebs.allwomenstalk.com/angelina-reveals-her-latest-talent/)
 - [16 Photos of Ralph Lauren Shop Opening ...](https://celebs.allwomenstalk.com/ralph-lauren-opens-up-new-shop/)
 - [4 Photos of Jessica Szohr in Soho ...](https://celebs.allwomenstalk.com/szohr-in-soho/)
 

@@ -64,16 +64,16 @@ Top Image Source: [blogol.hu](https://goo.gl/S9r0C5)
 
 ## Related Posts
 
-- [celebrity haircuts](https://hair.allwomenstalk.com/fabulous-celebrity-hair-cuts/)
+- [wings in your hair](https://hair.allwomenstalk.com/pretty-things-for-your-hair-from-mod-cloth/)
 - [7 Funkiest Celebrity Hairstyles ...](https://celebs.allwomenstalk.com/7-funkiest-celebrity-hairstyles/)
-- [princess hairstyle for little girl](https://hair.allwomenstalk.com/great-blogs-on-hairstyles-for-little-girls/)
+- [balayage hair](https://hair.allwomenstalk.com/top-celebrity-hair-styles-of-today/)
+- [celebrity haircuts](https://hair.allwomenstalk.com/fabulous-celebrity-hair-cuts/)
 - [rock short hair](https://hair.allwomenstalk.com/ways-to-rock-a-pixie-cut/)
 - [cute ponytails](https://hair.allwomenstalk.com/ponytails-that-look-adorable/)
-- [elegantly fashionable](https://hair.allwomenstalk.com/elegantly-fashionable-ways-to-style-your-curly-hair/)
 - [paris le smoky blinged and brilliant](https://hair.allwomenstalk.com/enchantingly-creative-ponytail-hair-styles/)
-- [balayage hair](https://hair.allwomenstalk.com/top-celebrity-hair-styles-of-today/)
+- [elegantly fashionable](https://hair.allwomenstalk.com/elegantly-fashionable-ways-to-style-your-curly-hair/)
 - [ochre 7 comic](https://hair.allwomenstalk.com/7-ways-to-jazz-up-your-hair-color/)
-- [wings in your hair](https://hair.allwomenstalk.com/pretty-things-for-your-hair-from-mod-cloth/)
+- [princess hairstyle for little girl](https://hair.allwomenstalk.com/great-blogs-on-hairstyles-for-little-girls/)
 - [7 Sexy Summer Hair Styles ...](https://hair.allwomenstalk.com/sexy-summer-hair-styles/)
 - [10 Hottest Celebrity Hairstyles ...](https://hair.allwomenstalk.com/hottest-celebrity-hairstyles/)
 

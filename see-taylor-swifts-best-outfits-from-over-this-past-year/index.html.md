@@ -189,16 +189,16 @@ What's your favorite Taylor Swift look from 2015? Let me know in the comments!
 
 ## Related Posts
 
-- [jobs related to modeling](https://fashion.allwomenstalk.com/awesome-fashion-careers-that-dont-require-modeling/)
-- [french beauties](https://fashion.allwomenstalk.com/fashion-tips-inspired-by-french-beauties/)
-- [taylor swift fashion line](https://celebs.allwomenstalk.com/fab-photos-of-taylor-swifts-new-clothing-line/)
-- [hijab high fashion](https://fashion.allwomenstalk.com/high-fashion-hijab-styles-that-are-beyond-fashionable/)
-- [celebrities who are fashion designers](https://fashion.allwomenstalk.com/celebs-that-double-as-insanely-talented-fashion-designers/)
-- [sleek outfit](https://fashion.allwomenstalk.com/sleek-black-outfits-inspired-by-the-kardashians/)
-- [kate middleton makeup tutorial](https://celebs.allwomenstalk.com/you-must-see-these-kate-middletons-best-looks-from-last-year/)
 - [british formal wear for ladies](https://fashion.allwomenstalk.com/duchess-approved-the-british-fashion-brands-kate-middleton-wears/)
-- [bombshell fashion](https://fashion.allwomenstalk.com/bombshell-coachella-looks-from-every-fashioninsta-should-try/)
+- [sleek outfit](https://fashion.allwomenstalk.com/sleek-black-outfits-inspired-by-the-kardashians/)
+- [taylor swift fashion line](https://celebs.allwomenstalk.com/fab-photos-of-taylor-swifts-new-clothing-line/)
+- [celebrities who are fashion designers](https://fashion.allwomenstalk.com/celebs-that-double-as-insanely-talented-fashion-designers/)
+- [jobs related to modeling](https://fashion.allwomenstalk.com/awesome-fashion-careers-that-dont-require-modeling/)
+- [hijab high fashion](https://fashion.allwomenstalk.com/high-fashion-hijab-styles-that-are-beyond-fashionable/)
 - [marquita pring height weight](https://fashion.allwomenstalk.com/these-breathtaking-models-are-changing-the-face-of-fashion/)
+- [bombshell fashion](https://fashion.allwomenstalk.com/bombshell-coachella-looks-from-every-fashioninsta-should-try/)
+- [french beauties](https://fashion.allwomenstalk.com/fashion-tips-inspired-by-french-beauties/)
+- [kate middleton makeup tutorial](https://celebs.allwomenstalk.com/you-must-see-these-kate-middletons-best-looks-from-last-year/)
 - [The Best Dressed Women of 2010 ...](https://celebs.allwomenstalk.com/the-best-dressed-women-of/)
 - [12 Worst Celebrity Outfits of 2010 ...](https://allwomenstalk.com/worst-celebrity-outfits-of/)
 

@@ -44,16 +44,16 @@ Top Photo Credit: [gataloka2009](https://www.flickr.com/photos/41869156@N05/5221
 
 ## Related Posts
 
-- [worst table manners](https://celebs.allwomenstalk.com/celebrities-with-awful-table-manners/)
-- [renee zellweger kenny chesney wedding](https://celebs.allwomenstalk.com/famous-hollywood-divorces/)
-- [inspiring celebrities](https://celebs.allwomenstalk.com/inspiring-celebrities-of/)
-- [female celebrities with dimples](https://celebs.allwomenstalk.com/cool-celebrities-with-dimples/)
-- [4 Celebs That Shot to Fame after Cosmetic Surgery....](https://celebs.allwomenstalk.com/celebs-that-shot-to-fame-after-cosmetic-surgery/)
-- [beta male drawing](https://celebs.allwomenstalk.com/sweetly-sexy-hollywood-beta-males/)
-- [celebs who live in nyc](https://celebs.allwomenstalk.com/celebrities-who-live-in-nyc/)
-- [matt damon buzz cut](https://celebs.allwomenstalk.com/celebrity-haircuts-this-week/)
-- [katharine hepburn height weight](https://celebs.allwomenstalk.com/enduring-celebrity-myths/)
 - [lucille ball debra messing](https://celebs.allwomenstalk.com/celebs-that-rock-red-hair/)
+- [beta male drawing](https://celebs.allwomenstalk.com/sweetly-sexy-hollywood-beta-males/)
+- [renee zellweger kenny chesney wedding](https://celebs.allwomenstalk.com/famous-hollywood-divorces/)
+- [worst table manners](https://celebs.allwomenstalk.com/celebrities-with-awful-table-manners/)
+- [celebs who live in nyc](https://celebs.allwomenstalk.com/celebrities-who-live-in-nyc/)
+- [female celebrities with dimples](https://celebs.allwomenstalk.com/cool-celebrities-with-dimples/)
+- [katharine hepburn height weight](https://celebs.allwomenstalk.com/enduring-celebrity-myths/)
+- [matt damon buzz cut](https://celebs.allwomenstalk.com/celebrity-haircuts-this-week/)
+- [inspiring celebrities](https://celebs.allwomenstalk.com/inspiring-celebrities-of/)
+- [4 Celebs That Shot to Fame after Cosmetic Surgery....](https://celebs.allwomenstalk.com/celebs-that-shot-to-fame-after-cosmetic-surgery/)
 - [7 Celebrities I Would like to Hang with ...](https://celebs.allwomenstalk.com/7-celebrities-i-would-like-to-hang-with/)
 - [7 Great Celebrity Blogs ...](https://allwomenstalk.com/7-great-celebrity-blogs/)
 

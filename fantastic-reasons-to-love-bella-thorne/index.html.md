@@ -42,16 +42,16 @@ Well, there you go! These are just seven out of many awesome reasons to love Bel
 
 ## Related Posts
 
-- [whitney nicole richie](https://celebs.allwomenstalk.com/awesome-reasons-to-love-nicole-richie/)
+- [rachel bilson shows](https://celebs.allwomenstalk.com/awesome-reasons-to-love-rachel-bilson/)
 - [melissa joan hart and joey lawrence](https://movies.allwomenstalk.com/reasons-to-love-melissa-and-joey/)
+- [hayden panettiere no makeup](https://celebs.allwomenstalk.com/fantastic-reasons-to-love-hayden-panettiere/)
 - [shah of sunset asa](https://movies.allwomenstalk.com/reasons-to-watch-shahs-of-sunset/)
-- [where can u watch maleficent](https://movies.allwomenstalk.com/reasons-to-watch-maleficent-right-away/)
 - [tv series zombie](https://movies.allwomenstalk.com/reasons-why-the-walking-dead-is-the-best-zombie-series-of-recent-times/)
 - [kendall jenner age 18](https://celebs.allwomenstalk.com/reasons-why-kendall-jenner-is-the-next-big-thing/)
-- [rachel bilson shows](https://celebs.allwomenstalk.com/awesome-reasons-to-love-rachel-bilson/)
 - [hank royal pains](https://movies.allwomenstalk.com/reasons-to-watch-royal-pains-this-summer/)
+- [where can u watch maleficent](https://movies.allwomenstalk.com/reasons-to-watch-maleficent-right-away/)
 - [define bibliophile](https://love.allwomenstalk.com/sweet-reasons-to-date-a-bibliophile/)
-- [hayden panettiere no makeup](https://celebs.allwomenstalk.com/fantastic-reasons-to-love-hayden-panettiere/)
+- [whitney nicole richie](https://celebs.allwomenstalk.com/awesome-reasons-to-love-nicole-richie/)
 - [5 Things I like about Bella ...](https://twilight.allwomenstalk.com/5-things-i-like-about-bella/)
 - [7 Reasons to Love Taylor Swift ...](https://allwomenstalk.com/7-reasons-to-love-taylor-swift/)
 

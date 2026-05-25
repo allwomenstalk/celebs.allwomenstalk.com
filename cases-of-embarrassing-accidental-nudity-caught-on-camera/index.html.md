@@ -56,16 +56,16 @@ What’s your view on this? Poor wardrobe choice? Unnecessary displays? Got it, 
 
 ## Related Posts
 
-- [career in dancing](https://lifestyle.allwomenstalk.com/highs-and-lows-of-a-career-in-dancing/)
-- [17 cartoons not for children](https://movies.allwomenstalk.com/great-cartoons-that-are-not-for-kids/)
-- [love jade teen](https://lifestyle.allwomenstalk.com/mysterious-creatures-that-only-exist-in-urban-legends/)
-- [andrew davies: rewriting the classics](https://movies.allwomenstalk.com/excellent-adaptations-by-andrew-davies/)
-- [funny french commercials](https://movies.allwomenstalk.com/strangest-tv-commercials-to-ever-exist/)
-- [tales of survival](https://inspiration.allwomenstalk.com/tales-of-survival-you-wont-believe/)
-- [girl meets world free online](https://movies.allwomenstalk.com/ways-girl-meets-world-is-living-up-to-boy-meets-world/)
-- [the real mccoy sketch show](https://movies.allwomenstalk.com/british-sketch-shows-that-will-get-you-laughing/)
 - [high iq tv series](https://movies.allwomenstalk.com/tv-shows-that-will-make-you-smarter/)
+- [career in dancing](https://lifestyle.allwomenstalk.com/highs-and-lows-of-a-career-in-dancing/)
+- [love jade teen](https://lifestyle.allwomenstalk.com/mysterious-creatures-that-only-exist-in-urban-legends/)
+- [17 cartoons not for children](https://movies.allwomenstalk.com/great-cartoons-that-are-not-for-kids/)
+- [tales of survival](https://inspiration.allwomenstalk.com/tales-of-survival-you-wont-believe/)
+- [the real mccoy sketch show](https://movies.allwomenstalk.com/british-sketch-shows-that-will-get-you-laughing/)
+- [funny french commercials](https://movies.allwomenstalk.com/strangest-tv-commercials-to-ever-exist/)
 - [old disney cartoons shows](https://movies.allwomenstalk.com/old-disney-tv-shows-that-i-wish-came-back/)
+- [girl meets world free online](https://movies.allwomenstalk.com/ways-girl-meets-world-is-living-up-to-boy-meets-world/)
+- [andrew davies: rewriting the classics](https://movies.allwomenstalk.com/excellent-adaptations-by-andrew-davies/)
 - [7 Bits of Spring Celebrity Gossip ...](https://allwomenstalk.com/7-bits-of-spring-celebrity-gossip/)
 - [7 Funny Jokes to Help You Smile ...](https://allwomenstalk.com/7-funny-jokes-to-help-you-smile/)
 

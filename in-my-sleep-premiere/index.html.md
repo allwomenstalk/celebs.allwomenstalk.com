@@ -62,16 +62,16 @@ Worst dressed of the night was undoubtedly Phoebe Price, don't you agree?
 
 ## Related Posts
 
-- [nicole kidman swim](https://celebs.allwomenstalk.com/gainsbourgs-revealing-swim/)
-- [shakira hottest](https://celebs.allwomenstalk.com/shakira-stretches-it-out/)
-- [paris stylo primped previous](https://celebs.allwomenstalk.com/szohr-in-soho/)
-- [27 Photos of the a-Team Premiere ...](https://celebs.allwomenstalk.com/the-a-team-premiere/)
-- [liv tyler tights](https://celebs.allwomenstalk.com/liv-hails-and-waits/)
 - [entourage series 7](https://celebs.allwomenstalk.com/season-7-premiere-of-entourage/)
-- [3 Photos of McConaughey in a Shirt and Tie ...](https://celebs.allwomenstalk.com/mcconaughey-in-a-shirt-and-tie/)
-- [brooklyn decker just go with it bikini](https://celebs.allwomenstalk.com/brooklyns-bikini-bod/)
-- [brigitte nielsen height in feet](https://celebs.allwomenstalk.com/nielsens-beach-pose/)
 - [6 Photos of Holmes and Her Girls ...](https://celebs.allwomenstalk.com/holmes-and-her-girls/)
+- [shakira hottest](https://celebs.allwomenstalk.com/shakira-stretches-it-out/)
+- [nicole kidman swim](https://celebs.allwomenstalk.com/gainsbourgs-revealing-swim/)
+- [27 Photos of the a-Team Premiere ...](https://celebs.allwomenstalk.com/the-a-team-premiere/)
+- [brooklyn decker just go with it bikini](https://celebs.allwomenstalk.com/brooklyns-bikini-bod/)
+- [liv tyler tights](https://celebs.allwomenstalk.com/liv-hails-and-waits/)
+- [paris stylo primped previous](https://celebs.allwomenstalk.com/szohr-in-soho/)
+- [brigitte nielsen height in feet](https://celebs.allwomenstalk.com/nielsens-beach-pose/)
+- [3 Photos of McConaughey in a Shirt and Tie ...](https://celebs.allwomenstalk.com/mcconaughey-in-a-shirt-and-tie/)
 - [27 Photos of 21st Annual GLAAD Media Awards ...](https://celebs.allwomenstalk.com/21st-annual-glaad-media-awards/)
 - [22 Photos of FOX Upfronts in Central Park ...](https://celebs.allwomenstalk.com/fox-upfronts-in-central-park/)
 

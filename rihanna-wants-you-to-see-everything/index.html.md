@@ -16,16 +16,16 @@ The raunchiness and an epileptic overdose aside, the song and the video are quit
 
 ## Related Posts
 
-- [An Elke in NY Update.](https://allwomenstalk.com/an-elke-in-ny-update/)
 - [And Just like That Im 19 Entertainments Bitch a...](https://allwomenstalk.com/and-just-like-that-im-19-entertainments-bitch-a/)
-- [melissa mccarthy mother](https://lifestyle.allwomenstalk.com/moms-are-talking-with-melissa-mccarthy-over-at-ivorys-the-soap-dish/)
 - [Another Photo Shoot in NY ...](https://allwomenstalk.com/another-photo-shoot-in-ny/)
 - [Lady Gaga Goes Country](https://celebs.allwomenstalk.com/lady-gaga-goes-country/)
+- [melissa mccarthy mother](https://lifestyle.allwomenstalk.com/moms-are-talking-with-melissa-mccarthy-over-at-ivorys-the-soap-dish/)
 - [Mean Girls Triumphant](https://allwomenstalk.com/mean-girls-triumphant/)
-- [Somebodys Hot Friend 2](https://allwomenstalk.com/somebodys-hot-friend-2/)
+- [Brit Scientist -- round 2 Date 4 ...](https://allwomenstalk.com/brit-scientist-round-2-date-4/)
+- [An Elke in NY Update.](https://allwomenstalk.com/an-elke-in-ny-update/)
 - [PHOTO SHOOT: Hello Dollie ...](https://allwomenstalk.com/photo-shoot-hello-dollie/)
 - [Bobbi Brown  Chocolate ...](https://allwomenstalk.com/bobbi-brown-chocolate/)
-- [Brit Scientist -- round 2 Date 4 ...](https://allwomenstalk.com/brit-scientist-round-2-date-4/)
+- [Somebodys Hot Friend 2](https://allwomenstalk.com/somebodys-hot-friend-2/)
 - [9 Incredibly Trendy Fashion Movies Every Stylish G...](https://movies.allwomenstalk.com/incredibly-trendy-fashion-movies-every-stylish-girl-should-see/)
 - [Get Her Look Party Edition - Scarlett Johansson](https://allwomenstalk.com/get-her-look-party-edition-scarlett-johansson/)
 

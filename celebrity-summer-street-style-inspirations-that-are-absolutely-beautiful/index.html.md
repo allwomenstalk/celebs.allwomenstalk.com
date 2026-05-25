@@ -68,16 +68,16 @@ Celebrity style is such a fun thing to follow, and also helps to inspire your ow
 
 ## Related Posts
 
-- [what is fringes](https://streetstyle.allwomenstalk.com/street-style-ways-to-wear-fringes-this-summer/)
-- [cool jacket for summer](https://fashion.allwomenstalk.com/super-cute-summer-jackets-for-cool-evenings/)
-- [can you wear leather dress in the summer](https://streetstyle.allwomenstalk.com/street-style-ways-to-wear-leather-this-summer/)
-- [preppy taylor swift pics](https://streetstyle.allwomenstalk.com/street-style-ways-to-look-preppy-this-summer/)
 - [rockin hair](https://hair.allwomenstalk.com/rockin-hair-accessories-for-summer/)
 - [flag inspired fashion](https://streetstyle.allwomenstalk.com/street-style-ways-to-look-patriotic-this-summer/)
-- [summer rompers and dresses](https://fashion.allwomenstalk.com/summer-rompers-to-wear-all-summer-long/)
-- [warm weather dresses](https://fashion.allwomenstalk.com/essential-summer-dresses-to-embrace-the-warm-weather-in/)
-- [42 summer street](https://streetstyle.allwomenstalk.com/picture-perfect-summer-street-style-looks/)
 - [fashion dos and donts](https://fashion.allwomenstalk.com/summer-fashion-dos-and-donts/)
+- [42 summer street](https://streetstyle.allwomenstalk.com/picture-perfect-summer-street-style-looks/)
+- [summer rompers and dresses](https://fashion.allwomenstalk.com/summer-rompers-to-wear-all-summer-long/)
+- [can you wear leather dress in the summer](https://streetstyle.allwomenstalk.com/street-style-ways-to-wear-leather-this-summer/)
+- [warm weather dresses](https://fashion.allwomenstalk.com/essential-summer-dresses-to-embrace-the-warm-weather-in/)
+- [cool jacket for summer](https://fashion.allwomenstalk.com/super-cute-summer-jackets-for-cool-evenings/)
+- [preppy taylor swift pics](https://streetstyle.allwomenstalk.com/street-style-ways-to-look-preppy-this-summer/)
+- [what is fringes](https://streetstyle.allwomenstalk.com/street-style-ways-to-wear-fringes-this-summer/)
 - [8 Inspiring Street Fashion Looks ...](https://fashion.allwomenstalk.com/inspiring-street-fashion-looks/)
 - [10 Celebrity Spring Trends ...](https://allwomenstalk.com/10-celebrity-spring-trends/)
 

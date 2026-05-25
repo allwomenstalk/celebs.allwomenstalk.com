@@ -42,16 +42,16 @@ Kate Middleton is a real role model and inspiration for girls around the world, 
 
 ## Related Posts
 
-- [classy new years eve outfit](https://lifestyle.allwomenstalk.com/classy-ways-to-look-smoking-hot-on-new-years-eve/)
-- [look amazing](https://beauty.allwomenstalk.com/easy-tricks-to-make-your-breasts-look-amazing/)
-- [tall girls quotes](https://beauty.allwomenstalk.com/reasons-to-love-being-tall/)
-- [meaning of sophisticated woman](https://lifestyle.allwomenstalk.com/tips-on-how-to-feel-like-a-classy-sophisticated-lady/)
 - [sculpted shoulders](https://fitness.allwomenstalk.com/ways-to-get-sculpted-shoulders-like-the-celebrities/)
-- [site:health.allwomenstalk.com](https://health.allwomenstalk.com/ways-to-love-your-boobs/)
+- [tall girls quotes](https://beauty.allwomenstalk.com/reasons-to-love-being-tall/)
+- [7 likes](https://apps.allwomenstalk.com/ways-to-get-lots-of-likes-on-your-next-selfie/)
+- [look amazing](https://beauty.allwomenstalk.com/easy-tricks-to-make-your-breasts-look-amazing/)
 - [how to look your best in 7 days](https://health.allwomenstalk.com/ways-to-look-and-feel-better-in-7-days/)
 - [julianne hough makeup](https://beauty.allwomenstalk.com/ways-you-can-be-inspired-by-julianne-houghs-beauty/)
-- [7 likes](https://apps.allwomenstalk.com/ways-to-get-lots-of-likes-on-your-next-selfie/)
+- [meaning of sophisticated woman](https://lifestyle.allwomenstalk.com/tips-on-how-to-feel-like-a-classy-sophisticated-lady/)
+- [classy new years eve outfit](https://lifestyle.allwomenstalk.com/classy-ways-to-look-smoking-hot-on-new-years-eve/)
 - [do models have to be tall](https://beauty.allwomenstalk.com/ways-to-get-the-posture-and-walk-of-a-model/)
+- [site:health.allwomenstalk.com](https://health.allwomenstalk.com/ways-to-love-your-boobs/)
 - [7 Ways to Glam up Work Attire ...](https://fashion.allwomenstalk.com/ways-to-glam-up-work-attire/)
 - [7 Ways to Improve Your Style ...](https://allwomenstalk.com/7-ways-to-improve-your-style/)
 

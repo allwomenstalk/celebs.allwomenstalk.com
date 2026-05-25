@@ -157,16 +157,16 @@ Okay ladies, if you don’t have a blender, get one and if you do have a blender
 
 ## Related Posts
 
-- [what is a skinny drink](https://food.allwomenstalk.com/skinny-cocktails-that-dont-skimp-on-flavor/)
-- [coffee infused with superfoods](https://food.allwomenstalk.com/healthy-coffee-infused-recipes-that-wont-break-your-diet-or-your-bank/)
-- [cute tumblers quotes](https://lifestyle.allwomenstalk.com/adorable-tumblers-for-all-your-summer-sipping-needs/)
-- [cheapest cocktail](https://food.allwomenstalk.com/budget-friendly-cocktails-for-a-great-summer-party/)
-- [fun summer drinks](https://food.allwomenstalk.com/fun-cocktails-to-try-this-summer/)
-- [jumpstart smoothies](https://food.allwomenstalk.com/perfect-smoothies-to-jump-start-your-day/)
 - [walmart twinings tea](https://food.allwomenstalk.com/delicious-teas-to-try/)
+- [cute tumblers quotes](https://lifestyle.allwomenstalk.com/adorable-tumblers-for-all-your-summer-sipping-needs/)
+- [coffee infused with superfoods](https://food.allwomenstalk.com/healthy-coffee-infused-recipes-that-wont-break-your-diet-or-your-bank/)
 - [healthy alternatives to pop](https://health.allwomenstalk.com/healthy-and-delicious-alternatives-to-soda/)
 - [drinks to build up strength after illness](https://food.allwomenstalk.com/best-workout-recovery-drinks-to-try-2/)
+- [jumpstart smoothies](https://food.allwomenstalk.com/perfect-smoothies-to-jump-start-your-day/)
 - [food inspired by the milky way persona](https://food.allwomenstalk.com/celebrity-smoothie-recipes-to-put-in-your-blender-this-week/)
+- [what is a skinny drink](https://food.allwomenstalk.com/skinny-cocktails-that-dont-skimp-on-flavor/)
+- [cheapest cocktail](https://food.allwomenstalk.com/budget-friendly-cocktails-for-a-great-summer-party/)
+- [fun summer drinks](https://food.allwomenstalk.com/fun-cocktails-to-try-this-summer/)
 - [7 Delicious Fruit Smoothie Recipes ...](https://food.allwomenstalk.com/delicious-fruit-smoothie-recipes/)
 - [9 Ultimate Summer Smoothies Slushes and Shakes ...](https://thecrepescafe.com/9-ultimate-summer-smoothies-slushes-and-shakes/)
 

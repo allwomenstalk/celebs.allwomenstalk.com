@@ -60,16 +60,16 @@ My favorite look was undoubtedly Paltrow's little pink number. Which was your fa
 
 ## Related Posts
 
-- [96 Photos of 2010 MTV Video Music Awards - Arrival...](https://celebs.allwomenstalk.com/mtv-video-music-awards-arrivals/)
 - [vail bloom feet](https://celebs.allwomenstalk.com/easy-a-premiere/)
-- [salt premiere](https://celebs.allwomenstalk.com/salt-premiere/)
 - [Who Was Best Dressed at the Sex and the City 2 in ...](https://celebs.allwomenstalk.com/sex-and-the-city-2-in-london/)
-- [A Wide Ranging Soul Train Awards ...](https://celebs.allwomenstalk.com/a-wide-ranging-soul-train-awards/)
 - [71 Photos of AmfAR Party ...](https://celebs.allwomenstalk.com/amfar-party/)
+- [96 Photos of 2010 MTV Video Music Awards - Arrival...](https://celebs.allwomenstalk.com/mtv-video-music-awards-arrivals/)
+- [A Wide Ranging Soul Train Awards ...](https://celebs.allwomenstalk.com/a-wide-ranging-soul-train-awards/)
+- [salt premiere](https://celebs.allwomenstalk.com/salt-premiere/)
 - [is charlie st cloud based on a true story](https://celebs.allwomenstalk.com/charlie-st-cloud-world-premiere/)
+- [inception photos](https://celebs.allwomenstalk.com/inception-premiere/)
 - [2010 Hollywood Style Awards ...](https://celebs.allwomenstalk.com/hollywood-style-awards/)
 - [The Best Dressed Women of 2010 ...](https://celebs.allwomenstalk.com/the-best-dressed-women-of/)
-- [inception photos](https://celebs.allwomenstalk.com/inception-premiere/)
 - [10 Romantic Movies of 2010 ...](https://bilbr.com/romantic-movies-of/)
 - [10 Best Movies of 2011 ...](https://7fun.net/best-movies-of-2011/)
 

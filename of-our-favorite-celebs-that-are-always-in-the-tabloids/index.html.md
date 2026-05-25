@@ -92,15 +92,15 @@ With all of the family feuds, the make-ups and break-ups, the baby news, the dow
 
 ## Related Posts
 
-- [why are celebrities stripping down](https://celebs.allwomenstalk.com/inspiring-celebrities-whove-stripped-off-for-charity/)
 - [eva longoria and jennifer lopez](https://celebs.allwomenstalk.com/best-celebrity-friendships-that-didnt-last-forever/)
 - [celebrity couples who met on set](https://celebs.allwomenstalk.com/super-adorable-celebrity-couples-that-met-on-set/)
+- [why are celebrities stripping down](https://celebs.allwomenstalk.com/inspiring-celebrities-whove-stripped-off-for-charity/)
 - [famous people tweets](https://celebs.allwomenstalk.com/celebrities-who-are-known-to-tweet-back-their-followers/)
-- [browns chicken steve carell](https://celebs.allwomenstalk.com/old-commercials-with-now-famous-actors-that-will-blow-your-mind/)
-- [joel madden children](https://celebs.allwomenstalk.com/cute-and-stylish-celebrity-kids-we-adore/)
+- [celebrities crop top](https://celebs.allwomenstalk.com/fabulous-celebrities-wearing-crop-tops-and-rocking-it/)
 - [blonde male actors](https://movies.allwomenstalk.com/top-actors-with-oh-so-kissable-lips/)
 - [wino forever meaning](https://celebs.allwomenstalk.com/worst-celebrity-tattoos-that-make-us-cringe/)
-- [celebrities crop top](https://celebs.allwomenstalk.com/fabulous-celebrities-wearing-crop-tops-and-rocking-it/)
+- [browns chicken steve carell](https://celebs.allwomenstalk.com/old-commercials-with-now-famous-actors-that-will-blow-your-mind/)
+- [joel madden children](https://celebs.allwomenstalk.com/cute-and-stylish-celebrity-kids-we-adore/)
 - [el pollo loco mascot](https://celebs.allwomenstalk.com/previous-jobs-done-by-celebrities/)
 - [7 of My Favorite Celebrities ...](https://celebs.allwomenstalk.com/7-of-my-favorite-celebrities/)
 - [7 Recent Celebrity Breakups ...](https://celebs.allwomenstalk.com/recent-celebrity-breakups/)

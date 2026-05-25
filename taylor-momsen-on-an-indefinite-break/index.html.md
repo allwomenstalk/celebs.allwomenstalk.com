@@ -20,16 +20,16 @@ With such erratic and irresponsible behavior like that, it is no wonder she is b
 
 ## Related Posts
 
-- [claire miley](https://celebs.allwomenstalk.com/miley-sorry-for-not-being-a-better-role-model/)
-- [r patz](https://celebs.allwomenstalk.com/kristen-sucks-the-blood-out-of-r-patz/)
-- [take a risk chris brown](https://celebs.allwomenstalk.com/chris-brown-to-collaborate-with-justin-bieber/)
-- [Britney Tweets about Jasons Beatings ...](https://celebs.allwomenstalk.com/britney-tweets-about-jasons-beatings/)
-- [daughter wedgie](https://celebs.allwomenstalk.com/mark-wahlberg-to-give-bieber-a-wedgie/)
 - [camille grammer daughter](https://celebs.allwomenstalk.com/kelsey-grammers-daughter-wont-be-part-of-the-nuptials/)
 - [Howard K Stern Freed by the Law ...](https://celebs.allwomenstalk.com/howard-k-stern-freed-by-the-law/)
+- [claire miley](https://celebs.allwomenstalk.com/miley-sorry-for-not-being-a-better-role-model/)
 - [1923 kevin spacey](https://celebs.allwomenstalk.com/kevin-spacey-its-gossip-bottom-line/)
+- [daughter wedgie](https://celebs.allwomenstalk.com/mark-wahlberg-to-give-bieber-a-wedgie/)
+- [r patz](https://celebs.allwomenstalk.com/kristen-sucks-the-blood-out-of-r-patz/)
 - [Courteney Proud of David for Checking into Rehab.....](https://celebs.allwomenstalk.com/courteney-proud-of-david-for-checking-into-rehab/)
+- [take a risk chris brown](https://celebs.allwomenstalk.com/chris-brown-to-collaborate-with-justin-bieber/)
 - [Kyle Richards Not Sure about Being a Housewife](https://celebs.allwomenstalk.com/kyle-richards-not-sure-about-being-a-housewife/)
+- [Britney Tweets about Jasons Beatings ...](https://celebs.allwomenstalk.com/britney-tweets-about-jasons-beatings/)
 - [Britneys Lost the Plot ...](https://allwomenstalk.com/britneys-lost-the-plot/)
 - [A Moms View on Britney Spears ...](https://allwomenstalk.com/a-moms-view-on-britney-spears/)
 

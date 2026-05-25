@@ -44,16 +44,16 @@ Top Image Source: [weheartit.com](https://weheartit.com/entry/8950633)
 
 ## Related Posts
 
-- [philantrophists](https://celebs.allwomenstalk.com/top-celebrity-philantrophists/)
-- [8 Celebrity Pictures to Enjoy Today ...](https://celebs.allwomenstalk.com/celebrity-pictures-to-enjoy-today/)
-- [soulmte](https://celebs.allwomenstalk.com/sexiest-athletes-of/)
-- [men who look better with age](https://celebs.allwomenstalk.com/celebrity-men-that-look-better-with-age/)
 - [best celebrity diets](https://celebs.allwomenstalk.com/top-bizarre-celebrity-diets/)
-- [celebrity wedding favors](https://celebs.allwomenstalk.com/celebrity-weddings-to-watch-for-in/)
+- [men who look better with age](https://celebs.allwomenstalk.com/celebrity-men-that-look-better-with-age/)
+- [philantrophists](https://celebs.allwomenstalk.com/top-celebrity-philantrophists/)
+- [down to earth actresses](https://celebs.allwomenstalk.com/most-down-to-earth-celebrities/)
+- [8 Celebrity Pictures to Enjoy Today ...](https://celebs.allwomenstalk.com/celebrity-pictures-to-enjoy-today/)
 - [female celebrity smokers uk](https://celebs.allwomenstalk.com/women-celebrities-who-smoke/)
 - [celebrity marriage proposals](https://celebs.allwomenstalk.com/inspiring-and-sweet-celebrity-marriage-proposals/)
-- [down to earth actresses](https://celebs.allwomenstalk.com/most-down-to-earth-celebrities/)
 - [7 Celebrities I Would like to Hang with ...](https://celebs.allwomenstalk.com/7-celebrities-i-would-like-to-hang-with/)
+- [soulmte](https://celebs.allwomenstalk.com/sexiest-athletes-of/)
+- [celebrity wedding favors](https://celebs.allwomenstalk.com/celebrity-weddings-to-watch-for-in/)
 - [7 Most Infamous Celebrity Sex Tapes ...](https://celebs.allwomenstalk.com/most-infamous-celebrity-sex-tapes/)
 - [7 Recent Celebrity Breakups ...](https://celebs.allwomenstalk.com/recent-celebrity-breakups/)
 

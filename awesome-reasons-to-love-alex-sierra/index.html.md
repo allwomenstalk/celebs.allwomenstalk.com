@@ -42,16 +42,16 @@ Well, there you have it! These are just seven out of many fantastic reasons to l
 
 ## Related Posts
 
-- [kendall jenner age 18](https://celebs.allwomenstalk.com/reasons-why-kendall-jenner-is-the-next-big-thing/)
-- [shah of sunset asa](https://movies.allwomenstalk.com/reasons-to-watch-shahs-of-sunset/)
-- [melissa joan hart and joey lawrence](https://movies.allwomenstalk.com/reasons-to-love-melissa-and-joey/)
-- [define bibliophile](https://love.allwomenstalk.com/sweet-reasons-to-date-a-bibliophile/)
-- [rachel bilson shows](https://celebs.allwomenstalk.com/awesome-reasons-to-love-rachel-bilson/)
-- [hayden panettiere no makeup](https://celebs.allwomenstalk.com/fantastic-reasons-to-love-hayden-panettiere/)
-- [bella thorne seventeen magazine](https://celebs.allwomenstalk.com/fantastic-reasons-to-love-bella-thorne/)
-- [whitney nicole richie](https://celebs.allwomenstalk.com/awesome-reasons-to-love-nicole-richie/)
 - [where can u watch maleficent](https://movies.allwomenstalk.com/reasons-to-watch-maleficent-right-away/)
+- [bella thorne seventeen magazine](https://celebs.allwomenstalk.com/fantastic-reasons-to-love-bella-thorne/)
+- [hayden panettiere no makeup](https://celebs.allwomenstalk.com/fantastic-reasons-to-love-hayden-panettiere/)
+- [rachel bilson shows](https://celebs.allwomenstalk.com/awesome-reasons-to-love-rachel-bilson/)
 - [tv series zombie](https://movies.allwomenstalk.com/reasons-why-the-walking-dead-is-the-best-zombie-series-of-recent-times/)
+- [melissa joan hart and joey lawrence](https://movies.allwomenstalk.com/reasons-to-love-melissa-and-joey/)
+- [kendall jenner age 18](https://celebs.allwomenstalk.com/reasons-why-kendall-jenner-is-the-next-big-thing/)
+- [define bibliophile](https://love.allwomenstalk.com/sweet-reasons-to-date-a-bibliophile/)
+- [whitney nicole richie](https://celebs.allwomenstalk.com/awesome-reasons-to-love-nicole-richie/)
+- [shah of sunset asa](https://movies.allwomenstalk.com/reasons-to-watch-shahs-of-sunset/)
 - [7 Reasons to Love Animal Planet ...](https://allwomenstalk.com/7-reasons-to-love-animal-planet/)
 - [7 Reasons to Love the Jonas Brothers ...](https://allwomenstalk.com/7-reasons-to-love-the-jonas-brothers/)
 

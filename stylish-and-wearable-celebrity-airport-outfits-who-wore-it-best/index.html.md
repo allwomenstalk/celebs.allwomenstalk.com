@@ -68,16 +68,16 @@ These are just some celebrity airport outfits worth noting. What are your best t
 
 ## Related Posts
 
-- [celebrities in suit](https://celebs.allwomenstalk.com/celebs-who-rocked-a-suit-on-the-red-carpet/)
-- [celebrity skirts](https://celebs.allwomenstalk.com/celebrities-wearing-patent-skirts-who-wore-it-best/)
-- [sheer panels dress](https://fashion.allwomenstalk.com/sheer-panel-outfits-that-took-over-the-red-carpet/)
-- [best dressed couple](https://celebs.allwomenstalk.com/best-dressed-couples-at-the-oscars/)
 - [figure skating uniforms](https://fashion.allwomenstalk.com/of-the-most-gorgeous-ice-skating-costumes-of-the-sochi-winter-olympics/)
+- [celebrities in suit](https://celebs.allwomenstalk.com/celebs-who-rocked-a-suit-on-the-red-carpet/)
+- [best dressed couple](https://celebs.allwomenstalk.com/best-dressed-couples-at-the-oscars/)
 - [famous band t shirts](https://celebs.allwomenstalk.com/celebrities-wearing-band-t-shirts-who-wore-it-best/)
+- [sheer panels dress](https://fashion.allwomenstalk.com/sheer-panel-outfits-that-took-over-the-red-carpet/)
 - [who are divas in music](https://music.allwomenstalk.com/best-musical-divas-in-the-last-decade/)
-- [oscar nominations 2014 best dress](https://celebs.allwomenstalk.com/of-the-best-dressed-celebs-at-the-oscars/)
-- [best movie contenders 2014](https://movies.allwomenstalk.com/main-contenders-for-the-oscars/)
 - [michelle obama myers briggs](https://celebs.allwomenstalk.com/of-michelle-obamas-best-looks/)
+- [best movie contenders 2014](https://movies.allwomenstalk.com/main-contenders-for-the-oscars/)
+- [celebrity skirts](https://celebs.allwomenstalk.com/celebrities-wearing-patent-skirts-who-wore-it-best/)
+- [oscar nominations 2014 best dress](https://celebs.allwomenstalk.com/of-the-best-dressed-celebs-at-the-oscars/)
 - [10 Same Celebrity Outfits  Who Wore It Better ..](https://celebs.allwomenstalk.com/same-celebrity-outfits-who-wore-it-better/)
 - [8 Stylish Celebrity Airport Outfits ...](https://celebs.allwomenstalk.com/stylish-celebrity-airport-outfits/)
 

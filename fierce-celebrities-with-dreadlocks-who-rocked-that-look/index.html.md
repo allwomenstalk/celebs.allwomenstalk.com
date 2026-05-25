@@ -56,16 +56,16 @@ It's great to see how certain celebrities in the entertainment industry have acc
 
 ## Related Posts
 
-- [famous actress in bikini](https://celebs.allwomenstalk.com/celebrities-bikini-ready-bodies/)
-- [celebrities with criminal records](https://celebs.allwomenstalk.com/celebrities-with-criminal-records-before-making-it-big/)
-- [actresses of the silver screen](https://movies.allwomenstalk.com/totally-ace-actors-from-scandinavia/)
 - [instagram melinda shankar](https://celebs.allwomenstalk.com/degrassi-celebrities-to-follow-on-instagram/)
-- [90s celebrities](https://celebs.allwomenstalk.com/celebrities-who-were-in-90s-commercials/)
-- [funny impersonations to do](https://celebs.allwomenstalk.com/funniest-celebrity-impersonations-that-will-make-you-roar-with-laughter/)
+- [pale skin women](https://celebs.allwomenstalk.com/beautiful-pale-skinned-celebrities-who-embrace-their-look/)
 - [does zac efron have a sister](https://celebs.allwomenstalk.com/celebrities-with-attractive-siblings/)
+- [90s celebrities](https://celebs.allwomenstalk.com/celebrities-who-were-in-90s-commercials/)
+- [famous actress in bikini](https://celebs.allwomenstalk.com/celebrities-bikini-ready-bodies/)
+- [funny impersonations to do](https://celebs.allwomenstalk.com/funniest-celebrity-impersonations-that-will-make-you-roar-with-laughter/)
+- [celebrities with criminal records](https://celebs.allwomenstalk.com/celebrities-with-criminal-records-before-making-it-big/)
 - [celebs board](https://celebs.allwomenstalk.com/celebrity-pinterest-boards-youll-want-to-follow/)
 - [images of celebrities](https://celebs.allwomenstalk.com/stunning-celebrity-black-white-photos/)
-- [pale skin women](https://celebs.allwomenstalk.com/beautiful-pale-skinned-celebrities-who-embrace-their-look/)
+- [actresses of the silver screen](https://movies.allwomenstalk.com/totally-ace-actors-from-scandinavia/)
 - [7 Funkiest Celebrity Hairstyles ...](https://celebs.allwomenstalk.com/7-funkiest-celebrity-hairstyles/)
 - [8 Celebs That Rock Red Hair ...](https://celebs.allwomenstalk.com/celebs-that-rock-red-hair/)
 

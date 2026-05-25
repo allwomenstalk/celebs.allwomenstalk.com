@@ -26,16 +26,16 @@ Let’s hope that the now rehabbed Charlie helps make things a lot easier back a
 
 ## Related Posts
 
-- [Fat: a Love Story ...](https://health.allwomenstalk.com/fat-a-love-story/)
 - [bangles definition](https://jewelry.allwomenstalk.com/8-statement-bangles/)
-- [cant wait to show you](https://lifestyle.allwomenstalk.com/fall-tv-shows-i-cant-wait-to-see/)
+- [the guilty television show](https://lifestyle.allwomenstalk.com/guilty-tv-pleasures/)
 - [7 Predictions That Might Come True ...](https://lifestyle.allwomenstalk.com/predictions-that-might-come-true/)
+- [Fat: a Love Story ...](https://health.allwomenstalk.com/fat-a-love-story/)
 - [scary things in nature](https://lifestyle.allwomenstalk.com/scariest-natural-phenomena/)
 - [7 Interesting YouTube Channels ...](https://7fun.net/interesting-youtube-channels/)
-- [the guilty television show](https://lifestyle.allwomenstalk.com/guilty-tv-pleasures/)
-- [rare and unusual types of phobias](https://health.allwomenstalk.com/extraordinary-rare-phobias-and-their-meaning/)
+- [cant wait to show you](https://lifestyle.allwomenstalk.com/fall-tv-shows-i-cant-wait-to-see/)
 - [operation chavn de huntar](https://lifestyle.allwomenstalk.com/special-forces-operations/)
 - [weird implants](https://lifestyle.allwomenstalk.com/8-most-bizarre-body-implants/)
+- [rare and unusual types of phobias](https://health.allwomenstalk.com/extraordinary-rare-phobias-and-their-meaning/)
 - [Steady as She Goes ...](https://allwomenstalk.com/steady-as-she-goes-3/)
 - [Oh so Charming ...](https://allwomenstalk.com/oh-so-charming/)
 

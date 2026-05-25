@@ -70,16 +70,16 @@ With so many things that celebrities can inspire us to do, living an active life
 
 ## Related Posts
 
-- [yoga trends on instagram](https://fitness.allwomenstalk.com/instagram-accounts-thatll-make-you-want-to-practice-yoga/)
-- [travel accounts on instagram](https://travel.allwomenstalk.com/travel-instagram-accounts-to-excite-your-wanderlust/)
-- [australia pages on instagram](https://travel.allwomenstalk.com/instagram-accounts-thatll-make-you-wish-you-lived-in-australia/)
 - [genius moving hacks](https://apps.allwomenstalk.com/genius-camera-phone-hacks/)
-- [best vegan instagrams](https://food.allwomenstalk.com/delicious-instagram-vegan-accounts-you-should-be-following/)
-- [healthy food instagram](https://food.allwomenstalk.com/instagram-accounts-for-clean-eating-that-will-inspire-you/)
-- [digital photography school reviews](https://diy.allwomenstalk.com/online-photography-courses-for-happy-snappers/)
 - [cute instagram accounts](https://apps.allwomenstalk.com/absolutely-adorable-instagram-accounts-to-check-out/)
+- [healthy food instagram](https://food.allwomenstalk.com/instagram-accounts-for-clean-eating-that-will-inspire-you/)
+- [australia pages on instagram](https://travel.allwomenstalk.com/instagram-accounts-thatll-make-you-wish-you-lived-in-australia/)
+- [digital photography school reviews](https://diy.allwomenstalk.com/online-photography-courses-for-happy-snappers/)
+- [best vegan instagrams](https://food.allwomenstalk.com/delicious-instagram-vegan-accounts-you-should-be-following/)
 - [best hot twitter accounts](https://celebs.allwomenstalk.com/most-popular-twitter-accounts/)
 - [fashionista on instagram](https://fashion.allwomenstalk.com/instagram-accounts-every-fashionista-should-follow/)
+- [yoga trends on instagram](https://fitness.allwomenstalk.com/instagram-accounts-thatll-make-you-want-to-practice-yoga/)
+- [travel accounts on instagram](https://travel.allwomenstalk.com/travel-instagram-accounts-to-excite-your-wanderlust/)
 - [7 Best Celebrity Blogs ...](https://allwomenstalk.com/7-best-celebrity-blogs/)
 - [7 Great Celebrity Blogs ...](https://allwomenstalk.com/7-great-celebrity-blogs/)
 

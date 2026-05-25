@@ -74,16 +74,16 @@ Will you be attending a show during Demi's world tour?
 
 ## Related Posts
 
-- [Pregnant Kourtney Kardashian Bares It All for Dujo...](https://celebs.allwomenstalk.com/pregnant-kourtney-kardashian-bares-it-all-for-dujour/)
-- [AlexFromTarget Makes His Way to the Ellen DeGenere...](https://teen.allwomenstalk.com/alexfromtarget-makes-his-way-to-the-ellen-degeneres-show/)
-- [You Wont Stop Laughing at This Womans Impressions ...](https://funny.allwomenstalk.com/you-wont-stop-laughing-at-this-womans-impressions-of-celebs-stuck-in-traffic/)
 - [jennifer lawrence cake](https://desserts.allwomenstalk.com/watch-jennifer-lawrence-reacts-to-seeing-the-life-size-katniss-cake/)
-- [Jennifer Lawrences Empowering Response to Her Leak...](https://celebs.allwomenstalk.com/jennifer-lawrences-empowering-response-to-her-leaked-photos/)
-- [victoria secret private jet](https://celebs.allwomenstalk.com/yup-this-is-how-the-victorias-secret-angels-fly-international/)
-- [katy perry glitter](https://celebs.allwomenstalk.com/katy-perrys-glittery-super-bowl-plans-have-got-me-hyped-for-halftime/)
-- [Lifetimes Whitney Houston Biopic Gets an Emotional...](https://movies.allwomenstalk.com/lifetimes-whitney-houston-biopic-gets-an-emotional-first-trailer/)
-- [carrie underwood clothing](https://fashion.allwomenstalk.com/carrie-underwoods-launching-a-fitness-clothing-line-heres-your-first-look/)
+- [AlexFromTarget Makes His Way to the Ellen DeGenere...](https://teen.allwomenstalk.com/alexfromtarget-makes-his-way-to-the-ellen-degeneres-show/)
 - [You Can Now Live in the Breakfast at Tiffanys Town...](https://lifestyle.allwomenstalk.com/you-can-now-live-in-the-breakfast-at-tiffanys-townhouse/)
+- [Pregnant Kourtney Kardashian Bares It All for Dujo...](https://celebs.allwomenstalk.com/pregnant-kourtney-kardashian-bares-it-all-for-dujour/)
+- [carrie underwood clothing](https://fashion.allwomenstalk.com/carrie-underwoods-launching-a-fitness-clothing-line-heres-your-first-look/)
+- [Jennifer Lawrences Empowering Response to Her Leak...](https://celebs.allwomenstalk.com/jennifer-lawrences-empowering-response-to-her-leaked-photos/)
+- [katy perry glitter](https://celebs.allwomenstalk.com/katy-perrys-glittery-super-bowl-plans-have-got-me-hyped-for-halftime/)
+- [victoria secret private jet](https://celebs.allwomenstalk.com/yup-this-is-how-the-victorias-secret-angels-fly-international/)
+- [You Wont Stop Laughing at This Womans Impressions ...](https://funny.allwomenstalk.com/you-wont-stop-laughing-at-this-womans-impressions-of-celebs-stuck-in-traffic/)
+- [Lifetimes Whitney Houston Biopic Gets an Emotional...](https://movies.allwomenstalk.com/lifetimes-whitney-houston-biopic-gets-an-emotional-first-trailer/)
 - [8 Photos of Missy Elliott at Wireless Festival ...](https://celebs.allwomenstalk.com/missy-elliott-at-wireless-festival/)
 - [The Best Dressed Women of 2010 ...](https://celebs.allwomenstalk.com/the-best-dressed-women-of/)
 

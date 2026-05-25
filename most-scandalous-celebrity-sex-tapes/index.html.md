@@ -58,16 +58,16 @@ Top Photo Credit: [neoyoli](https://www.flickr.com/photos/neoyoli/5893181759/)
 
 ## Related Posts
 
-- [celebrity news 2011](https://celebs.allwomenstalk.com/big-celebrity-news-of/)
-- [ray krocs wives](https://celebs.allwomenstalk.com/celebrities-with-addictions/)
-- [Sexiest Men Alive up for Auction ...](https://celebs.allwomenstalk.com/sexiest-men-alive-up-for-auction/)
 - [most popular person](https://celebs.allwomenstalk.com/gorgeous-full-figured-celebrities/)
-- [current events with celebrities](https://celebs.allwomenstalk.com/best-celebrity-gossip-websites/)
-- [sarah jessica parker south oark](https://celebs.allwomenstalk.com/favourite-south-park-celebrity-targets/)
 - [actress like sandra bullock](https://celebs.allwomenstalk.com/and-fabulous-7-female-celebrities-that-look-better-than-ever/)
+- [Sexiest Men Alive up for Auction ...](https://celebs.allwomenstalk.com/sexiest-men-alive-up-for-auction/)
+- [ray krocs wives](https://celebs.allwomenstalk.com/celebrities-with-addictions/)
+- [sarah jessica parker south oark](https://celebs.allwomenstalk.com/favourite-south-park-celebrity-targets/)
 - [8 Celebrities Who Have Aged Beautifully ...](https://celebs.allwomenstalk.com/celebrities-who-have-aged-beautifully/)
-- [highest earning celebrities](https://celebs.allwomenstalk.com/highest-earning-celebrities-of/)
 - [cute guys wearing skirts](https://celebs.allwomenstalk.com/sexiest-celebrity-men-in-skirts/)
+- [celebrity news 2011](https://celebs.allwomenstalk.com/big-celebrity-news-of/)
+- [highest earning celebrities](https://celebs.allwomenstalk.com/highest-earning-celebrities-of/)
+- [current events with celebrities](https://celebs.allwomenstalk.com/best-celebrity-gossip-websites/)
 - [7 Biggest Celebrity Weddings ...](https://wedding.allwomenstalk.com/biggest-celebrity-weddings/)
 - [7 Hottest Nude Movie Scenes ...](https://movies.allwomenstalk.com/hottest-nude-movie-scenes/)
 

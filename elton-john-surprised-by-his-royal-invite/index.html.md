@@ -24,16 +24,16 @@ Though of course, his outburst was short lived.
 
 ## Related Posts
 
-- [Constant Fighting Ended Richie and Jenners Relatio...](https://allwomenstalk.com/constant-fighting-ended-richie-and-jenners-relationship/)
-- [Fuck You Bitch](https://allwomenstalk.com/fuck-you-bitch-2/)
-- [kate michelman](https://allwomenstalk.com/i-really-really-hope-that-kate-michelman-doesnt-run-for-the-senate-in-pennsylvania/)
-- [A Fellow Author Clued Me in That Gawker Was Having...](https://allwomenstalk.com/a-fellow-author-clued-me-in-that-gawker-was-having/)
-- [Lionel Richie Calls Himself the Greatest Porn Star](https://allwomenstalk.com/lionel-richie-calls-himself-the-greatest-porn-star/)
+- [Ashley Judd Now Treads a Little More Carefully](https://celebs.allwomenstalk.com/ashley-judd-rape-culture-apology/)
 - [britney spears sec tape](https://allwomenstalk.com/celebrity-porn-peddler-offers-100-million-for-britney-spears-sex-tape/)
 - [sara evans tattoo](https://allwomenstalk.com/kenny-chesney-denies-he-had-an-affair-with-sara-evans/)
-- [elin nordegren pics](https://allwomenstalk.com/tiger-may-sue-irish-mag-for-elin-nordegren-nude-pics/)
+- [kate michelman](https://allwomenstalk.com/i-really-really-hope-that-kate-michelman-doesnt-run-for-the-senate-in-pennsylvania/)
 - [simon mills journalist](https://allwomenstalk.com/posh-spice-is-no-style-icon/)
-- [Ashley Judd Now Treads a Little More Carefully](https://celebs.allwomenstalk.com/ashley-judd-rape-culture-apology/)
+- [Fuck You Bitch](https://allwomenstalk.com/fuck-you-bitch-2/)
+- [elin nordegren pics](https://allwomenstalk.com/tiger-may-sue-irish-mag-for-elin-nordegren-nude-pics/)
+- [A Fellow Author Clued Me in That Gawker Was Having...](https://allwomenstalk.com/a-fellow-author-clued-me-in-that-gawker-was-having/)
+- [Constant Fighting Ended Richie and Jenners Relatio...](https://allwomenstalk.com/constant-fighting-ended-richie-and-jenners-relationship/)
+- [Lionel Richie Calls Himself the Greatest Porn Star](https://allwomenstalk.com/lionel-richie-calls-himself-the-greatest-porn-star/)
 - [Ed ONeill is Janes Biggest Fan ...](https://celebs.allwomenstalk.com/ed-oneill-is-janes-biggest-fan/)
 - [LeAnn  Eddie Not Allowed to Party....](https://celebs.allwomenstalk.com/leann-eddie-not-allowed-to-party/)
 

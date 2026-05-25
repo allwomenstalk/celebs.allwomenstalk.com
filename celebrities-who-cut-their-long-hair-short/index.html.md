@@ -56,16 +56,16 @@ There you have it! These celebrities all had beautiful long locks, and at one po
 
 ## Related Posts
 
-- [disney stars grown up](https://celebs.allwomenstalk.com/child-celebs-who-grew-up-to-be-great-role-models/)
-- [most successful child actor](https://celebs.allwomenstalk.com/most-successful-child-stars-that-we-cant-get-enough-of/)
-- [environmentally friendly celebrities](https://celebs.allwomenstalk.com/celebrities-and-the-environmental-causes-they-support/)
-- [people who died too soon](https://celebs.allwomenstalk.com/talented-people-who-died-too-soon-in-the-last-decade/)
 - [always trending](https://celebs.allwomenstalk.com/popular-celebrities-who-are-always-trending/)
+- [bikram yoga celebrities](https://celebs.allwomenstalk.com/celebrities-who-love-yoga/)
 - [jesse johnson shirtless](https://celebs.allwomenstalk.com/hottest-sons-of-celebrities-that-you-need-to-know-about/)
 - [beyonce reaction](https://celebs.allwomenstalk.com/celeb-reactions-to-beyonces-new-album/)
-- [neon blue hair](https://celebs.allwomenstalk.com/fabulous-celebrities-with-neon-colored-hair/)
+- [people who died too soon](https://celebs.allwomenstalk.com/talented-people-who-died-too-soon-in-the-last-decade/)
+- [disney stars grown up](https://celebs.allwomenstalk.com/child-celebs-who-grew-up-to-be-great-role-models/)
 - [rainforest cate](https://celebs.allwomenstalk.com/celebrities-who-support-the-rainforest/)
-- [bikram yoga celebrities](https://celebs.allwomenstalk.com/celebrities-who-love-yoga/)
+- [most successful child actor](https://celebs.allwomenstalk.com/most-successful-child-stars-that-we-cant-get-enough-of/)
+- [neon blue hair](https://celebs.allwomenstalk.com/fabulous-celebrities-with-neon-colored-hair/)
+- [environmentally friendly celebrities](https://celebs.allwomenstalk.com/celebrities-and-the-environmental-causes-they-support/)
 - [7 Funkiest Celebrity Hairstyles ...](https://celebs.allwomenstalk.com/7-funkiest-celebrity-hairstyles/)
 - [7 Celebrities Proving That Bangs Are Back ...](https://celebs.allwomenstalk.com/celebrities-proving-that-bangs-are-back/)
 

@@ -56,16 +56,16 @@ Who’s your favorite real-life will they/won’t they celebrity couple? Mine’
 
 ## Related Posts
 
-- [camilla luddington twitter](https://celebs.allwomenstalk.com/greys-anatomy-celebrities-who-are-social-on-twitter/)
-- [male actors 60 years old](https://celebs.allwomenstalk.com/celebrities-who-only-get-better-with-age/)
-- [christian bale and rowan atkinson](https://movies.allwomenstalk.com/potential-actors-for-james-bonds-role-that-will-probably-never-happen/)
-- [jane kaczmarek husband](https://celebs.allwomenstalk.com/celebrity-mothers-who-had-their-first-baby-after-40/)
-- [celebs on tour](https://celebs.allwomenstalk.com/celebs-who-have-shown-their-support-at-mileys-tour/)
-- [ezra fitz brother](https://celebs.allwomenstalk.com/abc-celebrities-who-are-totally-crush-worthy/)
-- [harry styles vines](https://funny.allwomenstalk.com/silliest-celebrity-vines-you-have-to-see-at-least-once/)
-- [ashton klein](https://celebs.allwomenstalk.com/celebrities-who-used-to-model-before-getting-their-big-break/)
 - [comedian with red hat](https://celebs.allwomenstalk.com/stars-who-died-whilst-doing-what-they-loved/)
+- [christian bale and rowan atkinson](https://movies.allwomenstalk.com/potential-actors-for-james-bonds-role-that-will-probably-never-happen/)
+- [male actors 60 years old](https://celebs.allwomenstalk.com/celebrities-who-only-get-better-with-age/)
+- [camilla luddington twitter](https://celebs.allwomenstalk.com/greys-anatomy-celebrities-who-are-social-on-twitter/)
+- [ezra fitz brother](https://celebs.allwomenstalk.com/abc-celebrities-who-are-totally-crush-worthy/)
+- [celebs on tour](https://celebs.allwomenstalk.com/celebs-who-have-shown-their-support-at-mileys-tour/)
+- [harry styles vines](https://funny.allwomenstalk.com/silliest-celebrity-vines-you-have-to-see-at-least-once/)
+- [jane kaczmarek husband](https://celebs.allwomenstalk.com/celebrity-mothers-who-had-their-first-baby-after-40/)
 - [blake lively sobriety](https://celebs.allwomenstalk.com/celebs-who-live-a-sober-lifestyle/)
+- [ashton klein](https://celebs.allwomenstalk.com/celebrities-who-used-to-model-before-getting-their-big-break/)
 - [7 Biggest Celebrity Weddings ...](https://wedding.allwomenstalk.com/biggest-celebrity-weddings/)
 - [7 Recent Celebrity Breakups ...](https://celebs.allwomenstalk.com/recent-celebrity-breakups/)
 

@@ -56,16 +56,16 @@ There are so many leading ladies taking part in this trend that it’s hard to p
 
 ## Related Posts
 
-- [michelle obama myers briggs](https://celebs.allwomenstalk.com/of-michelle-obamas-best-looks/)
-- [famous band t shirts](https://celebs.allwomenstalk.com/celebrities-wearing-band-t-shirts-who-wore-it-best/)
-- [who are divas in music](https://music.allwomenstalk.com/best-musical-divas-in-the-last-decade/)
 - [best dressed couple](https://celebs.allwomenstalk.com/best-dressed-couples-at-the-oscars/)
-- [sheer panels dress](https://fashion.allwomenstalk.com/sheer-panel-outfits-that-took-over-the-red-carpet/)
-- [figure skating uniforms](https://fashion.allwomenstalk.com/of-the-most-gorgeous-ice-skating-costumes-of-the-sochi-winter-olympics/)
-- [best movie contenders 2014](https://movies.allwomenstalk.com/main-contenders-for-the-oscars/)
 - [celebrity skirts](https://celebs.allwomenstalk.com/celebrities-wearing-patent-skirts-who-wore-it-best/)
-- [singers wearing red](https://makeup.allwomenstalk.com/celebrities-wearing-a-red-lip-who-wore-it-best/)
+- [sheer panels dress](https://fashion.allwomenstalk.com/sheer-panel-outfits-that-took-over-the-red-carpet/)
+- [who are divas in music](https://music.allwomenstalk.com/best-musical-divas-in-the-last-decade/)
+- [figure skating uniforms](https://fashion.allwomenstalk.com/of-the-most-gorgeous-ice-skating-costumes-of-the-sochi-winter-olympics/)
+- [famous band t shirts](https://celebs.allwomenstalk.com/celebrities-wearing-band-t-shirts-who-wore-it-best/)
+- [michelle obama myers briggs](https://celebs.allwomenstalk.com/of-michelle-obamas-best-looks/)
 - [oscar nominations 2014 best dress](https://celebs.allwomenstalk.com/of-the-best-dressed-celebs-at-the-oscars/)
+- [best movie contenders 2014](https://movies.allwomenstalk.com/main-contenders-for-the-oscars/)
+- [singers wearing red](https://makeup.allwomenstalk.com/celebrities-wearing-a-red-lip-who-wore-it-best/)
 - [8 Iconic Red Carpet Celebrity Looks ...](https://celebs.allwomenstalk.com/iconic-red-carpet-celebrity-looks/)
 - [17 Worst Dressed Celebrities ...](https://allwomenstalk.com/17-worst-dressed-celebrities/)
 

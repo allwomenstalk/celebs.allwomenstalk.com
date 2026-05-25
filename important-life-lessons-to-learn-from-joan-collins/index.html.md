@@ -42,16 +42,16 @@ Joan is a marvellous role model for women of all ages. She just doesn't let anyt
 
 ## Related Posts
 
+- [ben franklin almanac quotes](https://lifestyle.allwomenstalk.com/lessons-from-benjamin-franklin-that-are-still-relevant-today/)
+- [good things to be addicted to](https://lifestyle.allwomenstalk.com/everyday-things-people-become-addicted-to-easily/)
 - [moms teachus](https://parenting.allwomenstalk.com/valuable-life-lessons-my-mother-taught-me/)
-- [people with glasses on](https://lifestyle.allwomenstalk.com/things-only-people-with-glasses-can-relate-to/)
+- [principles of kwanzaa](https://lifestyle.allwomenstalk.com/essential-principles-of-kwanzaa-that-you-should-know-about/)
 - [you dont have to be ashamed](https://lifestyle.allwomenstalk.com/things-you-should-not-be-ashamed-of/)
+- [people with glasses on](https://lifestyle.allwomenstalk.com/things-only-people-with-glasses-can-relate-to/)
+- [i have the following realities in life](https://lifestyle.allwomenstalk.com/harsh-realities-of-life-that-you-have-to-come-to-terms-with/)
 - [what would i tell my 15 years old self](https://teen.allwomenstalk.com/things-i-wish-i-could-tell-my-15-year-old-self/)
 - [how to join the real world](https://lifestyle.allwomenstalk.com/important-things-that-you-only-learn-in-the-real-world/)
-- [principles of kwanzaa](https://lifestyle.allwomenstalk.com/essential-principles-of-kwanzaa-that-you-should-know-about/)
-- [i have the following realities in life](https://lifestyle.allwomenstalk.com/harsh-realities-of-life-that-you-have-to-come-to-terms-with/)
-- [good things to be addicted to](https://lifestyle.allwomenstalk.com/everyday-things-people-become-addicted-to-easily/)
 - [kelly and jane mcgonigal](https://lifestyle.allwomenstalk.com/ted-talks-you-should-definitely-check-out/)
-- [ben franklin almanac quotes](https://lifestyle.allwomenstalk.com/lessons-from-benjamin-franklin-that-are-still-relevant-today/)
 - [5 Important Life Lessons to Think about...](https://allwomenstalk.com/5-important-life-lessons-to-think-about/)
 - [7 Things to Learn from Divorce ...](https://allwomenstalk.com/7-things-to-learn-from-divorce/)
 

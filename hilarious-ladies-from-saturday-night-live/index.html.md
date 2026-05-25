@@ -80,16 +80,16 @@ There have been so many hilarious, brilliant, and strong women on SNL. I'd end u
 
 ## Related Posts
 
-- [funniest girl in the world](https://movies.allwomenstalk.com/funniest-women-on-tv-who-never-get-old/)
-- [queens beyond beauty](https://beauty.allwomenstalk.com/women-who-went-beyond-being-beauty-queens/)
-- [best anime for teen girls](https://movies.allwomenstalk.com/amazing-anime-shows-teenage-girls-will-love/)
-- [protective animal mothers](https://parenting.allwomenstalk.com/truly-admirable-mothers-in-the-animal-kingdom/)
-- [inspirational movies for women](https://movies.allwomenstalk.com/biolographical-movies-about-inspiring-women/)
 - [actresses american](https://movies.allwomenstalk.com/actresses-who-inspire-us-to-be-different/)
-- [love majewski](https://movies.allwomenstalk.com/outrageous-women-from-vh1s-mob-wives/)
-- [movie character names female](https://movies.allwomenstalk.com/most-amazing-female-movie-characters/)
 - [female 80s rock stars](https://music.allwomenstalk.com/amazing-rocker-chicks-from-the-80s/)
+- [inspirational movies for women](https://movies.allwomenstalk.com/biolographical-movies-about-inspiring-women/)
+- [funniest girl in the world](https://movies.allwomenstalk.com/funniest-women-on-tv-who-never-get-old/)
+- [movie character names female](https://movies.allwomenstalk.com/most-amazing-female-movie-characters/)
+- [best anime for teen girls](https://movies.allwomenstalk.com/amazing-anime-shows-teenage-girls-will-love/)
+- [love majewski](https://movies.allwomenstalk.com/outrageous-women-from-vh1s-mob-wives/)
+- [protective animal mothers](https://parenting.allwomenstalk.com/truly-admirable-mothers-in-the-animal-kingdom/)
 - [iconic pin up girl](https://celebs.allwomenstalk.com/classic-hollywood-pin-up-girls-that-we-adore/)
+- [queens beyond beauty](https://beauty.allwomenstalk.com/women-who-went-beyond-being-beauty-queens/)
 - [13 Sexiest Funny Stars ...](https://allwomenstalk.com/13-sexiest-funny-stars/)
 - [12 Hot Celebrity Sisters ...](https://allwomenstalk.com/12-hot-celebrity-sisters/)
 

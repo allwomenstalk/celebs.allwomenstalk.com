@@ -68,16 +68,16 @@ Well, there you have it. These are just nine of many amazing Latina celebrities 
 
 ## Related Posts
 
-- [erika linder age](https://fashion.allwomenstalk.com/models-who-are-redefining-the-fashion-industry/)
-- [victoria justice](https://celebs.allwomenstalk.com/steal-the-style-of-victoria-justice/)
-- [tattoos that look like bracelets](https://beauty.allwomenstalk.com/fashion-tattoos-even-vogue-editors-would-love/)
-- [fashion designers in africa](https://fashion.allwomenstalk.com/african-fashion-designers-making-waves/)
-- [dstyle models](https://streetstyle.allwomenstalk.com/these-models-have-the-best-street-style/)
-- [fashion inspos](https://streetstyle.allwomenstalk.com/kate-middletons-street-style-inspos-you-can-copy/)
-- [celebs in leggings](https://celebs.allwomenstalk.com/pins-on-parade-celebs-giving-lessons-in-leggings/)
-- [zoe kravitz y penn badgley](https://celebs.allwomenstalk.com/zoe-kravitz-street-style-petite-girls-will-love/)
 - [paris stylo smoky icon](https://fashion.allwomenstalk.com/which-of-these-fashion-icons-are-you/)
+- [celebs in leggings](https://celebs.allwomenstalk.com/pins-on-parade-celebs-giving-lessons-in-leggings/)
+- [erika linder age](https://fashion.allwomenstalk.com/models-who-are-redefining-the-fashion-industry/)
+- [fashion inspos](https://streetstyle.allwomenstalk.com/kate-middletons-street-style-inspos-you-can-copy/)
+- [dstyle models](https://streetstyle.allwomenstalk.com/these-models-have-the-best-street-style/)
+- [zoe kravitz y penn badgley](https://celebs.allwomenstalk.com/zoe-kravitz-street-style-petite-girls-will-love/)
 - [mindy kaling fashion](https://celebs.allwomenstalk.com/get-a-little-fashion-inspo-from-mindy-kalings-lookbook/)
+- [fashion designers in africa](https://fashion.allwomenstalk.com/african-fashion-designers-making-waves/)
+- [tattoos that look like bracelets](https://beauty.allwomenstalk.com/fashion-tattoos-even-vogue-editors-would-love/)
+- [victoria justice](https://celebs.allwomenstalk.com/steal-the-style-of-victoria-justice/)
 - [9 Incredibly Trendy Fashion Movies Every Stylish G...](https://movies.allwomenstalk.com/incredibly-trendy-fashion-movies-every-stylish-girl-should-see/)
 - [10 Gorgeous Full-Figured Celebrities ...](https://celebs.allwomenstalk.com/gorgeous-full-figured-celebrities/)
 

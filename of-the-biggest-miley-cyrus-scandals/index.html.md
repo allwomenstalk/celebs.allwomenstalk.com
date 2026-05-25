@@ -44,16 +44,16 @@ Admittedly, some of these are a bit heinous. However, I would wager that many gi
 
 ## Related Posts
 
-- [why should celebrities be role models](https://celebs.allwomenstalk.com/reasons-why-some-celebrities-are-bad-role-models/)
-- [fit blonde actresses](https://celebs.allwomenstalk.com/hottest-blonde-celebrities-from-yesterday-and-today/)
 - [all blonde dreads](https://celebs.allwomenstalk.com/fierce-celebrities-with-dreadlocks-who-rocked-that-look/)
-- [celebrities with criminal records](https://celebs.allwomenstalk.com/celebrities-with-criminal-records-before-making-it-big/)
+- [why should celebrities be role models](https://celebs.allwomenstalk.com/reasons-why-some-celebrities-are-bad-role-models/)
 - [pale skin women](https://celebs.allwomenstalk.com/beautiful-pale-skinned-celebrities-who-embrace-their-look/)
-- [fit celeb](https://celebs.allwomenstalk.com/fit-celebrities-wholl-inspire-you-this-summer/)
-- [hollywood homewreckers](https://celebs.allwomenstalk.com/most-notorious-home-wreckers-in-hollywood/)
 - [images of celebrities](https://celebs.allwomenstalk.com/stunning-celebrity-black-white-photos/)
 - [funny impersonations to do](https://celebs.allwomenstalk.com/funniest-celebrity-impersonations-that-will-make-you-roar-with-laughter/)
+- [fit blonde actresses](https://celebs.allwomenstalk.com/hottest-blonde-celebrities-from-yesterday-and-today/)
 - [actresses of the silver screen](https://movies.allwomenstalk.com/totally-ace-actors-from-scandinavia/)
+- [celebrities with criminal records](https://celebs.allwomenstalk.com/celebrities-with-criminal-records-before-making-it-big/)
+- [hollywood homewreckers](https://celebs.allwomenstalk.com/most-notorious-home-wreckers-in-hollywood/)
+- [fit celeb](https://celebs.allwomenstalk.com/fit-celebrities-wholl-inspire-you-this-summer/)
 - [7 Biggest Celebrity Weddings ...](https://wedding.allwomenstalk.com/biggest-celebrity-weddings/)
 - [8 Photos of Miley Makes an Appearance ...](https://celebs.allwomenstalk.com/miley-makes-an-appearance/)
 

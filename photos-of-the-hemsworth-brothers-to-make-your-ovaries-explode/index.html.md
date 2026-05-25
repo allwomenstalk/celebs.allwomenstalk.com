@@ -204,16 +204,16 @@ Via [amazon.com](http://www.amazon.com?ref=allwomenstalk.com)
 
 ## Related Posts
 
-- [man in tight leather pants](https://celebs.allwomenstalk.com/our-favorite-male-celebrities-looking-good-in-leather/)
-- [richard madden hairstyle](https://celebs.allwomenstalk.com/male-actors-to-swoon-over-this-year/)
-- [celebrities with red lipstick](https://celebs.allwomenstalk.com/these-celebs-prove-you-too-can-rock-a-red-lip/)
-- [overrated celebs](https://celebs.allwomenstalk.com/fame-is-overrated-heres-why-you-dont-want-to-be-a-celebrity/)
-- [loved and hated](https://celebs.allwomenstalk.com/celebrities-we-have-loved-and-hated-at-one-time/)
-- [why does seal have facial scars](https://celebs.allwomenstalk.com/these-lesser-known-stories-behind-male-celebrities-scars-will-blow-your-mind/)
-- [celebrities giving back](https://celebs.allwomenstalk.com/celebrity-do-gooders-who-are-always-giving-back/)
 - [funny celebrity outfits](https://celebs.allwomenstalk.com/bizarre-celebrity-outfits-that-shouldve-never-seen-the-light-of-day/)
+- [man in tight leather pants](https://celebs.allwomenstalk.com/our-favorite-male-celebrities-looking-good-in-leather/)
+- [celebrities giving back](https://celebs.allwomenstalk.com/celebrity-do-gooders-who-are-always-giving-back/)
 - [best celebrity tweets](https://funny.allwomenstalk.com/funniest-celebrities-read-mean-tweets-you-havent-seen-yet/)
+- [why does seal have facial scars](https://celebs.allwomenstalk.com/these-lesser-known-stories-behind-male-celebrities-scars-will-blow-your-mind/)
+- [loved and hated](https://celebs.allwomenstalk.com/celebrities-we-have-loved-and-hated-at-one-time/)
+- [overrated celebs](https://celebs.allwomenstalk.com/fame-is-overrated-heres-why-you-dont-want-to-be-a-celebrity/)
+- [richard madden hairstyle](https://celebs.allwomenstalk.com/male-actors-to-swoon-over-this-year/)
 - [celebrities who can sing](https://celebs.allwomenstalk.com/they-can-do-it-all-celebs-you-never-knew-could-sing/)
+- [celebrities with red lipstick](https://celebs.allwomenstalk.com/these-celebs-prove-you-too-can-rock-a-red-lip/)
 - [9 Adorable and Incredibly Gorgeous Alpha Males in ...](https://celebs.allwomenstalk.com/adorable-and-incredibly-gorgeous-alpha-males-in-hollywood/)
 - [5 Latest Buzz about Our Favorite Hollywood Men ...](https://allwomenstalk.com/5-latest-buzz-about-our-favorite-hollywood-men/)
 

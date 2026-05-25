@@ -56,16 +56,16 @@ To see more of Lenk's wicked funny LENKLEWKS, follow him on Instagram at @tommyl
 
 ## Related Posts
 
-- [teenage celeberties](https://allwomenstalk.com/15-hottest-teen-celebrities/)
-- [Lets Stop Bashing and Recognise the Things the Kar...](https://celebs.allwomenstalk.com/lets-stop-bashing-and-recognise-the-things-the-kardashian-jenner-clan-have-achieved/)
-- [Why Are There No Huge Celebrities Anymore](https://celebs.allwomenstalk.com/why-are-there-no-huge-celebrities-anymore/)
-- [Celebrities Top Choice in 2019: Bum Lift ...](https://fitene.com/celebrities-top-choice-in-bum-lift/)
 - [7 Hottest Hunks on the US Olympic Team  ...](https://celebs.allwomenstalk.com/hottest-athletes-on-the-us-winter-olympics-team/)
-- [celebs who have cheated](https://celebs.allwomenstalk.com/celebs-who-have-cheated/)
-- [10 LGBTQ Icons Everyone Should Be Aware of ...](https://celebs.allwomenstalk.com/lgbt-icons-everyone-should-be-aware-of/)
 - [You Will Not Believe Which Celebs Turn out to Be O...](https://celebs.allwomenstalk.com/you-will-not-believe-which-celebs-turn-out-to-be-olympians/)
+- [teenage celeberties](https://allwomenstalk.com/15-hottest-teen-celebrities/)
 - [These Are the Amazing People Who Got Presidential ...](https://celebs.allwomenstalk.com/these-are-the-amazing-people-who-got-presidential-medal-of-freedom-this-year/)
+- [Lets Stop Bashing and Recognise the Things the Kar...](https://celebs.allwomenstalk.com/lets-stop-bashing-and-recognise-the-things-the-kardashian-jenner-clan-have-achieved/)
+- [Celebrities Top Choice in 2019: Bum Lift ...](https://fitene.com/celebrities-top-choice-in-bum-lift/)
 - [My Friends with Benefits Experience Part 1: the Ac...](https://love.allwomenstalk.com/friends-with-benefits-experience/)
+- [10 LGBTQ Icons Everyone Should Be Aware of ...](https://celebs.allwomenstalk.com/lgbt-icons-everyone-should-be-aware-of/)
+- [Why Are There No Huge Celebrities Anymore](https://celebs.allwomenstalk.com/why-are-there-no-huge-celebrities-anymore/)
+- [celebs who have cheated](https://celebs.allwomenstalk.com/celebs-who-have-cheated/)
 - [Smile like a Celebrity](https://allwomenstalk.com/smile-like-a-celebrity/)
 - [The Biggest Names Making Caricatures of Themselves...](https://allwomenstalk.com/the-biggest-names-making-caricatures-of-themselves/)
 

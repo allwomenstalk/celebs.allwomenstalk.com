@@ -80,16 +80,16 @@ What do you adore about Chip & Joanna? Did I leave something off my list?
 
 ## Related Posts
 
-- [diary of a genius](https://inspiration.allwomenstalk.com/why-bridget-jones-is-a-genius-for-keeping-a-diary/)
-- [how many people watch the pll](https://movies.allwomenstalk.com/this-is-why-young-women-will-love-to-watch-pretty-little-liars/)
+- [girls who lift](https://fitness.allwomenstalk.com/why-girls-who-lift-are-super-sexy/)
+- [i love jamie fraser](https://movies.allwomenstalk.com/why-outlanders-jamie-fraser-is-the-perfect-fictional-boyfriend/)
 - [friends that are sisters](https://lifestyle.allwomenstalk.com/reasons-why-sisters-are-the-best-friends/)
 - [i wish i was curvy](https://lifestyle.allwomenstalk.com/heres-why-its-great-to-be-a-curvy-girl/)
-- [i love jamie fraser](https://movies.allwomenstalk.com/why-outlanders-jamie-fraser-is-the-perfect-fictional-boyfriend/)
-- [online watch movie pk](https://movies.allwomenstalk.com/reasons-to-watch-bollywood-movie-pk/)
 - [always saying i love you](https://love.allwomenstalk.com/phrases-that-are-more-meaningful-than-saying-i-love-you/)
+- [how many people watch the pll](https://movies.allwomenstalk.com/this-is-why-young-women-will-love-to-watch-pretty-little-liars/)
+- [online watch movie pk](https://movies.allwomenstalk.com/reasons-to-watch-bollywood-movie-pk/)
+- [diary of a genius](https://inspiration.allwomenstalk.com/why-bridget-jones-is-a-genius-for-keeping-a-diary/)
 - [vikings worth watching](https://movies.allwomenstalk.com/reasons-to-watch-vikings-uncut/)
 - [90s love meaning](https://lifestyle.allwomenstalk.com/reasons-to-love-the-90s/)
-- [girls who lift](https://fitness.allwomenstalk.com/why-girls-who-lift-are-super-sexy/)
 - [Is This Why They Are Planning a Wedding](https://allwomenstalk.com/is-this-why-they-are-planning-a-wedding/)
 - [Tim McGraw and Faith Hill - Greatest Celebrity Lov...](https://allwomenstalk.com/tim-mcgraw-and-faith-hill-greatest-celebrity-love-story/)
 

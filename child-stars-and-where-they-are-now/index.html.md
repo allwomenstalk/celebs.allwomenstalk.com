@@ -56,16 +56,16 @@ It’s great to hear that these former child stars are all grown up and doing wh
 
 ## Related Posts
 
+- [celebrities giving back to the community](https://celebs.allwomenstalk.com/wonderful-celebrities-that-help-the-community/)
+- [cute famous couples](https://celebs.allwomenstalk.com/adorable-celebrity-couples-we-wish-were-more-public/)
 - [famous people who are inspiring](https://celebs.allwomenstalk.com/inspiring-celebrities-that-i-look-up-to/)
-- [his three daughters cast](https://celebs.allwomenstalk.com/celebrities-with-more-than-3-children/)
+- [nde celebrities](https://celebs.allwomenstalk.com/celebrities-who-have-had-near-death-experiences/)
 - [mean girls anniversary](https://celebs.allwomenstalk.com/celebs-who-celebrated-mean-girls-10-year-anniversary/)
 - [celebrities twitter accounts](https://celebs.allwomenstalk.com/hilarious-celebrity-twitter-accounts-to-follow/)
-- [underrated.lee](https://fitness.allwomenstalk.com/amazing-sports-stars-who-make-their-sport-an-art/)
-- [cute famous couples](https://celebs.allwomenstalk.com/adorable-celebrity-couples-we-wish-were-more-public/)
-- [danny zugelder](https://celebs.allwomenstalk.com/female-celebrities-who-have-been-married-more-than-once/)
-- [celebrities giving back to the community](https://celebs.allwomenstalk.com/wonderful-celebrities-that-help-the-community/)
-- [nde celebrities](https://celebs.allwomenstalk.com/celebrities-who-have-had-near-death-experiences/)
 - [whos a in pretty little liars season 1](https://celebs.allwomenstalk.com/pretty-little-liars-cast-members-who-also-dabble-in-music/)
+- [underrated.lee](https://fitness.allwomenstalk.com/amazing-sports-stars-who-make-their-sport-an-art/)
+- [his three daughters cast](https://celebs.allwomenstalk.com/celebrities-with-more-than-3-children/)
+- [danny zugelder](https://celebs.allwomenstalk.com/female-celebrities-who-have-been-married-more-than-once/)
 - [5 Posts of Celebrity Kids out and about ...](https://allwomenstalk.com/5-posts-of-celebrity-kids-out-and-about/)
 - [5 Latest News about Our Favorite Young Stars ...](https://allwomenstalk.com/5-latest-news-about-our-favorite-young-stars/)
 

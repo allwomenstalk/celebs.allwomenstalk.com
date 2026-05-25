@@ -56,16 +56,16 @@ These are just a few of the WAGS at the World Cup who will capture the eye of ph
 
 ## Related Posts
 
-- [renfaire characters](https://funny.allwomenstalk.com/interesting-people-youll-see-at-a-renaissance-fair/)
-- [easiest directors to work with](https://movies.allwomenstalk.com/of-the-worst-directors-to-work-with/)
-- [jonah hill jimmy kimmel](https://funny.allwomenstalk.com/hilarious-jonah-hill-interviews-thatll-keep-you-laughing/)
-- [unexpected nudity in movies](https://celebs.allwomenstalk.com/cases-of-embarrassing-accidental-nudity-caught-on-camera/)
-- [career in dancing](https://lifestyle.allwomenstalk.com/highs-and-lows-of-a-career-in-dancing/)
 - [love jade teen](https://lifestyle.allwomenstalk.com/mysterious-creatures-that-only-exist-in-urban-legends/)
+- [career in dancing](https://lifestyle.allwomenstalk.com/highs-and-lows-of-a-career-in-dancing/)
 - [disney voice over](https://movies.allwomenstalk.com/best-disney-voice-over-performances/)
 - [fictional businesses](https://money.allwomenstalk.com/fictional-companies-we-wish-were-real/)
-- [down east music festival](https://movies.allwomenstalk.com/things-we-learned-from-historys-down-east-dickering/)
+- [unexpected nudity in movies](https://celebs.allwomenstalk.com/cases-of-embarrassing-accidental-nudity-caught-on-camera/)
 - [anime for all ages](https://movies.allwomenstalk.com/anime-shows-to-enjoy-at-any-age/)
+- [easiest directors to work with](https://movies.allwomenstalk.com/of-the-worst-directors-to-work-with/)
+- [renfaire characters](https://funny.allwomenstalk.com/interesting-people-youll-see-at-a-renaissance-fair/)
+- [down east music festival](https://movies.allwomenstalk.com/things-we-learned-from-historys-down-east-dickering/)
+- [jonah hill jimmy kimmel](https://funny.allwomenstalk.com/hilarious-jonah-hill-interviews-thatll-keep-you-laughing/)
 - [8 World Famous Sports Teams ...](https://celebs.allwomenstalk.com/8-world-famous-sports-teams/)
 - [7 World Famous Sporting Trophies ...](https://lifestyle.allwomenstalk.com/world-famous-sporting-trophies/)
 

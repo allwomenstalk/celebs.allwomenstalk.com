@@ -42,16 +42,16 @@ J.K. Rowling is an incredible writer and woman. Her life has been full of ups an
 
 ## Related Posts
 
-- [facts about the earth](https://travel.allwomenstalk.com/geographical-facts-about-planet-earth/)
 - [alexis bledel dating history](https://celebs.allwomenstalk.com/interesting-fun-facts-about-alexis-bledel-that-you-will-love/)
-- [fun facts about coconuts](https://food.allwomenstalk.com/fabulous-facts-about-coconuts-for-coconut-lovers/)
 - [disney world behind the scenes secrets](https://travel.allwomenstalk.com/behind-the-scenes-things-you-didnt-know-about-disney-world/)
-- [holden caul](https://books.allwomenstalk.com/fun-facts-about-the-catcher-in-the-rye/)
-- [facts about the tissue](https://health.allwomenstalk.com/interesting-facts-about-connective-tissue/)
-- [what are the basic rules of rummy](https://lifestyle.allwomenstalk.com/crazy-rummy-rules-that-you-need-to-know/)
 - [fun facts about the olympics](https://lifestyle.allwomenstalk.com/fun-facts-about-the-olympics-that-may-surprise-you/)
-- [facts about extroverts](https://lifestyle.allwomenstalk.com/extremely-important-facts-about-extroverts/)
+- [what are the basic rules of rummy](https://lifestyle.allwomenstalk.com/crazy-rummy-rules-that-you-need-to-know/)
 - [cute facts about elephants](https://lifestyle.allwomenstalk.com/magnificent-facts-about-elephants-that-may-be-new-to-you/)
+- [facts about the earth](https://travel.allwomenstalk.com/geographical-facts-about-planet-earth/)
+- [holden caul](https://books.allwomenstalk.com/fun-facts-about-the-catcher-in-the-rye/)
+- [facts about extroverts](https://lifestyle.allwomenstalk.com/extremely-important-facts-about-extroverts/)
+- [fun facts about coconuts](https://food.allwomenstalk.com/fabulous-facts-about-coconuts-for-coconut-lovers/)
+- [facts about the tissue](https://health.allwomenstalk.com/interesting-facts-about-connective-tissue/)
 - [10 Things about Angelina Jolie You Did Not Know .....](https://allwomenstalk.com/ten-things-about-angelina-jolie-you-did-not-know/)
 - [10 Reasons to Love Kate Winslet ...](https://allwomenstalk.com/10-reasons-to-love-kate-winslet/)
 

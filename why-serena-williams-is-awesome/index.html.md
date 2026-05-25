@@ -72,16 +72,16 @@ p.s. If you want a little more info about this magnificent athlete and amazing w
 
 ## Related Posts
 
-- [mary lou retton plastic surgery](https://fitness.allwomenstalk.com/female-athletes-who-are-forever-our-she-roes/)
+- [big sister and little sister simpsons](https://movies.allwomenstalk.com/fictional-sisters-you-wish-were-your-sibling/)
 - [becoming a femme fatale movie](https://movies.allwomenstalk.com/which-of-these-movie-femme-fatales-do-you-want-to-be/)
 - [channel for girls](https://lifestyle.allwomenstalk.com/most-informative-and-entertaining-youtube-channels-for-the-curious-mind/)
-- [big sister and little sister simpsons](https://movies.allwomenstalk.com/fictional-sisters-you-wish-were-your-sibling/)
-- [role models to write about](https://inspiration.allwomenstalk.com/are-you-an-aspiring-writer-these-women-should-be-your-role-models/)
+- [mary lou retton plastic surgery](https://fitness.allwomenstalk.com/female-athletes-who-are-forever-our-she-roes/)
 - [little girl movie characters](https://movies.allwomenstalk.com/which-of-these-girl-power-movie-characters-is-you/)
-- [best skywalks in the world](https://travel.allwomenstalk.com/incredible-skywalks-that-will-take-you-to-the-edge/)
 - [is jack sparrow an anti hero](https://movies.allwomenstalk.com/female-anti-heroes-we-just-have-to-love/)
-- [dorkiest things](https://inspiration.allwomenstalk.com/nerdy-things-that-are-now-incredibly-attractive/)
+- [role models to write about](https://inspiration.allwomenstalk.com/are-you-an-aspiring-writer-these-women-should-be-your-role-models/)
 - [body goals for ladies](https://inspiration.allwomenstalk.com/goals-every-woman-should-set-for-herself/)
+- [best skywalks in the world](https://travel.allwomenstalk.com/incredible-skywalks-that-will-take-you-to-the-edge/)
+- [dorkiest things](https://inspiration.allwomenstalk.com/nerdy-things-that-are-now-incredibly-attractive/)
 - [7 Reasons Why I Love Sandra Bullock ...](https://allwomenstalk.com/7-reasons-why-i-love-sandra-bullock/)
 - [7 Reasons Why Miley Cyrus is Not a Good Role Model...](https://allwomenstalk.com/7-reasons-why-miley-cyrus-is-not-a-good-role-model/)
 

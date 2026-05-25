@@ -56,16 +56,16 @@ Which of these celebrities were you least expecting to have a past in beauty pag
 
 ## Related Posts
 
-- [celebrities](https://celebs.allwomenstalk.com/be-inspired-by-celebrities-who-have-branched-out-to-try-new-things/)
 - [most awkward interviews](https://celebs.allwomenstalk.com/youll-cringe-at-these-unbelievably-awkward-celeb-interviews/)
-- [harry potter cast oliver wood](https://celebs.allwomenstalk.com/where-the-supporting-harry-potter-cast-is-now/)
-- [20 under 20](https://teen.allwomenstalk.com/most-influential-people-under-20/)
 - [pictures of hollywood actors](https://movies.allwomenstalk.com/hottest-hollywood-actors-of-all-time/)
-- [hot dubai prince](https://love.allwomenstalk.com/hot-princes-who-are-still-eligible/)
-- [most famous child actors](https://celebs.allwomenstalk.com/child-stars-who-changed-dramatically/)
-- [was joan crawford beautiful](https://movies.allwomenstalk.com/classic-hollywood-stars/)
 - [male us actors](https://movies.allwomenstalk.com/hottest-male-voice-actors/)
 - [lyia liu](https://fitness.allwomenstalk.com/celebrities-who-wear-waist-trainers/)
+- [was joan crawford beautiful](https://movies.allwomenstalk.com/classic-hollywood-stars/)
+- [20 under 20](https://teen.allwomenstalk.com/most-influential-people-under-20/)
+- [most famous child actors](https://celebs.allwomenstalk.com/child-stars-who-changed-dramatically/)
+- [hot dubai prince](https://love.allwomenstalk.com/hot-princes-who-are-still-eligible/)
+- [celebrities](https://celebs.allwomenstalk.com/be-inspired-by-celebrities-who-have-branched-out-to-try-new-things/)
+- [harry potter cast oliver wood](https://celebs.allwomenstalk.com/where-the-supporting-harry-potter-cast-is-now/)
 - [4 Celebs That Shot to Fame after Cosmetic Surgery....](https://celebs.allwomenstalk.com/celebs-that-shot-to-fame-after-cosmetic-surgery/)
 - [Oscar Memories: Silver Screen Beauties ...](https://allwomenstalk.com/oscar-memories-silver-screen-beauties/)
 

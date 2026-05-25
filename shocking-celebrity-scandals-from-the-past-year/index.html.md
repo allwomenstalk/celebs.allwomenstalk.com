@@ -46,16 +46,16 @@ There were plenty of other celebrity scandals last year too, including Lindsay L
 
 ## Related Posts
 
-- [riche le stylo always pearly](https://celebs.allwomenstalk.com/celebrities-who-may-have-had-plastic-surgery/)
-- [9 Most Successful Youtube Personalities That We Lo...](https://celebs.allwomenstalk.com/most-successful-youtube-personalities-that-we-love/)
-- [riche le stylo emerald](https://movies.allwomenstalk.com/celebrities-created-by-reality-shows/)
-- [worst celebrity breakups](https://celebs.allwomenstalk.com/of-the-worst-celebrity-breakups/)
-- [7 Love Lessons We Can Learn from Celebrities ...](https://7fun.net/love-lessons-we-can-learn-from-celebrities/)
-- [7 Celebrity Looks That We Loved This Month ...](https://fashion.allwomenstalk.com/celebrity-looks-that-we-loved-this-month/)
-- [celebrities get tired of](https://celebs.allwomenstalk.com/celebrities-im-not-quite-tired-of-hearing-about-yet/)
-- [celebrity fashion icons](https://celebs.allwomenstalk.com/celebrity-style-icons-who-have-earned-their-title/)
-- [9 of the Best Celebrity Style Transformations ...](https://celebs.allwomenstalk.com/of-the-best-celebrity-style-transformations/)
 - [the hottest heart](https://celebs.allwomenstalk.com/of-the-hottest-actors-of-that-will-get-your-heart-racing/)
+- [celebrities get tired of](https://celebs.allwomenstalk.com/celebrities-im-not-quite-tired-of-hearing-about-yet/)
+- [7 Love Lessons We Can Learn from Celebrities ...](https://7fun.net/love-lessons-we-can-learn-from-celebrities/)
+- [9 Most Successful Youtube Personalities That We Lo...](https://celebs.allwomenstalk.com/most-successful-youtube-personalities-that-we-love/)
+- [worst celebrity breakups](https://celebs.allwomenstalk.com/of-the-worst-celebrity-breakups/)
+- [7 Celebrity Looks That We Loved This Month ...](https://fashion.allwomenstalk.com/celebrity-looks-that-we-loved-this-month/)
+- [celebrity fashion icons](https://celebs.allwomenstalk.com/celebrity-style-icons-who-have-earned-their-title/)
+- [riche le stylo always pearly](https://celebs.allwomenstalk.com/celebrities-who-may-have-had-plastic-surgery/)
+- [riche le stylo emerald](https://movies.allwomenstalk.com/celebrities-created-by-reality-shows/)
+- [9 of the Best Celebrity Style Transformations ...](https://celebs.allwomenstalk.com/of-the-best-celebrity-style-transformations/)
 - [10 Big Celebrity News of 2011 ...](https://celebs.allwomenstalk.com/big-celebrity-news-of/)
 - [8 Random Celeb News to Check out ...](https://allwomenstalk.com/8-random-celeb-news-to-check-out/)
 

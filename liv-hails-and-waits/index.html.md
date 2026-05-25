@@ -21,16 +21,16 @@ Well, at least the yellow bag is kinda cute huh?
 
 ## Related Posts
 
-- [nicole kidman swim](https://celebs.allwomenstalk.com/gainsbourgs-revealing-swim/)
-- [27 Photos of the a-Team Premiere ...](https://celebs.allwomenstalk.com/the-a-team-premiere/)
-- [paris stylo primped previous](https://celebs.allwomenstalk.com/szohr-in-soho/)
+- [shakira hottest](https://celebs.allwomenstalk.com/shakira-stretches-it-out/)
+- [trinny woodall height](https://celebs.allwomenstalk.com/trinny-in-blue/)
 - [entourage series 7](https://celebs.allwomenstalk.com/season-7-premiere-of-entourage/)
 - [3 Photos of McConaughey in a Shirt and Tie ...](https://celebs.allwomenstalk.com/mcconaughey-in-a-shirt-and-tie/)
-- [fergies sister](https://celebs.allwomenstalk.com/fergie-hears-wedding-bells/)
-- [trinny woodall height](https://celebs.allwomenstalk.com/trinny-in-blue/)
 - [6 Photos of Holmes and Her Girls ...](https://celebs.allwomenstalk.com/holmes-and-her-girls/)
-- [shakira hottest](https://celebs.allwomenstalk.com/shakira-stretches-it-out/)
+- [fergies sister](https://celebs.allwomenstalk.com/fergie-hears-wedding-bells/)
 - [brigitte nielsen height in feet](https://celebs.allwomenstalk.com/nielsens-beach-pose/)
+- [paris stylo primped previous](https://celebs.allwomenstalk.com/szohr-in-soho/)
+- [nicole kidman swim](https://celebs.allwomenstalk.com/gainsbourgs-revealing-swim/)
+- [27 Photos of the a-Team Premiere ...](https://celebs.allwomenstalk.com/the-a-team-premiere/)
 - [Kelly Brooks Dress- Too Tight or Just Right](https://celebs.allwomenstalk.com/kellys-tight-dress/)
 - [Is That Taylor or a Stripper](https://celebs.allwomenstalk.com/momsen-looks-like-a-stripper/)
 

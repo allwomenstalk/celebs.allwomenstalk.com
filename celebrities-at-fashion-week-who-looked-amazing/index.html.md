@@ -57,15 +57,15 @@ Well, there you have it! These were just seven of my personal favorite looks fro
 ## Related Posts
 
 - [9 Spring Fashion Collections We Absolutely Love .....](https://fashion.allwomenstalk.com/spring-fashion-collections-we-absolutely-love/)
-- [loreal riche stylo smoky neon skirt](https://celebs.allwomenstalk.com/adorable-street-style-looks-from-kendall-jenner/)
 - [9 Fashion Editors on Instagram Worth following ...](https://fashion.allwomenstalk.com/fashion-editors-on-instagram-worth-following/)
-- [15 Instagram Posts That Prove Kristin Cavallari is...](https://celebs.allwomenstalk.com/instagram-posts-that-prove-kristin-cavallari-is-a-total-fashionista/)
-- [green sweater matching pants](https://streetstyle.allwomenstalk.com/spring-street-style-looks-to-recreate-for/)
-- [What Are Celebrities up to at NYFW](https://celebs.allwomenstalk.com/what-are-celebrities-up-to-at-nyfw/)
-- [7 Best Celebrity Styles You Need to Steal ...](https://celebs.allwomenstalk.com/best-celebrity-styles-you-need-to-steal/)
 - [Recreating Falls Most Fabulous Street Style Looks ...](https://streetstyle.allwomenstalk.com/street-style-outfits-to-recreate-this-fall/)
-- [7 Love Fashion and Friendship Lessons from Orange ...](https://funny.allwomenstalk.com/love-fashion-and-friendship-lessons-from-orange-is-the-new-black/)
+- [green sweater matching pants](https://streetstyle.allwomenstalk.com/spring-street-style-looks-to-recreate-for/)
+- [15 Instagram Posts That Prove Kristin Cavallari is...](https://celebs.allwomenstalk.com/instagram-posts-that-prove-kristin-cavallari-is-a-total-fashionista/)
+- [7 Best Celebrity Styles You Need to Steal ...](https://celebs.allwomenstalk.com/best-celebrity-styles-you-need-to-steal/)
+- [What Are Celebrities up to at NYFW](https://celebs.allwomenstalk.com/what-are-celebrities-up-to-at-nyfw/)
 - [Celebrities at Paris Fashion Week Spring 2015 ...](https://celebs.allwomenstalk.com/celebrities-at-paris-fashion-week-spring/)
+- [7 Love Fashion and Friendship Lessons from Orange ...](https://funny.allwomenstalk.com/love-fashion-and-friendship-lessons-from-orange-is-the-new-black/)
+- [loreal riche stylo smoky neon skirt](https://celebs.allwomenstalk.com/adorable-street-style-looks-from-kendall-jenner/)
 - [7 Fashionable Celebrities to Watch in 2012 ...](https://celebs.allwomenstalk.com/fashionable-celebrities-to-watch-in/)
 - [7 Successful Celebrity Fashion Lines ...](https://fashion.allwomenstalk.com/successful-celebrity-fashion-lines/)
 

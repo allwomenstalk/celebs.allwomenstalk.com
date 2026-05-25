@@ -24,16 +24,16 @@ I wonder what the reformed Michael will have to say to that!
 
 ## Related Posts
 
-- [hilary duff paris](https://allwomenstalk.com/hilary-duff-is-a-drunkard/)
 - [Jack Nicholson Will Not Work with Lindsay Lohan](https://allwomenstalk.com/jack-nicholson-will-not-work-with-lindsay-lohan/)
+- [Lepaparazzi News Update: Lindsay Lohans Broken Hea...](https://allwomenstalk.com/lepaparazzi-news-update-lindsay-lohans-broken-heart/)
 - [lindsay lohan passed out](https://allwomenstalk.com/lindsay-lohan-is-super-desperate-drunk/)
 - [lindsay lohan blue dress](https://allwomenstalk.com/style-stealer-lindsay-lohans-blue-dress/)
-- [Lepaparazzi News Update: Lindsay Lohans Broken Hea...](https://allwomenstalk.com/lepaparazzi-news-update-lindsay-lohans-broken-heart/)
-- [How Long Will Lindsay Stay in Prison](https://celebs.allwomenstalk.com/lindsay-surrenders/)
-- [stephanie ovadia](https://celebs.allwomenstalk.com/michael-lohan-doesnt-mind-lindsay-movie/)
-- [Lindsay in Another Legal Battle...](https://celebs.allwomenstalk.com/lindsay-in-another-legal-battle/)
+- [hilary duff paris](https://allwomenstalk.com/hilary-duff-is-a-drunkard/)
 - [paris le stylo smoky shadow glistening garnet](https://celebs.allwomenstalk.com/lindsays-big-plans-for-the-new-year/)
+- [Lindsay in Another Legal Battle...](https://celebs.allwomenstalk.com/lindsay-in-another-legal-battle/)
 - [what is denise richards on drugs](https://allwomenstalk.com/denise-richards-snorts-some-cocaine-at-the-beach/)
+- [stephanie ovadia](https://celebs.allwomenstalk.com/michael-lohan-doesnt-mind-lindsay-movie/)
+- [How Long Will Lindsay Stay in Prison](https://celebs.allwomenstalk.com/lindsay-surrenders/)
 - [Wholl Be Forced into Rehab Next](https://allwomenstalk.com/wholl-be-forced-into-rehab-next/)
 - [Lindsay Talks Rehab](https://allwomenstalk.com/lindsay-talks-rehab/)
 

@@ -179,16 +179,16 @@ What's your favorite look from Kendall Jenner this year? Let me know which you a
 
 ## Related Posts
 
-- [taylor swift fashion line](https://celebs.allwomenstalk.com/fab-photos-of-taylor-swifts-new-clothing-line/)
 - [celebrities who are fashion designers](https://fashion.allwomenstalk.com/celebs-that-double-as-insanely-talented-fashion-designers/)
-- [taylor swift 1989 outfits](https://celebs.allwomenstalk.com/see-taylor-swifts-best-outfits-from-over-this-past-year/)
-- [kate middleton makeup tutorial](https://celebs.allwomenstalk.com/you-must-see-these-kate-middletons-best-looks-from-last-year/)
 - [french beauties](https://fashion.allwomenstalk.com/fashion-tips-inspired-by-french-beauties/)
-- [hijab high fashion](https://fashion.allwomenstalk.com/high-fashion-hijab-styles-that-are-beyond-fashionable/)
+- [kate middleton makeup tutorial](https://celebs.allwomenstalk.com/you-must-see-these-kate-middletons-best-looks-from-last-year/)
 - [marquita pring height weight](https://fashion.allwomenstalk.com/these-breathtaking-models-are-changing-the-face-of-fashion/)
-- [jobs related to modeling](https://fashion.allwomenstalk.com/awesome-fashion-careers-that-dont-require-modeling/)
 - [british formal wear for ladies](https://fashion.allwomenstalk.com/duchess-approved-the-british-fashion-brands-kate-middleton-wears/)
+- [taylor swift fashion line](https://celebs.allwomenstalk.com/fab-photos-of-taylor-swifts-new-clothing-line/)
+- [jobs related to modeling](https://fashion.allwomenstalk.com/awesome-fashion-careers-that-dont-require-modeling/)
 - [sleek outfit](https://fashion.allwomenstalk.com/sleek-black-outfits-inspired-by-the-kardashians/)
+- [taylor swift 1989 outfits](https://celebs.allwomenstalk.com/see-taylor-swifts-best-outfits-from-over-this-past-year/)
+- [hijab high fashion](https://fashion.allwomenstalk.com/high-fashion-hijab-styles-that-are-beyond-fashionable/)
 - [5 Kendall K. Outfits for Your Engagement Shoot ...](https://wedding.allwomenstalk.com/5-kendall-k-outfits-for-your-engagement-shoot/)
 - [7 Great Celebrity Festival Outfits from 2013 ...](https://celebs.allwomenstalk.com/great-celebrity-festival-outfits-from/)
 

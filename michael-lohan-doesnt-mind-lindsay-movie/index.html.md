@@ -22,14 +22,14 @@ I guess being employed does help in your maturity levels huh!
 
 ## Related Posts
 
-- [Lindsay in Another Legal Battle...](https://celebs.allwomenstalk.com/lindsay-in-another-legal-battle/)
-- [paris le stylo smoky shadow glistening garnet](https://celebs.allwomenstalk.com/lindsays-big-plans-for-the-new-year/)
 - [laguna beach aa meetings](https://allwomenstalk.com/laguna-beach-star-will-go-to-jail/)
+- [lindsay lohan blue dress](https://allwomenstalk.com/style-stealer-lindsay-lohans-blue-dress/)
+- [what is denise richards on drugs](https://allwomenstalk.com/denise-richards-snorts-some-cocaine-at-the-beach/)
+- [paris le stylo smoky shadow glistening garnet](https://celebs.allwomenstalk.com/lindsays-big-plans-for-the-new-year/)
 - [Lepaparazzi News Update: Lindsay Lohans Broken Hea...](https://allwomenstalk.com/lepaparazzi-news-update-lindsay-lohans-broken-heart/)
 - [hilary duff paris](https://allwomenstalk.com/hilary-duff-is-a-drunkard/)
 - [NYs Mom Speaks amp Should Meet Dina Lohan ...](https://allwomenstalk.com/nys-mom-speaks-should-meet-dina-lohan/)
-- [lindsay lohan blue dress](https://allwomenstalk.com/style-stealer-lindsay-lohans-blue-dress/)
-- [what is denise richards on drugs](https://allwomenstalk.com/denise-richards-snorts-some-cocaine-at-the-beach/)
+- [Lindsay in Another Legal Battle...](https://celebs.allwomenstalk.com/lindsay-in-another-legal-battle/)
 - [lindsay lohan passed out](https://allwomenstalk.com/lindsay-lohan-is-super-desperate-drunk/)
 - [Jack Nicholson Will Not Work with Lindsay Lohan](https://allwomenstalk.com/jack-nicholson-will-not-work-with-lindsay-lohan/)
 - [Lindsay Afraid to Run into Her Dad ...](https://allwomenstalk.com/lindsay-afraid-to-run-into-her-dad/)

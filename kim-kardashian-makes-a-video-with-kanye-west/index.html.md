@@ -20,16 +20,16 @@ Normally, I really don't care about random celebrities coming out with music alb
 
 ## Related Posts
 
+- [Angelina Reveals Her Latest Talent](https://celebs.allwomenstalk.com/angelina-reveals-her-latest-talent/)
 - [justin holding selenas hand](https://celebs.allwomenstalk.com/selena-justin-hold-hands-almost/)
-- [Victoria Beckham: Thank God David Looks like Crap....](https://celebs.allwomenstalk.com/victoria-beckham-thank-god-david-looks-like-crap/)
+- [katy naughty](https://celebs.allwomenstalk.com/katy-perry-to-get-naughty-with-ted-mosby/)
+- [Adame Levine and Anne V for Vogue Russia: Hot or a...](https://celebs.allwomenstalk.com/adame-levine-and-anne-v-for-vogue-russia-hot-or-a-bit-much/)
 - [kristen stewart](https://celebs.allwomenstalk.com/kristen-stewart-gets-edgy-for-vogue-italia/)
 - [Justin the New Man in Olivias Life](https://celebs.allwomenstalk.com/justin-the-new-man-in-olivias-life/)
-- [Angelina Reveals Her Latest Talent](https://celebs.allwomenstalk.com/angelina-reveals-her-latest-talent/)
-- [katy perry snow white](https://celebs.allwomenstalk.com/katy-perry-channels-the-roaring-20s-for-ghd/)
-- [katy naughty](https://celebs.allwomenstalk.com/katy-perry-to-get-naughty-with-ted-mosby/)
 - [ed oneill photo fan](https://celebs.allwomenstalk.com/ed-oneill-is-janes-biggest-fan/)
 - [kate winslet und liz taylor](https://celebs.allwomenstalk.com/kate-winslet-channels-elizabeth-taylor-for-v-magazine/)
-- [Adame Levine and Anne V for Vogue Russia: Hot or a...](https://celebs.allwomenstalk.com/adame-levine-and-anne-v-for-vogue-russia-hot-or-a-bit-much/)
+- [Victoria Beckham: Thank God David Looks like Crap....](https://celebs.allwomenstalk.com/victoria-beckham-thank-god-david-looks-like-crap/)
+- [katy perry snow white](https://celebs.allwomenstalk.com/katy-perry-channels-the-roaring-20s-for-ghd/)
 - [Kourtney Kardashians Nude Look- Hot or Not](https://celebs.allwomenstalk.com/kourtney-keeps-it-fashionable/)
 - [Kim Kardashian Sex Tape is Real and Very Very Wet](https://allwomenstalk.com/kim-kardashian-sex-tape-is-real-and-very-very-wet/)
 

@@ -68,16 +68,16 @@ Although many of these models are known for their looks, they're also smart, cha
 
 ## Related Posts
 
-- [peter capaldi wedding ring](https://movies.allwomenstalk.com/facts-and-things-to-know-about-the-new-doctor-who/)
-- [nerdy fun facts](https://movies.allwomenstalk.com/nerdy-facts-about-star-wars/)
-- [the history of eyebrows](https://beauty.allwomenstalk.com/interesting-things-about-eyebrows-through-the-ages/)
-- [5 facts about penguin](https://lifestyle.allwomenstalk.com/fun-facts-about-penguins/)
-- [about scandal](https://movies.allwomenstalk.com/surprising-fun-facts-about-scandal/)
-- [10 surprising health facts](https://health.allwomenstalk.com/surprising-health-facts-you-wont-believe/)
 - [facts on wildlife](https://lifestyle.allwomenstalk.com/startling-and-mind-blowing-new-facts-about-wildlife-extinction/)
 - [does coke clean corrosion](https://diy.allwomenstalk.com/shocking-uses-for-coca-cola/)
-- [chocolate myth](https://food.allwomenstalk.com/myths-about-chocolate-exposed/)
+- [the history of eyebrows](https://beauty.allwomenstalk.com/interesting-things-about-eyebrows-through-the-ages/)
 - [chinese moon festival facts](https://travel.allwomenstalk.com/interesting-facts-about-the-chinese-mid-autumn-festival/)
+- [10 surprising health facts](https://health.allwomenstalk.com/surprising-health-facts-you-wont-believe/)
+- [nerdy fun facts](https://movies.allwomenstalk.com/nerdy-facts-about-star-wars/)
+- [about scandal](https://movies.allwomenstalk.com/surprising-fun-facts-about-scandal/)
+- [chocolate myth](https://food.allwomenstalk.com/myths-about-chocolate-exposed/)
+- [5 facts about penguin](https://lifestyle.allwomenstalk.com/fun-facts-about-penguins/)
+- [peter capaldi wedding ring](https://movies.allwomenstalk.com/facts-and-things-to-know-about-the-new-doctor-who/)
 - [9 Places to Get Naked ...](https://travel.allwomenstalk.com/places-to-get-naked/)
 - [9 Fabulous Swimsuits ...](https://swimwear.allwomenstalk.com/fabulous-swimsuits/)
 

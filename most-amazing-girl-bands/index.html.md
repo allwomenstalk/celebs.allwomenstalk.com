@@ -46,16 +46,16 @@ There are some pretty amazing girl bands around in every genre of music. Women c
 
 ## Related Posts
 
-- [songs with shake in it](https://lifestyle.allwomenstalk.com/energizing-songs-that-are-assured-to-make-you-shake-your-stuff/)
+- [where do you typically go to discover new music](https://lifestyle.allwomenstalk.com/tips-on-how-to-discover-new-music/)
+- [good songs 2012](https://lifestyle.allwomenstalk.com/new-songs-on-my-running-playlist/)
+- [loreal paris petite palette blinged and brilliant](https://lifestyle.allwomenstalk.com/up-and-coming-singers-you-should-know-about/)
+- [paris color riche stylo eye unforgettable](https://movies.allwomenstalk.com/unforgettable-theme-songs/)
+- [dad and daughter dance songs wedding](https://wedding.allwomenstalk.com/father-and-daughter-wedding-dance-songs/)
+- [modern love songs](https://love.allwomenstalk.com/modern-day-love-songs-that-will-melt-your-heart/)
 - [romantic songs 2012](https://lifestyle.allwomenstalk.com/songs-of-that-i-love/)
 - [musical comedians](https://celebs.allwomenstalk.com/musical-comedians-worth-listening-to/)
-- [modern love songs](https://love.allwomenstalk.com/modern-day-love-songs-that-will-melt-your-heart/)
-- [good songs 2012](https://lifestyle.allwomenstalk.com/new-songs-on-my-running-playlist/)
+- [songs with shake in it](https://lifestyle.allwomenstalk.com/energizing-songs-that-are-assured-to-make-you-shake-your-stuff/)
 - [solo dance styles](https://lifestyle.allwomenstalk.com/dances-everyone-should-know/)
-- [loreal paris petite palette blinged and brilliant](https://lifestyle.allwomenstalk.com/up-and-coming-singers-you-should-know-about/)
-- [dad and daughter dance songs wedding](https://wedding.allwomenstalk.com/father-and-daughter-wedding-dance-songs/)
-- [paris color riche stylo eye unforgettable](https://movies.allwomenstalk.com/unforgettable-theme-songs/)
-- [where do you typically go to discover new music](https://lifestyle.allwomenstalk.com/tips-on-how-to-discover-new-music/)
 - [8 Favourite Lady GaGa Songs ...](https://celebs.allwomenstalk.com/favourite-lady-gaga-songs/)
 - [8 Amazing Bangles ...](https://jewelry.allwomenstalk.com/8-amazing-bangles/)
 

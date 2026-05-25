@@ -59,16 +59,16 @@ So, these are some of my favorite magicians. Is anyone else a fan of magic trick
 
 ## Related Posts
 
-- [300 movie villain images](https://movies.allwomenstalk.com/of-the-most-ridiculous-movie-villains-ever/)
-- [crazy news headlines](https://funny.allwomenstalk.com/real-but-crazy-newspaper-headlines/)
-- [most emotional modern family episodes](https://movies.allwomenstalk.com/incredibly-emotional-scenes-from-how-i-met-your-mother/)
-- [2013 big events](https://lifestyle.allwomenstalk.com/most-memorable-things-about/)
 - [when the bad guy is actually talented](https://movies.allwomenstalk.com/bad-guys-we-love-even-though-we-shouldnt/)
-- [when someone you loved becomes a stranger](https://lifestyle.allwomenstalk.com/struggles-of-becoming-strangers-again/)
-- [adam devine blink 182](https://movies.allwomenstalk.com/of-the-best-workaholics-moments/)
-- [sequels to gone with the wind](https://books.allwomenstalk.com/sequels-that-were-not-penned-by-the-authors-of-the-originals/)
 - [watch usa network online](https://movies.allwomenstalk.com/usa-network-tv-shows-to-watch/)
 - [lorelai gilmore nails](https://movies.allwomenstalk.com/of-the-most-touching-moments-on-gilmore-girls/)
+- [when someone you loved becomes a stranger](https://lifestyle.allwomenstalk.com/struggles-of-becoming-strangers-again/)
+- [most emotional modern family episodes](https://movies.allwomenstalk.com/incredibly-emotional-scenes-from-how-i-met-your-mother/)
+- [2013 big events](https://lifestyle.allwomenstalk.com/most-memorable-things-about/)
+- [adam devine blink 182](https://movies.allwomenstalk.com/of-the-best-workaholics-moments/)
+- [crazy news headlines](https://funny.allwomenstalk.com/real-but-crazy-newspaper-headlines/)
+- [300 movie villain images](https://movies.allwomenstalk.com/of-the-most-ridiculous-movie-villains-ever/)
+- [sequels to gone with the wind](https://books.allwomenstalk.com/sequels-that-were-not-penned-by-the-authors-of-the-originals/)
 - [5 Evil Magic Users to Be ...](https://twilight.allwomenstalk.com/5-evil-magic-users-to-be/)
 - [8 Shows That Will Hypnotize Your Kids ...](https://movies.allwomenstalk.com/8-shows-that-will-hypnotize-your-kids/)
 

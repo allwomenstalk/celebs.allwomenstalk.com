@@ -56,16 +56,16 @@ These were just a few highlights of Kim K's first pregnancy - who else can't wai
 
 ## Related Posts
 
-- [cara delevingne victorias secret](https://celebs.allwomenstalk.com/here-are-multiple-talents-of-cara-delevingne/)
-- [maxim taylor swift](https://celebs.allwomenstalk.com/this-is-why-taylor-swift-topped-maxims-hot/)
-- [celebsfor](https://hair.allwomenstalk.com/check-out-these-gorgeous-celebs-with-killer-side-parts/)
-- [the rocks stunt man](https://celebs.allwomenstalk.com/the-rocks-body-double-may-be-even-hotter-than-he-is/)
-- [lea seydoux christian louboutin](https://movies.allwomenstalk.com/meet-lea-seydoux-the-new-bond-girl/)
-- [priceless stone](https://jewelry.allwomenstalk.com/priceless-stones-even-jennifer-aniston-would-be-jealous-of/)
 - [deepika padukone fashion style](https://fashion.allwomenstalk.com/fabulous-looks-from-deepika-padukone/)
-- [wildest dreams taylor swift dress](https://fashion.allwomenstalk.com/taylor-swifts-most-gorgeous-wildest-dreams-looks/)
+- [cara delevingne victorias secret](https://celebs.allwomenstalk.com/here-are-multiple-talents-of-cara-delevingne/)
 - [taylor swift long hair with bangs](https://hair.allwomenstalk.com/lets-take-a-moment-to-admire-taylor-swifts-hair-shall-we/)
+- [celebsfor](https://hair.allwomenstalk.com/check-out-these-gorgeous-celebs-with-killer-side-parts/)
+- [wildest dreams taylor swift dress](https://fashion.allwomenstalk.com/taylor-swifts-most-gorgeous-wildest-dreams-looks/)
+- [the rocks stunt man](https://celebs.allwomenstalk.com/the-rocks-body-double-may-be-even-hotter-than-he-is/)
 - [kyle jenner weight](https://celebs.allwomenstalk.com/times-kylie-jenner-proved-that-some-weight-gain-is-hot/)
+- [lea seydoux christian louboutin](https://movies.allwomenstalk.com/meet-lea-seydoux-the-new-bond-girl/)
+- [maxim taylor swift](https://celebs.allwomenstalk.com/this-is-why-taylor-swift-topped-maxims-hot/)
+- [priceless stone](https://jewelry.allwomenstalk.com/priceless-stones-even-jennifer-aniston-would-be-jealous-of/)
 - [Kourtney Kardashians Nude Look- Hot or Not](https://celebs.allwomenstalk.com/kourtney-keeps-it-fashionable/)
 - [Kim Kardashian Makes a Video with Kanye West...](https://celebs.allwomenstalk.com/kim-kardashian-makes-a-video-with-kanye-west/)
 

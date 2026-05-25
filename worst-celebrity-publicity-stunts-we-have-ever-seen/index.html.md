@@ -68,16 +68,16 @@ One thing’s for sure, there’s never a dull moment in Hollywood. It seems lik
 
 ## Related Posts
 
-- [most scandalous celebrities](https://celebs.allwomenstalk.com/scandalous-celebrity-murders-that-shook-hollywood/)
-- [stylish celebrities](https://fashion.allwomenstalk.com/stylish-celebrities-under-20-who-have-style-beyond-their-years/)
-- [twins who are both actors](https://celebs.allwomenstalk.com/celebrities-you-didnt-know-were-twins-thatll-surprise-you/)
 - [late bloomer celebrities](https://celebs.allwomenstalk.com/celebrities-who-found-success-later-in-life/)
 - [black haired female actresses](https://celebs.allwomenstalk.com/funniest-female-actresses-in-hollywood/)
+- [twins who are both actors](https://celebs.allwomenstalk.com/celebrities-you-didnt-know-were-twins-thatll-surprise-you/)
 - [real life tv couples](https://movies.allwomenstalk.com/adorable-tv-couples-you-wish-were-dating-in-real-life/)
-- [lucy pinder toppless](https://celebs.allwomenstalk.com/good-hearted-celebrities-who-took-adopted-children-under-their-wings/)
 - [celebrity bffs](https://celebs.allwomenstalk.com/celebrity-bffs-who-are-the-real-deal/)
 - [polydactyly celebrities](https://celebs.allwomenstalk.com/celebrities-with-body-deformities-that-will-shock-you/)
 - [jamie lynn weight gain](https://celebs.allwomenstalk.com/dramatic-celebrity-weight-loss-stories/)
+- [stylish celebrities](https://fashion.allwomenstalk.com/stylish-celebrities-under-20-who-have-style-beyond-their-years/)
+- [most scandalous celebrities](https://celebs.allwomenstalk.com/scandalous-celebrity-murders-that-shook-hollywood/)
+- [lucy pinder toppless](https://celebs.allwomenstalk.com/good-hearted-celebrities-who-took-adopted-children-under-their-wings/)
 - [7 Greatly Astonishing Celebrity Scandals ...](https://celebs.allwomenstalk.com/greatly-astonishing-celebrity-scandals/)
 - [9 Most Shocking Celebrity Scandals of 2009...rity ...](https://allwomenstalk.com/most-shocking-celebrity-scandals-of/)
 

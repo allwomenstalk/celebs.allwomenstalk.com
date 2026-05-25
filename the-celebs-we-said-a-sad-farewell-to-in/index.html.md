@@ -158,16 +158,16 @@ I know this list isn't complete... who would you add?
 
 ## Related Posts
 
+- [sexiest celebrities](https://celebs.allwomenstalk.com/sexy-male-celebrities-who-arent-white/)
 - [who is the most hated celebrity in the world](https://celebs.allwomenstalk.com/haters-gonna-hate-of-the-most-controversial-celebrities/)
+- [high school musical audition](https://movies.allwomenstalk.com/high-school-musical-reunion-see-the-actors-audition-tapes/)
+- [famous women who wear glasses](https://celebs.allwomenstalk.com/how-to-wear-glasses-as-told-by-celebrities/)
 - [new artists 2016](https://music.allwomenstalk.com/artists-that-are-going-to-hit-it-big-in/)
 - [light skin actors in their 20s](https://celebs.allwomenstalk.com/dont-feel-bad-what-successful-celebs-were-doing-in-their-20s/)
-- [rowan blanchard pixie](https://fashion.allwomenstalk.com/these-teen-stars-have-some-serious-style/)
-- [high school musical audition](https://movies.allwomenstalk.com/high-school-musical-reunion-see-the-actors-audition-tapes/)
-- [sexiest celebrities](https://celebs.allwomenstalk.com/sexy-male-celebrities-who-arent-white/)
-- [emma stone lip filler](https://celebs.allwomenstalk.com/see-how-celebs-responded-perfectly-to-sexism/)
 - [disney recognize now](https://celebs.allwomenstalk.com/female-disney-stars-who-you-wont-even-recognize-now/)
+- [rowan blanchard pixie](https://fashion.allwomenstalk.com/these-teen-stars-have-some-serious-style/)
+- [emma stone lip filler](https://celebs.allwomenstalk.com/see-how-celebs-responded-perfectly-to-sexism/)
 - [celebrities imitating other celebrities](https://celebs.allwomenstalk.com/youve-got-to-see-these-celebrities-imitating-other-celebrities/)
-- [famous women who wear glasses](https://celebs.allwomenstalk.com/how-to-wear-glasses-as-told-by-celebrities/)
 - [25 Most Messed up Celebrities ...](https://celebs.allwomenstalk.com/25-most-messed-up-celebrities/)
 - [14 Juiciest Celebrity Breakups ...](https://allwomenstalk.com/14-juiciest-celebrity-breakups/)
 

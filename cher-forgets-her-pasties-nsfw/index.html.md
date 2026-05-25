@@ -16,16 +16,16 @@ Looks like Christina and Cher were the perfect casting choices in retrospect huh
 
 ## Related Posts
 
-- [Mariahs Just Not There Yet](https://celebs.allwomenstalk.com/mariahs-just-not-there-yet/)
+- [The Fabulous Fanning Sisters for W Magazine ...](https://celebs.allwomenstalk.com/the-fabulous-fanning-sisters-for-w-magazine/)
+- [bess bistro austin](https://celebs.allwomenstalk.com/could-ryan-and-sandra-be-the-flavor-of/)
+- [Rihanna Wants You to See Everything...](https://celebs.allwomenstalk.com/rihanna-wants-you-to-see-everything/)
 - [melissa mccarthy mother](https://lifestyle.allwomenstalk.com/moms-are-talking-with-melissa-mccarthy-over-at-ivorys-the-soap-dish/)
-- [piercing blue eyes](https://celebs.allwomenstalk.com/ryan-gosling-and-his-piercing-blue-eyes-for-gq-russia/)
 - [Lady Gaga Goes Country](https://celebs.allwomenstalk.com/lady-gaga-goes-country/)
 - [forgotten jonas brother](https://celebs.allwomenstalk.com/jonas-brother-keen-on-glee/)
-- [Rihanna Wants You to See Everything...](https://celebs.allwomenstalk.com/rihanna-wants-you-to-see-everything/)
-- [taylor lautner jawline](https://celebs.allwomenstalk.com/taylor-lautner-looks-refined-for-gq-australia/)
-- [bess bistro austin](https://celebs.allwomenstalk.com/could-ryan-and-sandra-be-the-flavor-of/)
-- [The Fabulous Fanning Sisters for W Magazine ...](https://celebs.allwomenstalk.com/the-fabulous-fanning-sisters-for-w-magazine/)
 - [Racy Snaps Were Meant for Christinas Stylist ...](https://celebs.allwomenstalk.com/racy-snaps-were-meant-for-christinas-stylist/)
+- [piercing blue eyes](https://celebs.allwomenstalk.com/ryan-gosling-and-his-piercing-blue-eyes-for-gq-russia/)
+- [Mariahs Just Not There Yet](https://celebs.allwomenstalk.com/mariahs-just-not-there-yet/)
+- [taylor lautner jawline](https://celebs.allwomenstalk.com/taylor-lautner-looks-refined-for-gq-australia/)
 - [Denise Richards Flashes Her Labia ...](https://allwomenstalk.com/denise-richards-flashes-her-labia/)
 - [Patricia Heaton Braless See-through](https://allwomenstalk.com/patricia-heaton-braless-see-through/)
 

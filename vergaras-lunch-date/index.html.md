@@ -13,16 +13,16 @@ I also like the earrings she has on. Have you noticed how celebrities are sporti
 
 ## Related Posts
 
-- [brooklyn decker just go with it bikini](https://celebs.allwomenstalk.com/brooklyns-bikini-bod/)
+- [3 Photos of McConaughey in a Shirt and Tie ...](https://celebs.allwomenstalk.com/mcconaughey-in-a-shirt-and-tie/)
+- [27 Photos of the a-Team Premiere ...](https://celebs.allwomenstalk.com/the-a-team-premiere/)
+- [rebecca gayheart](https://celebs.allwomenstalk.com/dane-and-gayheart-pass-through-paris/)
 - [paris stylo primped previous](https://celebs.allwomenstalk.com/szohr-in-soho/)
 - [kylie minogue airport](https://celebs.allwomenstalk.com/kylie-lands-in-nice/)
-- [3 Photos of McConaughey in a Shirt and Tie ...](https://celebs.allwomenstalk.com/mcconaughey-in-a-shirt-and-tie/)
-- [fox upfronts](https://celebs.allwomenstalk.com/fox-upfronts-in-central-park/)
-- [in my sleep 2010](https://celebs.allwomenstalk.com/in-my-sleep-premiere/)
+- [brooklyn decker just go with it bikini](https://celebs.allwomenstalk.com/brooklyns-bikini-bod/)
 - [antonio banderas photoshoot](https://celebs.allwomenstalk.com/antonios-motorbike-team/)
-- [rebecca gayheart](https://celebs.allwomenstalk.com/dane-and-gayheart-pass-through-paris/)
+- [in my sleep 2010](https://celebs.allwomenstalk.com/in-my-sleep-premiere/)
+- [fox upfronts](https://celebs.allwomenstalk.com/fox-upfronts-in-central-park/)
 - [liv tyler tights](https://celebs.allwomenstalk.com/liv-hails-and-waits/)
-- [27 Photos of the a-Team Premiere ...](https://celebs.allwomenstalk.com/the-a-team-premiere/)
 - [Does Serena Williams Have a Hot Body](https://celebs.allwomenstalk.com/serenas-day-at-the-beach/)
 - [Is Red a Good Color for Selena Gomez](https://celebs.allwomenstalk.com/selenas-fashion-line/)
 

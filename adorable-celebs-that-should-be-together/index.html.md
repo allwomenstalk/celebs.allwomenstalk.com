@@ -70,16 +70,16 @@ Top Image Source: [weheartit.com](https://weheartit.com/entry/23079055)
 
 ## Related Posts
 
+- [good hearted celebrities](https://celebs.allwomenstalk.com/nicest-celebrities-who-have-a-heart-of-gold/)
+- [embarrassing moments celebrities](https://celebs.allwomenstalk.com/most-embarrassing-celeb-moments-youve-got-to-hear-about/)
 - [funny quotes celebrities](https://celebs.allwomenstalk.com/stupidest-quotes-celebrities-have-blurted-out/)
-- [is nick cage a good actor](https://movies.allwomenstalk.com/worst-actors-of-our-time/)
 - [best mugshots ever](https://celebs.allwomenstalk.com/top-celebrity-mug-shots/)
 - [disney fairytale weddings divorce](https://wedding.allwomenstalk.com/celeb-brides-youd-love-to-see-walk-down-the-aisle/)
-- [hot peopel](https://allwomenstalk.com/guess-who-the-sexiest-men-celebrities-are/)
-- [good hearted celebrities](https://celebs.allwomenstalk.com/nicest-celebrities-who-have-a-heart-of-gold/)
-- [celebrity holiday cards](https://allwomenstalk.com/celebrity-holiday-cards-pick-your-favorite/)
-- [what celebrity named their kid pillow](https://celebs.allwomenstalk.com/off-the-wall-celebrity-baby-names/)
-- [embarrassing moments celebrities](https://celebs.allwomenstalk.com/most-embarrassing-celeb-moments-youve-got-to-hear-about/)
 - [7 Sexy Leading Men from Britain ...](https://movies.allwomenstalk.com/sexy-leading-men-from-britain/)
+- [is nick cage a good actor](https://movies.allwomenstalk.com/worst-actors-of-our-time/)
+- [celebrity holiday cards](https://allwomenstalk.com/celebrity-holiday-cards-pick-your-favorite/)
+- [hot peopel](https://allwomenstalk.com/guess-who-the-sexiest-men-celebrities-are/)
+- [what celebrity named their kid pillow](https://celebs.allwomenstalk.com/off-the-wall-celebrity-baby-names/)
 - [19 Adorable Celebrity Moms ...](https://allwomenstalk.com/19-adorable-celebrity-moms/)
 - [7 Celebrity Dream Couples ...](https://allwomenstalk.com/7-celebrity-dream-couples/)
 

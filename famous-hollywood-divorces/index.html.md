@@ -64,15 +64,15 @@ Top Photo Credit: [LegalAssistance](https://www.flickr.com/photos/lawguru/301992
 
 ## Related Posts
 
+- [inspiring celebrities](https://celebs.allwomenstalk.com/inspiring-celebrities-of/)
+- [katharine hepburn height weight](https://celebs.allwomenstalk.com/enduring-celebrity-myths/)
 - [matt damon buzz cut](https://celebs.allwomenstalk.com/celebrity-haircuts-this-week/)
 - [weather girl wardrobe malfunctions](https://celebs.allwomenstalk.com/25-celebrity-wardrobe-malfunctions/)
-- [inspiring celebrities](https://celebs.allwomenstalk.com/inspiring-celebrities-of/)
 - [4 Celebs That Shot to Fame after Cosmetic Surgery....](https://celebs.allwomenstalk.com/celebs-that-shot-to-fame-after-cosmetic-surgery/)
-- [beautiful actress under 25](https://celebs.allwomenstalk.com/25-hottest-female-celebrities-under-25/)
-- [beta male drawing](https://celebs.allwomenstalk.com/sweetly-sexy-hollywood-beta-males/)
 - [worst table manners](https://celebs.allwomenstalk.com/celebrities-with-awful-table-manners/)
 - [lucille ball debra messing](https://celebs.allwomenstalk.com/celebs-that-rock-red-hair/)
-- [katharine hepburn height weight](https://celebs.allwomenstalk.com/enduring-celebrity-myths/)
+- [beautiful actress under 25](https://celebs.allwomenstalk.com/25-hottest-female-celebrities-under-25/)
+- [beta male drawing](https://celebs.allwomenstalk.com/sweetly-sexy-hollywood-beta-males/)
 - [olivia wilde bangs](https://celebs.allwomenstalk.com/celebrities-proving-that-bangs-are-back/)
 - [8 Most Adorable Celebrity Proposal Stories ...](https://wedding.allwomenstalk.com/8-most-adorable-celebrity-proposal-stories/)
 - [7 Awesome Hollywood Remakes ...](https://movies.allwomenstalk.com/7-awesome-hollywood-remakes/)

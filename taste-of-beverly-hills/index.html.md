@@ -24,16 +24,16 @@ And that's that!
 
 ## Related Posts
 
-- [Lady Gaga Gets Waxed Eight Times ...](https://celebs.allwomenstalk.com/lady-gaga-gets-waxed-eight-times/)
-- [loreal paris color le stylo smoky shadow infinite ...](https://celebs.allwomenstalk.com/angelina-jolie-and-brad-pitt-on-set/)
-- [chelsea hobbs cleavage](https://celebs.allwomenstalk.com/ok-magazine-usas-fifth-anniversary-party/)
-- [4 Photos of SJP Heads to School ...](https://celebs.allwomenstalk.com/sjp-heads-to-school/)
-- [rihanna toned](https://celebs.allwomenstalk.com/rihannas-toned-legs/)
-- [tron character](https://celebs.allwomenstalk.com/olivia-wanted-tron-character-to-be-androgynous/)
-- [3 Photos of Kates Dramatic Look ...](https://celebs.allwomenstalk.com/kates-dramatic-look/)
 - [young lady gaga pictures](https://celebs.allwomenstalk.com/lady-gaga-shows-her-panties/)
 - [10 Photos of Bristol Palin Takes off ...](https://celebs.allwomenstalk.com/bristol-palin-takes-off/)
+- [loreal paris color le stylo smoky shadow infinite ...](https://celebs.allwomenstalk.com/angelina-jolie-and-brad-pitt-on-set/)
+- [Lady Gaga Gets Waxed Eight Times ...](https://celebs.allwomenstalk.com/lady-gaga-gets-waxed-eight-times/)
+- [tron character](https://celebs.allwomenstalk.com/olivia-wanted-tron-character-to-be-androgynous/)
+- [4 Photos of SJP Heads to School ...](https://celebs.allwomenstalk.com/sjp-heads-to-school/)
+- [chelsea hobbs cleavage](https://celebs.allwomenstalk.com/ok-magazine-usas-fifth-anniversary-party/)
+- [3 Photos of Kates Dramatic Look ...](https://celebs.allwomenstalk.com/kates-dramatic-look/)
 - [lady gaga young pictures](https://celebs.allwomenstalk.com/young-lady-gaga/)
+- [rihanna toned](https://celebs.allwomenstalk.com/rihannas-toned-legs/)
 - [36 Photos of the GLEE Spring Premiere Soiree ...](https://celebs.allwomenstalk.com/glee-premiere/)
 - [59 Photos of 45th Annual Academy of Country Music ...](https://celebs.allwomenstalk.com/45th-annual-academy-of-country-music-awards/)
 
