@@ -3,7 +3,7 @@ title: "7 Great Books Loved by Celebrities ..."
 description: "Lena Dunham - Eloise; Kate Winslet - Thérèse Raquin; Robert Pattinson - the Ballad of the Sad Cafe; J.K. Rowling - Team of Rivals; Amy Poehler - a Tale of Two Cities; More ..."
 url: "https://celebs.allwomenstalk.com/great-books-loved-by-celebrities/"
 category: "celebs"
-last_updated: "2026-05-25"
+last_updated: "2026-06-07"
 ---
 
 # 7 Great Books Loved by Celebrities ...
@@ -56,16 +56,16 @@ I've always been intrigued by the type of books that could influence my favorite
 
 ## Related Posts
 
-- [books the wealthy read](https://money.allwomenstalk.com/best-finance-books-rich-people-read/)
-- [historical books everyone should read](https://books.allwomenstalk.com/reasons-to-read-historical-fiction/)
-- [dog man 13](https://books.allwomenstalk.com/influential-books-that-have-been-banned/)
-- [how to get free kindle](https://books.allwomenstalk.com/easy-ways-to-find-free-kindle-books-on-amazon/)
-- [the happy wives club](https://books.allwomenstalk.com/things-to-love-about-the-book-happy-wives-club/)
-- [magazine topics](https://lifestyle.allwomenstalk.com/magazines-chock-full-of-awesome-information/)
-- [novels set in 1920s](https://books.allwomenstalk.com/books-set-in-the-jazz-age/)
 - [life is so good book](https://teen.allwomenstalk.com/best-books-about-teen-life/)
 - [find new books](https://books.allwomenstalk.com/must-use-sites-for-finding-new-books/)
+- [dog man 13](https://books.allwomenstalk.com/influential-books-that-have-been-banned/)
 - [leadership books for young adults](https://inspiration.allwomenstalk.com/best-leadership-books-every-young-leader-should-read/)
+- [how to get free kindle](https://books.allwomenstalk.com/easy-ways-to-find-free-kindle-books-on-amazon/)
+- [books the wealthy read](https://money.allwomenstalk.com/best-finance-books-rich-people-read/)
+- [magazine topics](https://lifestyle.allwomenstalk.com/magazines-chock-full-of-awesome-information/)
+- [the happy wives club](https://books.allwomenstalk.com/things-to-love-about-the-book-happy-wives-club/)
+- [historical books everyone should read](https://books.allwomenstalk.com/reasons-to-read-historical-fiction/)
+- [novels set in 1920s](https://books.allwomenstalk.com/books-set-in-the-jazz-age/)
 - [8 Surprisingly Good Books by Celebrities ...](https://celebs.allwomenstalk.com/surprisingly-good-books-by-celebrities/)
 - [8 Worst Books Written by Celebs ...](https://celebs.allwomenstalk.com/8-worst-books-written-by-celebs/)
 

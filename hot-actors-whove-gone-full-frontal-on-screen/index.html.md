@@ -1,12 +1,12 @@
 ---
-title: "Hot Actors Whove Gone Full Frontal on Screen ..."
+title: "Hot Actors Who've Gone Full Frontal on Screen ..."
 description: "Jude Law; Viggo Mortensen; Michael Pitt; Michael Fassbender; Tom Cruise; More ..."
 url: "https://celebs.allwomenstalk.com/hot-actors-whove-gone-full-frontal-on-screen/"
 category: "celebs"
-last_updated: "2026-05-25"
+last_updated: "2026-06-07"
 ---
 
-# Hot Actors Whove Gone Full Frontal on Screen ...
+# Hot Actors Who've Gone Full Frontal on Screen ...
 
 No one bats an eyelid when a female appears nude on screen (except maybe pubescent teenage boys). That’s because we’re so used to it, we’re desensitized. It’s normal. However, when we see a nude male – well that’s a whole different thing. It’s not a rare thing to see a fully-naked male on screen but it’s usually a butt shot. A full-frontal male is a pretty rare thing but there are a few big names who’ve been there, done that.
 
@@ -72,16 +72,16 @@ Much like Ewan McGregor, hottie Chris Messina is no stranger to being naked on c
 
 ## Related Posts
 
-- [how to snap celebrities](https://celebs.allwomenstalk.com/the-hottest-celebs-to-follow-on-snapchat/)
-- [celebrity face swap](https://celebs.allwomenstalk.com/these-are-the-best-face-swaps-celebs-have-ever-posted/)
-- [most awkward interviews](https://celebs.allwomenstalk.com/youll-cringe-at-these-unbelievably-awkward-celeb-interviews/)
-- [20 under 20](https://teen.allwomenstalk.com/most-influential-people-under-20/)
-- [celebrities](https://celebs.allwomenstalk.com/be-inspired-by-celebrities-who-have-branched-out-to-try-new-things/)
 - [harry potter cast oliver wood](https://celebs.allwomenstalk.com/where-the-supporting-harry-potter-cast-is-now/)
 - [halle berry sarah palin](https://celebs.allwomenstalk.com/did-you-know-these-celebs-were-beauty-queens-before-they-became-stars/)
 - [social media food trends](https://food.allwomenstalk.com/foods-that-broke-the-internet-as-much-as-kim/)
-- [pictures of hollywood actors](https://movies.allwomenstalk.com/hottest-hollywood-actors-of-all-time/)
 - [was joan crawford beautiful](https://movies.allwomenstalk.com/classic-hollywood-stars/)
+- [pictures of hollywood actors](https://movies.allwomenstalk.com/hottest-hollywood-actors-of-all-time/)
+- [how to snap celebrities](https://celebs.allwomenstalk.com/the-hottest-celebs-to-follow-on-snapchat/)
+- [20 under 20](https://teen.allwomenstalk.com/most-influential-people-under-20/)
+- [celebrity face swap](https://celebs.allwomenstalk.com/these-are-the-best-face-swaps-celebs-have-ever-posted/)
+- [celebrities](https://celebs.allwomenstalk.com/be-inspired-by-celebrities-who-have-branched-out-to-try-new-things/)
+- [most awkward interviews](https://celebs.allwomenstalk.com/youll-cringe-at-these-unbelievably-awkward-celeb-interviews/)
 - [Top 10 Sexy Women in Hollywood ...](https://movies.allwomenstalk.com/top-10-sexy-women-in-hollywood/)
 - [10 Amazing British Movie Stars ...](https://movies.allwomenstalk.com/amazing-british-movie-stars/)
 

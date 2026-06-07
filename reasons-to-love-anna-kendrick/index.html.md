@@ -3,7 +3,7 @@ title: "9 Reasons to Love Anna Kendrick ..."
 description: "She Can Actually Sing; Cups; She’s Hilarious; She’s Truly Talented; She’s Totally down to Earth; More ..."
 url: "https://celebs.allwomenstalk.com/reasons-to-love-anna-kendrick/"
 category: "celebs"
-last_updated: "2026-05-25"
+last_updated: "2026-06-07"
 ---
 
 # 9 Reasons to Love Anna Kendrick ...
@@ -50,16 +50,16 @@ Really, I could probably go on for a long, long time because Miss Kendrick is cl
 
 ## Related Posts
 
-- [marina so](https://music.allwomenstalk.com/reasons-to-love-marina-the-diamonds/)
 - [the great gatsby movie quotes](https://movies.allwomenstalk.com/reasons-the-great-gatsby-film-is-as-good-as-the-book/)
+- [dieselpunk clothing](https://streetstyle.allwomenstalk.com/awesome-reasons-to-love-dieselpunk/)
+- [cartoons frozen](https://movies.allwomenstalk.com/reasons-why-frozen-is-the-best-disney-movie-ever-made/)
 - [parenthood season 7](https://movies.allwomenstalk.com/reasons-to-watch-and-love-parenthood/)
 - [two broke girls cast](https://movies.allwomenstalk.com/legitimately-funny-reasons-to-watch-2-broke-girls/)
-- [dieselpunk clothing](https://streetstyle.allwomenstalk.com/awesome-reasons-to-love-dieselpunk/)
+- [marina so](https://music.allwomenstalk.com/reasons-to-love-marina-the-diamonds/)
 - [timothy olyphant satc](https://movies.allwomenstalk.com/reasons-to-start-watching-sex-and-the-city-again/)
+- [jenna fischer undeclared](https://movies.allwomenstalk.com/reasons-to-watch-and-love-undeclared/)
 - [how tall is blair waldorf](https://teen.allwomenstalk.com/reasons-why-a-little-part-of-all-of-us-wants-to-be-blair-waldorf/)
 - [the carrie diaries season 2 episode 7](https://movies.allwomenstalk.com/reasons-to-watch-the-carrie-diaries-regardless-of-your-age/)
-- [cartoons frozen](https://movies.allwomenstalk.com/reasons-why-frozen-is-the-best-disney-movie-ever-made/)
-- [jenna fischer undeclared](https://movies.allwomenstalk.com/reasons-to-watch-and-love-undeclared/)
 - [10 Reasons to Love Jennifer Aniston ...](https://allwomenstalk.com/10-reasons-to-love-jennifer-aniston/)
 - [10 Reasons to Love Kate Winslet ...](https://allwomenstalk.com/10-reasons-to-love-kate-winslet/)
 

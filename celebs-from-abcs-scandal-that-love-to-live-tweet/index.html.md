@@ -1,12 +1,12 @@
 ---
-title: "7 Celebs from ABCs Scandal That Love to Live-Tweet ..."
+title: "7 Celebs from ABC's Scandal That Love to Live-Tweet ..."
 description: "Kerry Washington; Katie Lowes; Darby Stanchfield; Scott Foley; Tony Goldwyn; More ..."
 url: "https://celebs.allwomenstalk.com/celebs-from-abcs-scandal-that-love-to-live-tweet/"
 category: "celebs"
-last_updated: "2026-05-25"
+last_updated: "2026-06-07"
 ---
 
-# 7 Celebs from ABCs Scandal That Love to Live\-Tweet ...
+# 7 Celebs from ABC's Scandal That Love to Live\-Tweet ...
 
 There are so many celebs from ABC's Scandal that LOVE to live-tweet through new episodes. It's actually so funny to see what the actors have to say about to scenes in the show. If you've kept up with Scandal, then you know just how crazy this season was. I mean, really Shonda Rhimes? Way to keep me biting my nails all season long! The finale was actually my favorite episode to see all of these celebs from ABC's Scandal live-tweeting. Check out which stars were taking Twitter by storm!
 
@@ -56,15 +56,15 @@ Well, there you have it! These are just seven out of many celebs from ABC's Scan
 
 ## Related Posts
 
-- [An Eye-Opening Look at Child Stars Who Have Mature...](https://celebs.allwomenstalk.com/child-stars-whove-matured-into-fine-young-men-and-women/)
-- [Like Fine Wine: Celebrities Who Get Better with Ag...](https://celebs.allwomenstalk.com/celebrities-who-look-better-with-age/)
+- [7 Crazy Celebrity Feuds You'd Have to Read about t...](https://celebs.allwomenstalk.com/crazy-celebrity-feuds-youd-have-to-read-about-to-believe/)
+- [nepotism models list](https://celebs.allwomenstalk.com/celebrity-kids-who-have-stunned-the-modeling-world/)
+- [hotels for celebrities](https://travel.allwomenstalk.com/hotels-owned-by-celebrities/)
+- [11 Big Celebrity Beefs from behind the Scenes ...](https://bilbr.com/big-celebrity-beefs-from-behind-the-scenes/)
 - [9 Saturday Night Live Actors We Miss ...](https://7fun.net/saturday-night-live-actors-we-miss/)
 - [9 Celebrities Who Had Secret Weddings ...](https://celebs.allwomenstalk.com/celebrities-who-had-secret-weddings/)
 - [Interview Magazine Spotlights 6 Stars on September...](https://celebs.allwomenstalk.com/interview-magazine-spotlights-stars-on-september-cover/)
-- [hotels for celebrities](https://travel.allwomenstalk.com/hotels-owned-by-celebrities/)
-- [7 Crazy Celebrity Feuds Youd Have to Read about to...](https://celebs.allwomenstalk.com/crazy-celebrity-feuds-youd-have-to-read-about-to-believe/)
-- [11 Big Celebrity Beefs from behind the Scenes ...](https://bilbr.com/big-celebrity-beefs-from-behind-the-scenes/)
-- [nepotism models list](https://celebs.allwomenstalk.com/celebrity-kids-who-have-stunned-the-modeling-world/)
+- [Like Fine Wine: Celebrities Who Get Better with Ag...](https://celebs.allwomenstalk.com/celebrities-who-look-better-with-age/)
+- [An Eye-Opening Look at Child Stars Who Have Mature...](https://celebs.allwomenstalk.com/child-stars-whove-matured-into-fine-young-men-and-women/)
 - [11 Celebrities Who Have Been Turned down in Their ...](https://celebs.allwomenstalk.com/celebrities-who-have-been-turned-down-in-their-career/)
 - [6 Things Celebrity Parents Tweet about ...](https://parenting.allwomenstalk.com/things-celebrity-parents-tweet-about/)
 - [7 of My Favorite Celebrities ...](https://celebs.allwomenstalk.com/7-of-my-favorite-celebrities/)

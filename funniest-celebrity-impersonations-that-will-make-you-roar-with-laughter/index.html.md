@@ -3,7 +3,7 @@ title: "11 Funniest Celebrity Impersonations That Will Make You Roar with Laught
 description: "Jimmy Fallon Imitating, Well, Everybody; Vanilla Ice Impressions on in Living Color; Santino Rice Imitating Tim Gunn; Jimmy Fallon and Benedict Cumberbatch Imitating Alan Rickman; Richard Cheese; More ..."
 url: "https://celebs.allwomenstalk.com/funniest-celebrity-impersonations-that-will-make-you-roar-with-laughter/"
 category: "celebs"
-last_updated: "2026-05-25"
+last_updated: "2026-06-07"
 ---
 
 # 11 Funniest Celebrity Impersonations That Will Make You Roar with Laughter ...
@@ -58,16 +58,16 @@ I know I've left out some great celebrity impressions, but there are just too ma
 
 ## Related Posts
 
-- [instagram melinda shankar](https://celebs.allwomenstalk.com/degrassi-celebrities-to-follow-on-instagram/)
-- [famous actress in bikini](https://celebs.allwomenstalk.com/celebrities-bikini-ready-bodies/)
-- [90s celebrities](https://celebs.allwomenstalk.com/celebrities-who-were-in-90s-commercials/)
-- [does zac efron have a sister](https://celebs.allwomenstalk.com/celebrities-with-attractive-siblings/)
-- [julia roberts jon bon jovi](https://celebs.allwomenstalk.com/celebrities-who-are-terrible-to-work-with/)
 - [celebs board](https://celebs.allwomenstalk.com/celebrity-pinterest-boards-youll-want-to-follow/)
 - [images of celebrities](https://celebs.allwomenstalk.com/stunning-celebrity-black-white-photos/)
+- [90's celebrities](https://celebs.allwomenstalk.com/celebrities-who-were-in-90s-commercials/)
+- [instagram melinda shankar](https://celebs.allwomenstalk.com/degrassi-celebrities-to-follow-on-instagram/)
 - [actresses of the silver screen](https://movies.allwomenstalk.com/totally-ace-actors-from-scandinavia/)
-- [mickey mouse club mouseketeers list](https://celebs.allwomenstalk.com/former-disney-mouseketeers-who-now-made-names-for-themselves/)
 - [celebrities with criminal records](https://celebs.allwomenstalk.com/celebrities-with-criminal-records-before-making-it-big/)
+- [famous actress in bikini](https://celebs.allwomenstalk.com/celebrities-bikini-ready-bodies/)
+- [mickey mouse club mouseketeers list](https://celebs.allwomenstalk.com/former-disney-mouseketeers-who-now-made-names-for-themselves/)
+- [does zac efron have a sister](https://celebs.allwomenstalk.com/celebrities-with-attractive-siblings/)
+- [julia roberts jon bon jovi](https://celebs.allwomenstalk.com/celebrities-who-are-terrible-to-work-with/)
 - [10 Funniest Animals ...](https://allwomenstalk.com/10-funniest-animals/)
 - [8 Recent Funny Movies You Have to Watch ...](https://allwomenstalk.com/8-recent-funny-movies-you-have-to-watch/)
 

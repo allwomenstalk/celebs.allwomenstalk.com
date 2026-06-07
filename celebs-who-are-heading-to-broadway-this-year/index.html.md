@@ -3,7 +3,7 @@ title: "7 Celebs Who Are Heading to Broadway This Year ..."
 description: "Carly Rae Jepsen; Zach Braff; Leighton Meester; Daniel Radcliffe; Neil Patrick Harris; More ..."
 url: "https://celebs.allwomenstalk.com/celebs-who-are-heading-to-broadway-this-year/"
 category: "celebs"
-last_updated: "2026-05-25"
+last_updated: "2026-06-07"
 ---
 
 # 7 Celebs Who Are Heading to Broadway This Year ...
@@ -56,16 +56,16 @@ Well, there you have it! These are just seven out of MANY celebs who are heading
 
 ## Related Posts
 
-- [hollywood bachelors](https://celebs.allwomenstalk.com/of-hollywoods-hottest-bachelors-and-bachelorettes/)
-- [brendan fraser sexiest man alive](https://celebs.allwomenstalk.com/celebrities-who-are-fading-quickly/)
-- [new york actresses over 50](https://celebs.allwomenstalk.com/actresses-over-50-who-are-still-fabulous/)
-- [lauren jauregui weight gain](https://celebs.allwomenstalk.com/celebs-who-rock-bold-brows-and-look-fab/)
-- [javier bardem and jeffrey dean morgan meet](https://celebs.allwomenstalk.com/celebrity-couples-who-look-alike/)
-- [celebrities with non famous spouses](https://celebs.allwomenstalk.com/celebrities-who-married-non-celebrities/)
-- [dilligaf tattoo meaning](https://celebs.allwomenstalk.com/celebs-who-are-obsessed-with-tattoos/)
-- [alyson hannigan looks like](https://celebs.allwomenstalk.com/celebrities-who-look-like-they-never-age/)
 - [zan efron](https://celebs.allwomenstalk.com/disney-celebs-whove-gone-on-to-do-big-things/)
+- [lauren jauregui weight gain](https://celebs.allwomenstalk.com/celebs-who-rock-bold-brows-and-look-fab/)
+- [alyson hannigan looks like](https://celebs.allwomenstalk.com/celebrities-who-look-like-they-never-age/)
+- [dilligaf tattoo meaning](https://celebs.allwomenstalk.com/celebs-who-are-obsessed-with-tattoos/)
+- [new york actresses over 50](https://celebs.allwomenstalk.com/actresses-over-50-who-are-still-fabulous/)
+- [brendan fraser sexiest man alive](https://celebs.allwomenstalk.com/celebrities-who-are-fading-quickly/)
 - [best celebrity interviews](https://celebs.allwomenstalk.com/best-celebrity-interviews-on-ellen/)
+- [celebrities with non famous spouses](https://celebs.allwomenstalk.com/celebrities-who-married-non-celebrities/)
+- [javier bardem and jeffrey dean morgan meet](https://celebs.allwomenstalk.com/celebrity-couples-who-look-alike/)
+- [hollywood bachelors](https://celebs.allwomenstalk.com/of-hollywoods-hottest-bachelors-and-bachelorettes/)
 - [7 of My Favorite Celebrities ...](https://celebs.allwomenstalk.com/7-of-my-favorite-celebrities/)
 - [8 Celebrities Who Live in NYC ...](https://celebs.allwomenstalk.com/celebrities-who-live-in-nyc/)
 

@@ -1,12 +1,12 @@
 ---
-title: "11 Celebrities Wearing Double Denim Who Wore It Best?"
+title: "11 Celebrities Wearing Double Denim – Who Wore It Best?"
 description: "Kate Bosworth; Chloe Sevigny; Gwen Stefani; Rihanna; Emmy Rossum; More ..."
 url: "https://celebs.allwomenstalk.com/celebrities-wearing-double-denim-who-wore-it-best/"
 category: "celebs"
-last_updated: "2026-05-25"
+last_updated: "2026-06-07"
 ---
 
-# 11 Celebrities Wearing Double Denim  Who Wore It Best?
+# 11 Celebrities Wearing Double Denim – Who Wore It Best?
 
 Celebrities wearing double denim are embracing one of most divisive trends around. Despite the Canadian Tuxedo having a chequered past, the denim on denim trend has been enjoying a fashionable revival. When done right, double denim can look quite on-trend. Take a look at these celebrities wearing double denim and be sure to let us know what you think about their outfits.
 
@@ -80,18 +80,18 @@ These are just a few celebrities we’ve spotted sporting denim on denim looks. 
 
 ## Related Posts
 
+- [striped t shirts](https://celebs.allwomenstalk.com/celebrities-wearing-a-striped-t-shirt-who-wore-it-best/)
 - [celebs in sweaters](https://celebs.allwomenstalk.com/celebrities-wearing-printed-sweaters-who-wore-it-best/)
-- [tilda swinton style](https://celebs.allwomenstalk.com/of-tilda-swintons-best-looks/)
+- [red carpet floral dress](https://celebs.allwomenstalk.com/floral-red-carpet-looks-from-the-celebrities-who-wore-it-best/)
 - [celebritybelly](https://celebs.allwomenstalk.com/belly-baring-celebrities-who-wore-it-best/)
 - [characters that wear camo](https://celebs.allwomenstalk.com/celebrities-wearing-camouflage-prints-who-wore-it-best/)
+- [tartan trousers womens](https://celebs.allwomenstalk.com/celebrities-wearing-the-tartan-trend-who-wore-it-best/)
+- [tilda swinton style](https://celebs.allwomenstalk.com/of-tilda-swintons-best-looks/)
+- [lady gaga seashell bikini](https://celebs.allwomenstalk.com/of-lady-gagas-best-looks-in/)
 - [green haired celebrities](https://celebs.allwomenstalk.com/celebrities-with-rainbow-hair-who-wore-it-best/)
 - [celebrities in coats](https://celebs.allwomenstalk.com/celebrities-wearing-colourful-coats-who-wore-it-best/)
-- [tartan trousers womens](https://celebs.allwomenstalk.com/celebrities-wearing-the-tartan-trend-who-wore-it-best/)
-- [striped t shirts](https://celebs.allwomenstalk.com/celebrities-wearing-a-striped-t-shirt-who-wore-it-best/)
-- [lady gaga seashell bikini](https://celebs.allwomenstalk.com/of-lady-gagas-best-looks-in/)
-- [red carpet floral dress](https://celebs.allwomenstalk.com/floral-red-carpet-looks-from-the-celebrities-who-wore-it-best/)
-- [10 Celebrities in Chequered Clothes  Who Wore It B...](https://celebs.allwomenstalk.com/celebrities-in-chequered-clothes-who-wore-it-best/)
-- [10 Celebrities Wearing Dungarees  Who Wore It Best](https://celebs.allwomenstalk.com/celebrities-wearing-dungarees-who-wore-it-best/)
+- [10 Celebrities in Chequered Clothes – Who Wore It ...](https://celebs.allwomenstalk.com/celebrities-in-chequered-clothes-who-wore-it-best/)
+- [10 Celebrities Wearing Dungarees – Who Wore It Bes...](https://celebs.allwomenstalk.com/celebrities-wearing-dungarees-who-wore-it-best/)
 
 ## Site Information
 

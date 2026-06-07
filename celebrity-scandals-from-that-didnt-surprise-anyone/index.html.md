@@ -1,12 +1,12 @@
 ---
-title: "9 Celebrity Scandals from 2013 That Didnt Surprise Anyone ..."
+title: "9 Celebrity Scandals from 2013 That Didn't Surprise Anyone ..."
 description: "Amanda Bynes Goes to Treatment; Justin Bieber Does Lots of Awful Things; Khloe and Lamar Fall Apart; And so do Kris and Bruce; Farrah Abraham Releases a Sex Tape; More ..."
 url: "https://celebs.allwomenstalk.com/celebrity-scandals-from-that-didnt-surprise-anyone/"
 category: "celebs"
-last_updated: "2026-05-25"
+last_updated: "2026-06-07"
 ---
 
-# 9 Celebrity Scandals from 2013 That Didnt Surprise Anyone ...
+# 9 Celebrity Scandals from 2013 That Didn't Surprise Anyone ...
 
 The celebrity scandals from 2013 ran the gamut between unexpected and unbelievable to decidedly unsurprising. Admit it, 2013 was the year for meltdowns and acts of crazy that didn't really surprise any of us. Some things were downright predictable, so that although they caused a fair amount of outrage, there wasn't all that much shock involved. Seriously, check out some of the biggest celebrity scandals from 2013 and tell me if you were really, truly surprised when they happened.
 
@@ -68,16 +68,16 @@ Now, all this being said, there were lots of really outrageously unbelievable ce
 
 ## Related Posts
 
-- [7 Tenacious Rumors about the Kardashians ...](https://celebs.allwomenstalk.com/tenacious-rumors-about-the-kardashians/)
-- [9 down to Earth Celebs Who Would Make Great BFFs ....](https://celebs.allwomenstalk.com/down-to-earth-celebs-who-would-make-great-bffs/)
-- [7 Engaged Celebrities Who Will Hopefully Tie the K...](https://celebs.allwomenstalk.com/engaged-celebrities-who-will-hopefully-tie-the-knot-in/)
-- [7 Heartbreaking Celebrity Splits That We Still Can...](https://celebs.allwomenstalk.com/heartbreaking-celebrity-splits-that-we-still-cant-get-over/)
 - [funny celebrity memes](https://7fun.net/of-the-best-celebrity-memes-on-the-internet/)
-- [9 Celebrity Relationship Scandals That We Still Ta...](https://celebs.allwomenstalk.com/celebrity-relationship-scandals-that-we-still-talk-about/)
 - [7 Breakout Stars of 2013 We Came to Love ...](https://celebs.allwomenstalk.com/breakout-stars-of-we-came-to-love/)
-- [7 Celebrity Feuds That Just Wont Stop ...](https://celebs.allwomenstalk.com/celebrity-feuds-that-just-wont-stop/)
-- [11 Super Sweet Celebrity Couples in 2014 ...](https://celebs.allwomenstalk.com/super-sweet-celebrity-couples-in/)
+- [9 down to Earth Celebs Who Would Make Great BFFs ....](https://celebs.allwomenstalk.com/down-to-earth-celebs-who-would-make-great-bffs/)
 - [7 Actresses Who Never Really Made It as Singers .....](https://celebs.allwomenstalk.com/actresses-who-never-really-made-it-as-singers/)
+- [7 Tenacious Rumors about the Kardashians ...](https://celebs.allwomenstalk.com/tenacious-rumors-about-the-kardashians/)
+- [7 Engaged Celebrities Who Will Hopefully Tie the K...](https://celebs.allwomenstalk.com/engaged-celebrities-who-will-hopefully-tie-the-knot-in/)
+- [9 Celebrity Relationship Scandals That We Still Ta...](https://celebs.allwomenstalk.com/celebrity-relationship-scandals-that-we-still-talk-about/)
+- [11 Super Sweet Celebrity Couples in 2014 ...](https://celebs.allwomenstalk.com/super-sweet-celebrity-couples-in/)
+- [7 Celebrity Feuds That Just Wont Stop ...](https://celebs.allwomenstalk.com/celebrity-feuds-that-just-wont-stop/)
+- [7 Heartbreaking Celebrity Splits That We Still Can...](https://celebs.allwomenstalk.com/heartbreaking-celebrity-splits-that-we-still-cant-get-over/)
 - [7 Recent Celebrity Breakups ...](https://celebs.allwomenstalk.com/recent-celebrity-breakups/)
 - [7 Greatly Astonishing Celebrity Scandals ...](https://celebs.allwomenstalk.com/greatly-astonishing-celebrity-scandals/)
 

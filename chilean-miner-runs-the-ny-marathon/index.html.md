@@ -3,7 +3,7 @@ title: "Chilean Miner Runs the NY Marathon ..."
 description: "Stay ahead, stay chic. Trusted guides on beauty, wellness, fashion, and everything that defines today's empowered woman."
 url: "https://celebs.allwomenstalk.com/chilean-miner-runs-the-ny-marathon/"
 category: "celebs"
-last_updated: "2026-05-25"
+last_updated: "2026-06-07"
 ---
 
 # Chilean Miner Runs the NY Marathon ...
@@ -26,14 +26,14 @@ Kudos to all those who completed the 26.2 miles while the rest of us sat on our 
 - [The LA Guy](https://allwomenstalk.com/the-la-guy/)
 - [Navy Man](https://allwomenstalk.com/navy-man/)
 - [Facing the Giants ...](https://allwomenstalk.com/facing-the-giants-2/)
-- [New York I Shall Return.](https://allwomenstalk.com/new-york-i-shall-return/)
-- [All in a Days Work.](https://allwomenstalk.com/all-in-a-days-work/)
+- [New York, I Shall Return.](https://allwomenstalk.com/new-york-i-shall-return/)
+- [All in a Day's Work.](https://allwomenstalk.com/all-in-a-days-work/)
 - [The Event of the Month: San Francisco ...](https://allwomenstalk.com/the-event-of-the-month-san-francisco/)
 - [Man Vs. Machine : Robots at Japanese Hospital ...](https://allwomenstalk.com/man-vs-machine-robots-at-japanese-hospital/)
-- [Theres an Interesting Story in Yesterdays New Yo ....](https://allwomenstalk.com/theres-an-interesting-story-in-yesterdays-new-yo/)
-- [Theres an Interesting Story in Yesterdays New Yo ....](https://allwomenstalk.com/theres-an-interesting-story-in-yesterdays-new-yo-snarkspot/)
+- [There's an Interesting Story in Yesterday's New Yo...](https://allwomenstalk.com/theres-an-interesting-story-in-yesterdays-new-yo/)
+- [There's an Interesting Story in Yesterday's New Yo...](https://allwomenstalk.com/theres-an-interesting-story-in-yesterdays-new-yo-snarkspot/)
 - [Chin Chin](https://allwomenstalk.com/chin-chin/)
-- [The Trippers Los Angeles Premiere ...](https://allwomenstalk.com/the-trippers-los-angeles-premiere/)
+- [The Tripper's Los Angeles Premiere ...](https://allwomenstalk.com/the-trippers-los-angeles-premiere/)
 
 ## Site Information
 

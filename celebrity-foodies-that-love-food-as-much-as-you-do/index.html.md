@@ -3,7 +3,7 @@ title: "9 Celebrity Foodies That Love Food as Much as You do ..."
 description: "Kelis; Jesse Williams; Oprah Winfrey; Jordan Dunn; Aziz Ansari; More ..."
 url: "https://celebs.allwomenstalk.com/celebrity-foodies-that-love-food-as-much-as-you-do/"
 category: "celebs"
-last_updated: "2026-05-25"
+last_updated: "2026-06-07"
 ---
 
 # 9 Celebrity Foodies That Love Food as Much as You do ...
@@ -68,17 +68,17 @@ Well, there you have it. These are just nine out of many celebrity foodies! Can 
 
 ## Related Posts
 
-- [celebrities who went to college](https://celebs.allwomenstalk.com/hollywood-celebrities-with-college-degrees/)
-- [how did mike tysons daughter die](https://celebs.allwomenstalk.com/male-celebrities-who-lost-children/)
+- [celebrities who support gender equality](https://celebs.allwomenstalk.com/heforshe-male-celebs-supporting-gender-equality/)
 - [taylor and jake gyllenhaal age difference](https://celebs.allwomenstalk.com/for-these-celebs-age-aint-nothing-but-a-number/)
+- [celebrities who went to college](https://celebs.allwomenstalk.com/hollywood-celebrities-with-college-degrees/)
 - [kaley cuoco bowling movie](https://celebs.allwomenstalk.com/celebrity-throwbacks-dcom-edition/)
 - [funny ice bucket challenge](https://celebs.allwomenstalk.com/funniest-celebrity-ice-bucket-challenge-videos/)
-- [celebrities who support gender equality](https://celebs.allwomenstalk.com/heforshe-male-celebs-supporting-gender-equality/)
-- [cast of twilight dancers](https://movies.allwomenstalk.com/worst-dancers-on-tv-and-in-the-movies/)
 - [vince vaughn spouse](https://celebs.allwomenstalk.com/celebrities-who-are-married-to-non-celebrities/)
+- [how did mike tysons daughter die](https://celebs.allwomenstalk.com/male-celebrities-who-lost-children/)
+- [cast of twilight dancers](https://movies.allwomenstalk.com/worst-dancers-on-tv-and-in-the-movies/)
 - [romance real life](https://movies.allwomenstalk.com/some-of-the-best-real-life-romances-that-started-on-set/)
 - [stars of the 1940s](https://celebs.allwomenstalk.com/reasons-to-emulate-1940s-movie-stars/)
-- [8 Tasty Food TV Shows I Absolutely Couldnt Live wi...](https://movies.allwomenstalk.com/tasty-food-tv-shows-i-absolutely-couldnt-live-without/)
+- [8 Tasty Food TV Shows I Absolutely Couldn't Live w...](https://movies.allwomenstalk.com/tasty-food-tv-shows-i-absolutely-couldnt-live-without/)
 - [8 Mouth-Watering Foodie Films ...](https://movies.allwomenstalk.com/mouth-watering-foodie-films/)
 
 ## Site Information

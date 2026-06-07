@@ -3,7 +3,7 @@ title: "Stars Come out in Support of DADT Repeal ..."
 description: "Stay ahead, stay chic. Trusted guides on beauty, wellness, fashion, and everything that defines today's empowered woman."
 url: "https://celebs.allwomenstalk.com/stars-come-out-in-support-of-dadt-repeal/"
 category: "celebs"
-last_updated: "2026-05-25"
+last_updated: "2026-06-07"
 ---
 
 # Stars Come out in Support of DADT Repeal ...
@@ -22,18 +22,18 @@ Various other stars including Neil Patrick Harris, Kathy Griffin, Sophia Bush (f
 
 ## Related Posts
 
-- [favorite vines](https://gardening.allwomenstalk.com/5-of-my-favorite-vines/)
-- [awesome birds](https://gardening.allwomenstalk.com/5-awesome-birds/)
+- [7 People Who Shouldn't Have Been Assassinated ...](https://celebs.allwomenstalk.com/7-people-who-shouldnt-have-been-assassinated/)
 - [mythbusters obama](https://celebs.allwomenstalk.com/obama-on-mythbusters/)
-- [rare and unusual types of phobias](https://health.allwomenstalk.com/extraordinary-rare-phobias-and-their-meaning/)
-- [Cooks Love for Mother Earth Revealed...](https://celebs.allwomenstalk.com/cooks-love-for-mother-earth-revealed/)
-- [Larry King Live Ends after 25 Years ...](https://celebs.allwomenstalk.com/larry-king-live-ends-after-25-years/)
-- [New Year Bash Wrap-up: Part 1 ...](https://celebs.allwomenstalk.com/new-year-bash-wrap-up-part-1/)
-- [charlie lifestyle](https://celebs.allwomenstalk.com/this-is-charlies-lifestyle-and-it-is-what-it-is/)
-- [7 People Who Shouldnt Have Been Assassinated ...](https://celebs.allwomenstalk.com/7-people-who-shouldnt-have-been-assassinated/)
+- [Cook's Love for Mother Earth Revealed...](https://celebs.allwomenstalk.com/cooks-love-for-mother-earth-revealed/)
 - [amazing butterflies](https://gardening.allwomenstalk.com/5-amazing-butterflies/)
+- [awesome birds](https://gardening.allwomenstalk.com/5-awesome-birds/)
+- [rare and unusual types of phobias](https://health.allwomenstalk.com/extraordinary-rare-phobias-and-their-meaning/)
+- [charlie lifestyle](https://celebs.allwomenstalk.com/this-is-charlies-lifestyle-and-it-is-what-it-is/)
+- [New Year Bash Wrap-up: Part 1 ...](https://celebs.allwomenstalk.com/new-year-bash-wrap-up-part-1/)
+- [Larry King Live Ends after 25 Years ...](https://celebs.allwomenstalk.com/larry-king-live-ends-after-25-years/)
+- [favorite vines](https://gardening.allwomenstalk.com/5-of-my-favorite-vines/)
 - [The Exes ...](https://allwomenstalk.com/the-exes/)
-- [Star Sightings at the Sundance Film Festival Janua...](https://allwomenstalk.com/star-sightings-at-the-sundance-film-festival-january-18-22/)
+- [Star Sightings at the Sundance Film Festival, Janu...](https://allwomenstalk.com/star-sightings-at-the-sundance-film-festival-january-18-22/)
 
 ## Site Information
 

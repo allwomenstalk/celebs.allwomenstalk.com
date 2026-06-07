@@ -1,12 +1,12 @@
 ---
-title: "11 Celebrities with Rainbow Hair Who Wore It Best?"
+title: "11 Celebrities with Rainbow Hair – Who Wore It Best?"
 description: "Ke$ha; Lady Gaga; Katy Perry; Azealia Banks; Demi Lovato; More ..."
 url: "https://celebs.allwomenstalk.com/celebrities-with-rainbow-hair-who-wore-it-best/"
 category: "celebs"
-last_updated: "2026-05-25"
+last_updated: "2026-06-07"
 ---
 
-# 11 Celebrities with Rainbow Hair  Who Wore It Best?
+# 11 Celebrities with Rainbow Hair – Who Wore It Best?
 
 There seems to be no shortage of celebrities with [rainbow hair](https://hair.allwomenstalk.com/are-you-really-ready-for-rainbow-hair/) lately. Bright hairstyles have been a popular hair trend for the past couple of seasons and we’ve seen hairdos in every colour of the rainbow. Whether it’s a full head of colour or more subtle dip dyed ends, there have been a number of celebrities keen to dye their hair a range of bright and kooky colours. Take a look at these celebrities with rainbow hair and let us know who you think rocked the best locks.
 
@@ -80,18 +80,18 @@ Bright hairstyles have certainly been enjoying their time in the limelight. Thes
 
 ## Related Posts
 
-- [lady gaga seashell bikini](https://celebs.allwomenstalk.com/of-lady-gagas-best-looks-in/)
-- [characters that wear camo](https://celebs.allwomenstalk.com/celebrities-wearing-camouflage-prints-who-wore-it-best/)
 - [celebrity see through clothes](https://celebs.allwomenstalk.com/most-revealing-celebrity-outfits-from-the-red-carpet/)
-- [celebrities in suit](https://celebs.allwomenstalk.com/celebs-who-rocked-a-suit-on-the-red-carpet/)
+- [celebrities in black turtlenecks](https://fashion.allwomenstalk.com/celebs-who-rocked-turtlenecks-who-wore-it-best/)
 - [what color lipstick to wear with a navy blue dress](https://celebs.allwomenstalk.com/celebrities-wearing-navy-outfits-who-wore-it-best-2/)
 - [celebrity travel outfits](https://celebs.allwomenstalk.com/stylish-and-wearable-celebrity-airport-outfits-who-wore-it-best/)
-- [celebs in sweaters](https://celebs.allwomenstalk.com/celebrities-wearing-printed-sweaters-who-wore-it-best/)
-- [short celebrity sequin dress](https://celebs.allwomenstalk.com/celebrities-wearing-sparkly-sequin-dresses-who-wore-it-best/)
 - [celebrities in coats](https://celebs.allwomenstalk.com/celebrities-wearing-colourful-coats-who-wore-it-best/)
-- [celebrities in black turtlenecks](https://fashion.allwomenstalk.com/celebs-who-rocked-turtlenecks-who-wore-it-best/)
-- [10 Celebrities in Red Dresses  Who Wore It Best](https://celebs.allwomenstalk.com/celebrities-in-red-dresses-who-wore-it-best/)
-- [10 Celebrities in Chequered Clothes  Who Wore It B...](https://celebs.allwomenstalk.com/celebrities-in-chequered-clothes-who-wore-it-best/)
+- [celebs in sweaters](https://celebs.allwomenstalk.com/celebrities-wearing-printed-sweaters-who-wore-it-best/)
+- [characters that wear camo](https://celebs.allwomenstalk.com/celebrities-wearing-camouflage-prints-who-wore-it-best/)
+- [short celebrity sequin dress](https://celebs.allwomenstalk.com/celebrities-wearing-sparkly-sequin-dresses-who-wore-it-best/)
+- [lady gaga seashell bikini](https://celebs.allwomenstalk.com/of-lady-gagas-best-looks-in/)
+- [celebrities in suit](https://celebs.allwomenstalk.com/celebs-who-rocked-a-suit-on-the-red-carpet/)
+- [10 Celebrities in Red Dresses – Who Wore It Best?](https://celebs.allwomenstalk.com/celebrities-in-red-dresses-who-wore-it-best/)
+- [10 Celebrities in Chequered Clothes – Who Wore It ...](https://celebs.allwomenstalk.com/celebrities-in-chequered-clothes-who-wore-it-best/)
 
 ## Site Information
 

@@ -1,12 +1,12 @@
 ---
-title: "7 Celebrities in Pencil Skirts Who Wore It Best?"
+title: "7 Celebrities in Pencil Skirts – Who Wore It Best?"
 description: "Cate Blanchett; Sandra Bullock; Olivia Wilde; Rihanna; Miranda Kerr; More ..."
 url: "https://celebs.allwomenstalk.com/celebrities-in-pencil-skirts-who-wore-it-best/"
 category: "celebs"
-last_updated: "2026-05-25"
+last_updated: "2026-06-07"
 ---
 
-# 7 Celebrities in Pencil Skirts  Who Wore It Best?
+# 7 Celebrities in Pencil Skirts – Who Wore It Best?
 
 When it comes to the pencil skirt and who wore it best, there are plenty of celebrity contenders. The pencil skirt is having a real fashion moment right now, on and off the red carpet. It’s sleek and ladylike and can be styled in several different ways, as you’ll see below. Take a look at the following celebrities rocking their pencil skirts and let us know who wore it best.
 
@@ -56,18 +56,18 @@ As you can see, these are all very different takes on styling the pencil skirt. 
 
 ## Related Posts
 
-- [celebrities suit](https://celebs.allwomenstalk.com/celebrities-rocking-the-power-suit-who-wore-it-best/)
-- [simple red carpet dresses](https://celebs.allwomenstalk.com/of-the-craziest-red-carpet-dresses-of-all-time/)
-- [crop top actress](https://celebs.allwomenstalk.com/celebrities-in-crop-tops-who-wore-it-best/)
-- [celebrity silver dress](https://celebs.allwomenstalk.com/celebrities-in-metallic-clothes-who-wore-it-best/)
-- [orange theme party outfit](https://celebs.allwomenstalk.com/celebrities-in-little-orange-dresses-who-wore-it-best/)
-- [desperate housewives gabrielle solis outfits](https://fashion.allwomenstalk.com/most-stylish-tv-characters/)
-- [celebrities wearing dresses](https://celebs.allwomenstalk.com/celebrities-in-cut-out-dresses-who-wore-it-best/)
-- [female celebrities wearing leather jackets](https://celebs.allwomenstalk.com/celebrities-wearing-leather-pants-who-wore-it-best/)
-- [characters with a green jacket](https://celebs.allwomenstalk.com/celebrities-wearing-army-green-jackets-who-wore-it-best/)
 - [celebrities clothes](https://celebs.allwomenstalk.com/celebrities-in-chequered-clothes-who-wore-it-best/)
-- [7 Celebrities Wearing Digital Print Dresses  Who W...](https://celebs.allwomenstalk.com/celebrities-wearing-digital-print-dresses-who-wore-it-better/)
-- [10 Celebrities Wearing Striped Dresses  Who Wore I...](https://celebs.allwomenstalk.com/celebrities-wearing-striped-dresses-who-wore-it-best/)
+- [characters with a green jacket](https://celebs.allwomenstalk.com/celebrities-wearing-army-green-jackets-who-wore-it-best/)
+- [desperate housewives gabrielle solis outfits](https://fashion.allwomenstalk.com/most-stylish-tv-characters/)
+- [celebrity silver dress](https://celebs.allwomenstalk.com/celebrities-in-metallic-clothes-who-wore-it-best/)
+- [simple red carpet dresses](https://celebs.allwomenstalk.com/of-the-craziest-red-carpet-dresses-of-all-time/)
+- [celebrities suit](https://celebs.allwomenstalk.com/celebrities-rocking-the-power-suit-who-wore-it-best/)
+- [celebrities wearing dresses](https://celebs.allwomenstalk.com/celebrities-in-cut-out-dresses-who-wore-it-best/)
+- [crop top actress](https://celebs.allwomenstalk.com/celebrities-in-crop-tops-who-wore-it-best/)
+- [female celebrities wearing leather jackets](https://celebs.allwomenstalk.com/celebrities-wearing-leather-pants-who-wore-it-best/)
+- [orange theme party outfit](https://celebs.allwomenstalk.com/celebrities-in-little-orange-dresses-who-wore-it-best/)
+- [7 Celebrities Wearing Digital Print Dresses – Who ...](https://celebs.allwomenstalk.com/celebrities-wearing-digital-print-dresses-who-wore-it-better/)
+- [10 Celebrities Wearing Striped Dresses – Who Wore ...](https://celebs.allwomenstalk.com/celebrities-wearing-striped-dresses-who-wore-it-best/)
 
 ## Site Information
 

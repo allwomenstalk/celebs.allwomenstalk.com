@@ -1,12 +1,12 @@
 ---
-title: "Katy Perry Channels the Roaring 20s for Ghd ..."
+title: "Katy Perry Channels the Roaring 20's for Ghd ..."
 description: "Stay ahead, stay chic. Trusted guides on beauty, wellness, fashion, and everything that defines today's empowered woman."
 url: "https://celebs.allwomenstalk.com/katy-perry-channels-the-roaring-20s-for-ghd/"
 category: "celebs"
-last_updated: "2026-05-25"
+last_updated: "2026-06-07"
 ---
 
-# Katy Perry Channels the Roaring 20s for Ghd ...
+# Katy Perry Channels the Roaring 20's for Ghd ...
 
 Katy Perry belongs to the rare species of women who can play both naughty and nice and if you dare to disagree, check her out portraying both the evil queen and sweet Snow White flawlessly in this new holiday campaign for ghd's Scarlet collection.
 
@@ -22,16 +22,16 @@ I love Katy, I love the New York backdrop and of course, I love the hair! ghd's 
 
 ## Related Posts
 
-- [justin holding selenas hand](https://celebs.allwomenstalk.com/selena-justin-hold-hands-almost/)
-- [kristen stewart](https://celebs.allwomenstalk.com/kristen-stewart-gets-edgy-for-vogue-italia/)
-- [Adame Levine and Anne V for Vogue Russia: Hot or a...](https://celebs.allwomenstalk.com/adame-levine-and-anne-v-for-vogue-russia-hot-or-a-bit-much/)
-- [ed oneill photo fan](https://celebs.allwomenstalk.com/ed-oneill-is-janes-biggest-fan/)
-- [marisa nsfw](https://celebs.allwomenstalk.com/marisa-miller-lets-them-loose-for-a-cause-nsfw/)
-- [Angelina Reveals Her Latest Talent](https://celebs.allwomenstalk.com/angelina-reveals-her-latest-talent/)
-- [Justin the New Man in Olivias Life](https://celebs.allwomenstalk.com/justin-the-new-man-in-olivias-life/)
-- [Victoria Beckham: Thank God David Looks like Crap....](https://celebs.allwomenstalk.com/victoria-beckham-thank-god-david-looks-like-crap/)
-- [vanessadoes](https://celebs.allwomenstalk.com/vanessa-does-sexy/)
 - [kate winslet und liz taylor](https://celebs.allwomenstalk.com/kate-winslet-channels-elizabeth-taylor-for-v-magazine/)
+- [Angelina Reveals Her Latest Talent…](https://celebs.allwomenstalk.com/angelina-reveals-her-latest-talent/)
+- [vanessadoes](https://celebs.allwomenstalk.com/vanessa-does-sexy/)
+- [ed o'neill photo fan](https://celebs.allwomenstalk.com/ed-oneill-is-janes-biggest-fan/)
+- [Justin the New Man in Olivia’s Life…](https://celebs.allwomenstalk.com/justin-the-new-man-in-olivias-life/)
+- [Victoria Beckham: Thank God David Looks like Crap....](https://celebs.allwomenstalk.com/victoria-beckham-thank-god-david-looks-like-crap/)
+- [kristen stewart](https://celebs.allwomenstalk.com/kristen-stewart-gets-edgy-for-vogue-italia/)
+- [justin holding selena's hand](https://celebs.allwomenstalk.com/selena-justin-hold-hands-almost/)
+- [Adame Levine and Anne V for Vogue Russia: Hot or a...](https://celebs.allwomenstalk.com/adame-levine-and-anne-v-for-vogue-russia-hot-or-a-bit-much/)
+- [marisa nsfw](https://celebs.allwomenstalk.com/marisa-miller-lets-them-loose-for-a-cause-nsfw/)
 - [20 Fabulous Celebrity Hair Cuts ...](https://hair.allwomenstalk.com/fabulous-celebrity-hair-cuts/)
 - [Ginger Spice Wants to Go Posh ...](https://allwomenstalk.com/ginger-spice-wants-to-go-posh/)
 

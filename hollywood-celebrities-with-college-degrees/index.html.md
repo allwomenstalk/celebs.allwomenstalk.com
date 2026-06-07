@@ -3,7 +3,7 @@ title: "7 Hollywood Celebrities with College Degrees ..."
 description: "Rowan Atkinson; Matthew McConaughey; Lupita Nyong’o; Ashley Judd; Elizabeth Banks; More ..."
 url: "https://celebs.allwomenstalk.com/hollywood-celebrities-with-college-degrees/"
 category: "celebs"
-last_updated: "2026-05-25"
+last_updated: "2026-06-07"
 ---
 
 # 7 Hollywood Celebrities with College Degrees ...
@@ -56,15 +56,15 @@ Any more Hollywood celebrities who earned college degrees that you know of?
 
 ## Related Posts
 
-- [disney look alikes](https://celebs.allwomenstalk.com/whoa-celebrities-and-their-disney-lookalikes/)
+- [taylor and jake gyllenhaal age difference](https://celebs.allwomenstalk.com/for-these-celebs-age-aint-nothing-but-a-number/)
 - [vince vaughn spouse](https://celebs.allwomenstalk.com/celebrities-who-are-married-to-non-celebrities/)
 - [funny ice bucket challenge](https://celebs.allwomenstalk.com/funniest-celebrity-ice-bucket-challenge-videos/)
 - [kaley cuoco bowling movie](https://celebs.allwomenstalk.com/celebrity-throwbacks-dcom-edition/)
-- [cast of twilight dancers](https://movies.allwomenstalk.com/worst-dancers-on-tv-and-in-the-movies/)
 - [romance real life](https://movies.allwomenstalk.com/some-of-the-best-real-life-romances-that-started-on-set/)
-- [taylor and jake gyllenhaal age difference](https://celebs.allwomenstalk.com/for-these-celebs-age-aint-nothing-but-a-number/)
+- [disney look alikes](https://celebs.allwomenstalk.com/whoa-celebrities-and-their-disney-lookalikes/)
 - [how did mike tysons daughter die](https://celebs.allwomenstalk.com/male-celebrities-who-lost-children/)
 - [stars of the 1940s](https://celebs.allwomenstalk.com/reasons-to-emulate-1940s-movie-stars/)
+- [cast of twilight dancers](https://movies.allwomenstalk.com/worst-dancers-on-tv-and-in-the-movies/)
 - [celebrities who support gender equality](https://celebs.allwomenstalk.com/heforshe-male-celebs-supporting-gender-equality/)
 - [7 of My Favorite Celebrities ...](https://celebs.allwomenstalk.com/7-of-my-favorite-celebrities/)
 - [7 Celebrities with Addictions ...](https://celebs.allwomenstalk.com/celebrities-with-addictions/)

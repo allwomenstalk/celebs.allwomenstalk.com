@@ -1,12 +1,12 @@
 ---
-title: "Lets Celebrate Jack Nicholsons 80th Birthday ..."
+title: "Let's Celebrate Jack Nicholson's 80th Birthday ..."
 description: "A Few Good Men; Batman; Five Easy Pieces; Anger Management; Chinatown; More ..."
 url: "https://celebs.allwomenstalk.com/lets-celebrate-jack-nicholsons-80th-birthday/"
 category: "celebs"
-last_updated: "2026-05-25"
+last_updated: "2026-06-07"
 ---
 
-# Lets Celebrate Jack Nicholsons 80th Birthday ...
+# Let's Celebrate Jack Nicholson's 80th Birthday ...
 
 Happy birthday, Jack Nicholson! The actor turns 80 on April 22 2017 and we really couldn't pass up the opportunity to celebrate with him. One of the true greats who has adorned the glittering Hollywood mantle for decades he has made brilliant films and kept us enthralled. Did you know Jack Nicholson is one of only two people to be nominated for an acting Oscar at least once every decade between 1960s and the 2000s? Amazing huh? Testament to his craft. Let's look back at some of his great roles with his best quotes. Happy Birthday Jack Nicholson.
 
@@ -92,18 +92,18 @@ Do you have a favorite Jack Nicholson movie? Mine is As Good As It Gets.
 
 ## Related Posts
 
-- [american horror story hh holmes](https://movies.allwomenstalk.com/real-american-horror-stories/)
-- [duplass brothers](https://celebs.allwomenstalk.com/the-time-i-met-the-duplass-brothers/)
-- [asmr magic](https://inspiration.allwomenstalk.com/best-asmrtists-to-follow-on-youtube/)
-- [shelly knotek movie where to watch](https://lifestyle.allwomenstalk.com/podcasts-about-true-crimes/)
-- [titus andromedon gif](https://movies.allwomenstalk.com/of-the-best-moments-of-titus-andromedon-from-the-unbreakable-kimmy-schmidt/)
-- [best short series](https://movies.allwomenstalk.com/mini-series-to-binge-watch/)
-- [provocative stories](https://books.allwomenstalk.com/a-short-story-provocative-part-one/)
-- [on screen kisses](https://movies.allwomenstalk.com/epic-on-screen-kisses-to-hit-you-in-the-feels/)
-- [something about love that drives me crazy](https://love.allwomenstalk.com/ways-men-drive-us-crazy/)
 - [lowkey fangirling](https://celebs.allwomenstalk.com/the-stages-of-being-a-fangirl-only-hard-core-fans-can-relate-to/)
+- [titus andromedon gif](https://movies.allwomenstalk.com/of-the-best-moments-of-titus-andromedon-from-the-unbreakable-kimmy-schmidt/)
+- [on screen kisses](https://movies.allwomenstalk.com/epic-on-screen-kisses-to-hit-you-in-the-feels/)
+- [provocative stories](https://books.allwomenstalk.com/a-short-story-provocative-part-one/)
+- [asmr magic](https://inspiration.allwomenstalk.com/best-asmrtists-to-follow-on-youtube/)
+- [american horror story hh holmes](https://movies.allwomenstalk.com/real-american-horror-stories/)
+- [best short series](https://movies.allwomenstalk.com/mini-series-to-binge-watch/)
+- [something about love that drives me crazy](https://love.allwomenstalk.com/ways-men-drive-us-crazy/)
+- [duplass brothers](https://celebs.allwomenstalk.com/the-time-i-met-the-duplass-brothers/)
+- [shelly knotek movie where to watch](https://lifestyle.allwomenstalk.com/podcasts-about-true-crimes/)
 - [Leslie Nielsen Passes Away at 84 ...](https://celebs.allwomenstalk.com/leslie-nielsen-passes-away-at-84/)
-- [Oscar Frock Horrors - CQs Letters to the Stars ...](https://allwomenstalk.com/oscar-frock-horrors-cqs-letters-to-the-stars/)
+- [Oscar Frock Horrors - CQ's Letters to the Stars .....](https://allwomenstalk.com/oscar-frock-horrors-cqs-letters-to-the-stars/)
 
 ## Site Information
 

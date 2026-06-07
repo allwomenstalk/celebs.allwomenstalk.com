@@ -1,12 +1,12 @@
 ---
-title: "10 Celebrities Wearing Leather Pants Who Wore It Best?"
+title: "10 Celebrities Wearing Leather Pants – Who Wore It Best?"
 description: "Olivia Palermo; Kate Bosworth; Zoe Saldana; Katharine McPhee; Chloe Moretz; More ..."
 url: "https://celebs.allwomenstalk.com/celebrities-wearing-leather-pants-who-wore-it-best/"
 category: "celebs"
-last_updated: "2026-05-25"
+last_updated: "2026-06-07"
 ---
 
-# 10 Celebrities Wearing Leather Pants  Who Wore It Best?
+# 10 Celebrities Wearing Leather Pants – Who Wore It Best?
 
 Leather-look clothing is a big trend right now and celebrities wearing leather pants are a pretty common sight these days. Trading your ordinary jeans for a pair of leather or faux leather pants is a stylish way to give a basic outfit a more on-trend twist. You can wear your leather pants with anything from an oversized sweater to a chic tuxedo jacket. Take a look at these celebrities wearing leather pants and let us know who you think wore it best.
 
@@ -74,18 +74,18 @@ These are just a few examples of how celebrities have been wearing their leather
 
 ## Related Posts
 
-- [celebrities with overalls](https://celebs.allwomenstalk.com/celebrities-wearing-dungarees-who-wore-it-best/)
-- [celebrities in polka dot dress](https://celebs.allwomenstalk.com/celebrities-wearing-polka-dots-who-wore-it-best/)
-- [celebrities in all white outfits](https://celebs.allwomenstalk.com/celebrities-wearing-all-white-outfits-who-wore-it-best/)
+- [jordana brewster](https://celebs.allwomenstalk.com/celebrities-wearing-printed-pants-who-wore-it-best/)
 - [celebrity fashion blog](https://celebs.allwomenstalk.com/celebrity-fashion-face-offs-who-wore-it-best/)
 - [celebrity short dresses](https://celebs.allwomenstalk.com/celebrities-wearing-lace-dresses-who-wore-it-best/)
-- [structured maxi skirt](https://celebs.allwomenstalk.com/celebrities-wearing-maxi-skirts-who-wore-it-best/)
-- [celebrities 54](https://celebs.allwomenstalk.com/celebrities-wearing-striped-dresses-who-wore-it-best/)
-- [jordana brewster](https://celebs.allwomenstalk.com/celebrities-wearing-printed-pants-who-wore-it-best/)
-- [celebrity festival outfits](https://celebs.allwomenstalk.com/celebrities-festival-fashion-who-wore-it-best/)
+- [celebrities in all white outfits](https://celebs.allwomenstalk.com/celebrities-wearing-all-white-outfits-who-wore-it-best/)
 - [floral dress celebrity](https://celebs.allwomenstalk.com/celebrities-wearing-floral-dresses-who-wore-it-best/)
-- [10 Celebrities in Red Dresses  Who Wore It Best](https://celebs.allwomenstalk.com/celebrities-in-red-dresses-who-wore-it-best/)
-- [10 Celebrities in Chequered Clothes  Who Wore It B...](https://celebs.allwomenstalk.com/celebrities-in-chequered-clothes-who-wore-it-best/)
+- [celebrities in polka dot dress](https://celebs.allwomenstalk.com/celebrities-wearing-polka-dots-who-wore-it-best/)
+- [structured maxi skirt](https://celebs.allwomenstalk.com/celebrities-wearing-maxi-skirts-who-wore-it-best/)
+- [celebrities 5'4](https://celebs.allwomenstalk.com/celebrities-wearing-striped-dresses-who-wore-it-best/)
+- [celebrities with overalls](https://celebs.allwomenstalk.com/celebrities-wearing-dungarees-who-wore-it-best/)
+- [celebrity festival outfits](https://celebs.allwomenstalk.com/celebrities-festival-fashion-who-wore-it-best/)
+- [10 Celebrities in Red Dresses – Who Wore It Best?](https://celebs.allwomenstalk.com/celebrities-in-red-dresses-who-wore-it-best/)
+- [10 Celebrities in Chequered Clothes – Who Wore It ...](https://celebs.allwomenstalk.com/celebrities-in-chequered-clothes-who-wore-it-best/)
 
 ## Site Information
 

@@ -1,12 +1,12 @@
 ---
-title: "20 Photos of Leightons Steamy Kiss and a Vespa Ride ..."
+title: "20 Photos of Leighton's Steamy Kiss and a Vespa Ride ..."
 description: "Stay ahead, stay chic. Trusted guides on beauty, wellness, fashion, and everything that defines today's empowered woman."
 url: "https://celebs.allwomenstalk.com/leightons-steamy-kiss/"
 category: "celebs"
-last_updated: "2026-05-25"
+last_updated: "2026-06-07"
 ---
 
-# 20 Photos of Leightons Steamy Kiss and a Vespa Ride ...
+# 20 Photos of Leighton's Steamy Kiss and a Vespa Ride ...
 
 [Leighton Meester](https://celebs.allwomenstalk.com/tag/leighton-meester/) and [Luke Bracey](https://celebs.allwomenstalk.com/tag/luke-bracey/) kiss passionately whilst filming 'Monte Carlo'. Also filming were co-stars Selena Gomez and Katie Cassidy. My favorite par was when they rode away on a cute little Vespa.
 
@@ -54,18 +54,18 @@ Doesn't Leighton's vintage dress go perfectly with the Vespa?
 
 ## Related Posts
 
-- [paris la palette maximalist eyeshadow blinged and ...](https://celebs.allwomenstalk.com/perry-leaves-for-letterman/)
+- [@boobs](https://celebs.allwomenstalk.com/rihannas-boobs-and-barnet/)
 - [pictures of missy elliott](https://celebs.allwomenstalk.com/missy-elliott-at-wireless-festival/)
-- [jessica biel mouth](https://celebs.allwomenstalk.com/biel-is-happy-in-london/)
-- [boobs](https://celebs.allwomenstalk.com/rihannas-boobs-and-barnet/)
 - [bob marley jerusalem](https://celebs.allwomenstalk.com/missy-in-jerusalem/)
+- [identify the place shown in the picture. a. machu ...](https://celebs.allwomenstalk.com/jackson-films-in-harlem/)
+- [paris la palette maximalist eyeshadow blinged and ...](https://celebs.allwomenstalk.com/perry-leaves-for-letterman/)
+- [jessica biel mouth](https://celebs.allwomenstalk.com/biel-is-happy-in-london/)
+- [aew wardrobe malfunction](https://celebs.allwomenstalk.com/jades-revealing-moment/)
+- [celebs in stockings and suspenders](https://celebs.allwomenstalk.com/momsen-looks-like-a-stripper/)
 - [4 Photos of Barbara in the Village ...](https://celebs.allwomenstalk.com/barbara-in-the-village/)
 - [pictures of heidi klum children](https://celebs.allwomenstalk.com/klum-vacations-with-the-kids/)
-- [celebs in stockings and suspenders](https://celebs.allwomenstalk.com/momsen-looks-like-a-stripper/)
-- [identify the place shown in the picture. a. machu ...](https://celebs.allwomenstalk.com/jackson-films-in-harlem/)
-- [aew wardrobe malfunction](https://celebs.allwomenstalk.com/jades-revealing-moment/)
 - [10 Hottest Celebrity Vacation Spots ...](https://travel.allwomenstalk.com/hottest-celebrity-vacation-spots/)
-- [5 Photos of Antonio Banderas Motorbike Team ...](https://celebs.allwomenstalk.com/antonios-motorbike-team/)
+- [5 Photos of Antonio Banderas' Motorbike Team ...](https://celebs.allwomenstalk.com/antonios-motorbike-team/)
 
 ## Site Information
 

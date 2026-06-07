@@ -1,12 +1,12 @@
 ---
-title: "8 Favourite South Park Celebrity Targets ..."
+title: "8 Favourite 'South Park' Celebrity Targets ..."
 description: "Tom Cruise; Barbra Streisand; Justin Bieber; Mel Gibson; Saddam Hussein; More ..."
 url: "https://celebs.allwomenstalk.com/favourite-south-park-celebrity-targets/"
 category: "celebs"
-last_updated: "2026-05-25"
+last_updated: "2026-06-07"
 ---
 
-# 8 Favourite South Park Celebrity Targets ...
+# 8 Favourite 'South Park' Celebrity Targets ...
 
 South Park is now into its fifteenth series, and regular viewers can’t have failed to notice the regular themes that pop up. Aside from Kenny dying, nearly every episode features a celebrity (or several) being made fun of. So if you like to see well-known figures getting what they almost certainly deserve, here are my favourite South Park celebrity targets …
 
@@ -50,15 +50,15 @@ Top Photo Credit: [Hatake_Tata](https://www.flickr.com/photos/taynahcastro/20879
 
 ## Related Posts
 
-- [current events with celebrities](https://celebs.allwomenstalk.com/best-celebrity-gossip-websites/)
 - [celebrity cancer survivors](https://celebs.allwomenstalk.com/wonderfully-remarkable-celebrity-cancer-survivor-stories/)
-- [celebrity news 2011](https://celebs.allwomenstalk.com/big-celebrity-news-of/)
-- [popbyes](https://allwomenstalk.com/kate-winslets-hollywood-life/)
-- [Lepaparazzi News Update: the 10 List: Hollywoods W...](https://allwomenstalk.com/lepaparazzi-news-update-the-10-list-hollywoods-weekly-buzz/)
-- [most famous affairs](https://love.allwomenstalk.com/extraordinary-famous-love-affairs/)
+- [Lepaparazzi News Update: the '10' List: Hollywood'...](https://allwomenstalk.com/lepaparazzi-news-update-the-10-list-hollywoods-weekly-buzz/)
 - [sundance film festival outfits](https://allwomenstalk.com/star-sightings-at-the-sundance-film-festival-january-18-22/)
-- [Play Catch-up with Your Favorite Reality Stars](https://allwomenstalk.com/play-catch-up-with-your-favorite-reality-stars/)
+- [popbyes](https://allwomenstalk.com/kate-winslets-hollywood-life/)
+- [Play Catch-up with Your Favorite Reality Stars!](https://allwomenstalk.com/play-catch-up-with-your-favorite-reality-stars/)
 - [Most Fashionable Celebrity Parents](https://allwomenstalk.com/most-fashionable-celebrity-parents/)
+- [celebrity news 2011](https://celebs.allwomenstalk.com/big-celebrity-news-of/)
+- [most famous affairs](https://love.allwomenstalk.com/extraordinary-famous-love-affairs/)
+- [current events with celebrities](https://celebs.allwomenstalk.com/best-celebrity-gossip-websites/)
 - [bob hope chrysler classic](https://allwomenstalk.com/celebrity-stalking-at-the-bob-hope-chrysler-classic/)
 - [7 of My Favorite Celebrities ...](https://celebs.allwomenstalk.com/7-of-my-favorite-celebrities/)
 - [8 Most down to Earth Celebrities ...](https://celebs.allwomenstalk.com/most-down-to-earth-celebrities/)

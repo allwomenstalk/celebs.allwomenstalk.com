@@ -1,12 +1,12 @@
 ---
-title: "7 Celebrities Whod Give You the Worst Relationship Advice Ever ..."
+title: "7 Celebrities Who'd Give You the Worst Relationship Advice Ever ..."
 description: "Rihanna; Kim Kardashian; Jesse James; Lindsay Lohan; Heidi Montag; More ..."
 url: "https://celebs.allwomenstalk.com/celebrities-whod-give-you-the-worst-relationship-advice-ever/"
 category: "celebs"
-last_updated: "2026-05-25"
+last_updated: "2026-06-07"
 ---
 
-# 7 Celebrities Whod Give You the Worst Relationship Advice Ever ...
+# 7 Celebrities Who'd Give You the Worst Relationship Advice Ever ...
 
 The worst relationship advice can come from a celeb too, and judging from the way some of them handle their relationships, the advice they are able to put in might be the last tips to take! Celebrity love problems are on the rise but, then again, can you think of a time in which this wasn’t so? One thing’s for sure, with so many annoying couples and seriously troubled individuals, choosing the worst relationship advice from the celebs might be super hard. Deciding which celebrity’s lead you don’t want to follow, on the other hand, isn’t, so if you ever run into these folks below, be sure to keep your romantic issues private.
 
@@ -42,15 +42,15 @@ Can you think of some other celebrities that could offer potentially the worst r
 
 ## Related Posts
 
-- [trends started by celebrities](https://celebs.allwomenstalk.com/trends-started-by-celebrities/)
-- [best celebrity marriages](https://celebs.allwomenstalk.com/long-lasting-celebrity-marriages/)
-- [taurus celebrities male rappers](https://movies.allwomenstalk.com/rappers-turned-actors/)
-- [when love crossed over](https://movies.allwomenstalk.com/movie-stars-that-crossed-over-to-tv/)
 - [gordon rasmsay](https://celebs.allwomenstalk.com/celebs-youre-ashamed-to-admit-you-have-a-crush-on/)
-- [gamer celebrities](https://lifestyle.allwomenstalk.com/celebrity-girl-gamers/)
-- [male british actors in their 40s](https://celebs.allwomenstalk.com/sexiest-male-british-actors/)
-- [site:fashion.allwomenstalk.com](https://fashion.allwomenstalk.com/unlikely-celebrity-style-icons/)
+- [trends started by celebrities](https://celebs.allwomenstalk.com/trends-started-by-celebrities/)
 - [alanis morissette spouse](https://celebs.allwomenstalk.com/celebrity-couples-who-never-made-it-down-the-aisle/)
+- [male british actors in their 40s](https://celebs.allwomenstalk.com/sexiest-male-british-actors/)
+- [taurus celebrities male rappers](https://movies.allwomenstalk.com/rappers-turned-actors/)
+- [gamer celebrities](https://lifestyle.allwomenstalk.com/celebrity-girl-gamers/)
+- [best celebrity marriages](https://celebs.allwomenstalk.com/long-lasting-celebrity-marriages/)
+- [when love crossed over](https://movies.allwomenstalk.com/movie-stars-that-crossed-over-to-tv/)
+- [site:fashion.allwomenstalk.com](https://fashion.allwomenstalk.com/unlikely-celebrity-style-icons/)
 - [sky ferreira michael jackson](https://lifestyle.allwomenstalk.com/music-stars-to-watch-in/)
 - [7 Recent Celebrity Breakups ...](https://celebs.allwomenstalk.com/recent-celebrity-breakups/)
 - [8 Things Celebs Can Teach You about Dating ...](https://celebs.allwomenstalk.com/things-celebs-can-teach-you-about-dating/)

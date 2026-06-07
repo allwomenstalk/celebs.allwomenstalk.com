@@ -1,12 +1,12 @@
 ---
-title: "10 LGBTQ Icons Everyone Should Be Aware of ..."
+title: "10 LGBTQ+ Icons Everyone Should Be Aware of ..."
 description: "Sir Ian McKellen; Martina Navratilova; Marsha P Johnson; Harvey Milk; Ellen DeGeneres; More ..."
 url: "https://celebs.allwomenstalk.com/lgbt-icons-everyone-should-be-aware-of/"
 category: "celebs"
-last_updated: "2026-05-25"
+last_updated: "2026-06-07"
 ---
 
-# 10 LGBTQ Icons Everyone Should Be Aware of ...
+# 10 LGBTQ+ Icons Everyone Should Be Aware of ...
 
 When you are part of any minority in this world, it is always emboldening and empowering to have heroes and figures to look up to, to relate to and find strength in. For the LGBTQ+ community, having knowledge of people just like you who have done amazing and profound things can be a really comforting thing, especially if you find yourself in a situation where not everyone in your life is as supportive as they should. Here are 10 LGBTQ+ icons that everyone should be aware of!
 
@@ -72,18 +72,18 @@ It’s not something that a lot of people tend to know, but Dusty Springfield wa
 
 ## Related Posts
 
-- [teenage celeberties](https://allwomenstalk.com/15-hottest-teen-celebrities/)
-- [Celebrities Top Choice in 2019: Bum Lift ...](https://fitene.com/celebrities-top-choice-in-bum-lift/)
-- [lizzy pattinson age](https://twilight.allwomenstalk.com/a-biography-on-robert-pattinson/)
-- [15 Iconic New York City Socialites of the 20th Cen...](https://celebs.allwomenstalk.com/famous-new-york-city-socialites/)
-- [Why Are There No Huge Celebrities Anymore](https://celebs.allwomenstalk.com/why-are-there-no-huge-celebrities-anymore/)
-- [15 Intriguing Facts About Timothee Chalamets Love ...](https://celebs.allwomenstalk.com/timothee-chalamet-love-life-facts/)
-- [Full List of Leonardo DiCaprios Serious Girlfriend...](https://celebs.allwomenstalk.com/leonardo-dicaprio-girlfriends-list/)
 - [7 Most Inspiring Celebrity Weight Loss Stories ...](https://weightloss.allwomenstalk.com/7-most-inspiring-celebrity-weight-loss-stories/)
 - [20 Most Popular Ariana Grande Songs That Shaped He...](https://music.allwomenstalk.com/ariana-grande-most-popular-songs/)
+- [Full List of Leonardo DiCaprio’s Serious Girlfrien...](https://celebs.allwomenstalk.com/leonardo-dicaprio-girlfriends-list/)
+- [teenage celeberties](https://allwomenstalk.com/15-hottest-teen-celebrities/)
+- [Celebrities Top Choice in 2019: Bum Lift ...](https://fitene.com/celebrities-top-choice-in-bum-lift/)
 - [7 Biggest Celebrity Weddings ...](https://wedding.allwomenstalk.com/biggest-celebrity-weddings/)
+- [Why Are There No Huge Celebrities Anymore?](https://celebs.allwomenstalk.com/why-are-there-no-huge-celebrities-anymore/)
+- [lizzy pattinson age](https://twilight.allwomenstalk.com/a-biography-on-robert-pattinson/)
+- [15 Iconic New York City Socialites of the 20th Cen...](https://celebs.allwomenstalk.com/famous-new-york-city-socialites/)
+- [15 Intriguing Facts About Timothee Chalamet's Love...](https://celebs.allwomenstalk.com/timothee-chalamet-love-life-facts/)
 - [10 Influential Women Throughout History ...](https://lifestyle.allwomenstalk.com/influential-women-throughout-history/)
-- [5 Blogs by Celebrities Youd Love to Get to Know .....](https://allwomenstalk.com/5-blogs-by-celebrities-youd-love-to-get-to-know/)
+- [5 Blogs by Celebrities You'd Love to Get to Know ....](https://allwomenstalk.com/5-blogs-by-celebrities-youd-love-to-get-to-know/)
 
 ## Site Information
 

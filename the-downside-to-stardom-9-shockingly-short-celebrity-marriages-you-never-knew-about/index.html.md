@@ -3,7 +3,7 @@ title: "The Downside to Stardom-9 Shockingly Short Celebrity Marriages You Never
 description: "Britney Spears/Jason Alexander; Dennis Rodman/Carmen Electra; Kim Kardashian/Kris Humphries; Mario Lopez/Ali Landry; Drew Barrymore/Jeremy Thomas; More ..."
 url: "https://celebs.allwomenstalk.com/the-downside-to-stardom-9-shockingly-short-celebrity-marriages-you-never-knew-about/"
 category: "celebs"
-last_updated: "2026-05-25"
+last_updated: "2026-06-07"
 ---
 
 # The Downside to Stardom\-9 Shockingly Short Celebrity Marriages You Never Knew about ...
@@ -68,16 +68,16 @@ My dad used to tell me that if you go into a marriage thinking it might not work
 
 ## Related Posts
 
-- [celebrity couple goals](https://celebs.allwomenstalk.com/celebrity-couples-that-should-be-your-relationshipgoals/)
-- [affleck and garner having a cozy moment](https://celebs.allwomenstalk.com/ben-affleck-and-jennifer-garners-cutest-moments/)
-- [cute celebrity couples](https://celebs.allwomenstalk.com/the-cutest-new-celebrity-couples-of/)
-- [young neville longbottom](https://movies.allwomenstalk.com/neville-got-hot-and-this-is-what-the-rest-of-the-harry-potter-cast-looks-like-now/)
-- [emma watson gpa](https://celebs.allwomenstalk.com/beauty-brains-celebrities-that-went-back-to-school/)
 - [celebs in open marriages](https://celebs.allwomenstalk.com/inspiring-celeb-marriages-that-are-actually-long-lasting/)
-- [fame vs celebrity](https://celebs.allwomenstalk.com/why-we-all-need-to-stop-envying-celebrities/)
-- [big bang top hair](https://music.allwomenstalk.com/kpop-stars-who-rocked-their-hair-color/)
-- [gay love stories movie](https://movies.allwomenstalk.com/times-hollywood-got-gay-love-right/)
+- [affleck and garner having a cozy moment](https://celebs.allwomenstalk.com/ben-affleck-and-jennifer-garners-cutest-moments/)
+- [young neville longbottom](https://movies.allwomenstalk.com/neville-got-hot-and-this-is-what-the-rest-of-the-harry-potter-cast-looks-like-now/)
 - [ariana grande doughnut drama](https://celebs.allwomenstalk.com/arianas-not-alone-here-are-some-other-celebs-eating-donuts/)
+- [cute celebrity couples](https://celebs.allwomenstalk.com/the-cutest-new-celebrity-couples-of/)
+- [celebrity couple goals](https://celebs.allwomenstalk.com/celebrity-couples-that-should-be-your-relationshipgoals/)
+- [gay love stories movie](https://movies.allwomenstalk.com/times-hollywood-got-gay-love-right/)
+- [emma watson gpa](https://celebs.allwomenstalk.com/beauty-brains-celebrities-that-went-back-to-school/)
+- [big bang top hair](https://music.allwomenstalk.com/kpop-stars-who-rocked-their-hair-color/)
+- [fame vs celebrity](https://celebs.allwomenstalk.com/why-we-all-need-to-stop-envying-celebrities/)
 - [Marriage Does Not Always Equate to Romance...](https://celebs.allwomenstalk.com/marriage-does-not-always-equate-to-romance/)
 - [More Marriage Troubles for Julia Roberts ...](https://allwomenstalk.com/more-marriage-troubles-for-julia-roberts/)
 

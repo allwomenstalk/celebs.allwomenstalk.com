@@ -1,12 +1,12 @@
 ---
-title: "15 Best Celebrity Friendships That Didnt Last Forever ..."
+title: "15 Best Celebrity Friendships That Didn't Last Forever ..."
 description: "Katy Perry and Rihanna; Lauren Conrad and Heidi Montag; Taylor Swift and Katy Perry; Paris Hilton and Kim Kardashian; Madonna and Gwyneth Paltrow; More ..."
 url: "https://celebs.allwomenstalk.com/best-celebrity-friendships-that-didnt-last-forever/"
 category: "celebs"
-last_updated: "2026-05-25"
+last_updated: "2026-06-07"
 ---
 
-# 15 Best Celebrity Friendships That Didnt Last Forever ...
+# 15 Best Celebrity Friendships That Didn't Last Forever ...
 
 It seems that celebrities are not that different from us - they get involved in family drama, break ups and are even part of celebrity friendships that didn’t last forever. Sometimes it’s even harder for them to keep a tight friendship under the microscope and spotlight, to the point when fallouts are inevitable. But their fallouts seem to have a pattern of being caused by jealousy! Here are 7 celebrity friendships that didn’t last forever... and the main reasons why!
 
@@ -104,16 +104,16 @@ It’s unfortunate that most of these friendships crumbled due to jealousy. Whic
 
 ## Related Posts
 
-- [jon heder lds](https://celebs.allwomenstalk.com/famous-celebrities-with-a-twin-that-will-probably-surprise-you/)
-- [wino forever meaning](https://celebs.allwomenstalk.com/worst-celebrity-tattoos-that-make-us-cringe/)
-- [browns chicken steve carell](https://celebs.allwomenstalk.com/old-commercials-with-now-famous-actors-that-will-blow-your-mind/)
-- [chace crawford liam hemsworth](https://celebs.allwomenstalk.com/hottest-guys-of-that-we-cant-stop-drooling-over/)
-- [underrated celebrity](https://celebs.allwomenstalk.com/underrated-hollywood-stars-that-deserve-more-attention/)
-- [good luck with bookin that stage](https://celebs.allwomenstalk.com/most-scandalous-celebrity-twitter-feuds-that-will-evoke-a-facepalm/)
-- [blonde hair 50s](https://celebs.allwomenstalk.com/celebrities-with-trend-setting-hair-to-copy-happily/)
-- [most famous british actors](https://movies.allwomenstalk.com/underrated-british-actors-i-want-to-see-more-of/)
-- [famous duos characters](https://inspiration.allwomenstalk.com/top-american-tv-duos-of-all-time/)
 - [top british celebrities](https://celebs.allwomenstalk.com/brilliant-british-celebrities-that-you-should-take-note-of/)
+- [jon heder lds](https://celebs.allwomenstalk.com/famous-celebrities-with-a-twin-that-will-probably-surprise-you/)
+- [most famous british actors](https://movies.allwomenstalk.com/underrated-british-actors-i-want-to-see-more-of/)
+- [brown's chicken steve carell](https://celebs.allwomenstalk.com/old-commercials-with-now-famous-actors-that-will-blow-your-mind/)
+- [blonde hair 50s](https://celebs.allwomenstalk.com/celebrities-with-trend-setting-hair-to-copy-happily/)
+- [wino forever meaning](https://celebs.allwomenstalk.com/worst-celebrity-tattoos-that-make-us-cringe/)
+- [famous duos characters](https://inspiration.allwomenstalk.com/top-american-tv-duos-of-all-time/)
+- [chace crawford liam hemsworth](https://celebs.allwomenstalk.com/hottest-guys-of-that-we-cant-stop-drooling-over/)
+- [good luck with bookin that stage](https://celebs.allwomenstalk.com/most-scandalous-celebrity-twitter-feuds-that-will-evoke-a-facepalm/)
+- [underrated celebrity](https://celebs.allwomenstalk.com/underrated-hollywood-stars-that-deserve-more-attention/)
 - [7 Recent Celebrity Breakups ...](https://celebs.allwomenstalk.com/recent-celebrity-breakups/)
 - [9 Amazing Celebrity Families ...](https://allwomenstalk.com/9-amazing-celebrity-families/)
 

@@ -1,12 +1,12 @@
 ---
-title: "10 Celebrities You Shouldnt Take Love Advice from ..."
+title: "10 Celebrities You Shouldn't Take Love Advice from ..."
 description: "Kim Kardashian; Flavor Flav; Nicole \"Snooki\" Polizzi; Hugh Hefner; Sienna Miller; More ..."
 url: "https://celebs.allwomenstalk.com/celebrities-you-shouldnt-take-love-advice-from/"
 category: "celebs"
-last_updated: "2026-05-25"
+last_updated: "2026-06-07"
 ---
 
-# 10 Celebrities You Shouldnt Take Love Advice from ...
+# 10 Celebrities You Shouldn't Take Love Advice from ...
 
 There are some **celebrities you shouldn’t fancy** for their bad choices in love. We love to get inspiration for fashion and beauty from our favorite celebs, but there are some bad celebrity influences out there. Sure, it’s fun to hear the juicy details of the latest celeb love tragedy but with more celebrity scandals and breakups than there are lasting relationships. Take note of what they’re doing wrong and learn from their mistakes! Celebrity relationships can represent the worst of the worst, after all -- just take a look!
 
@@ -56,16 +56,16 @@ Top Image Source: [weheartit.com](https://weheartit.com/entry/20257293)
 
 ## Related Posts
 
-- [10 Things Not to Wear when Traveling ...](https://travel.allwomenstalk.com/things-not-to-wear-when-traveling/)
-- [8 Things You Should Stop Doing to Yourself ...](https://lifestyle.allwomenstalk.com/things-you-should-stop-doing-to-yourself/)
-- [7 Trends That Should Stay a Mistake of the past .....](https://fashion.allwomenstalk.com/trends-that-should-stay-a-mistake-of-the-past/)
-- [9 Things to Never Put on Your Skin ...](https://skincare.allwomenstalk.com/things-to-never-put-on-your-skin/)
-- [10 Money Tips You Should NOT Follow ...](https://money.allwomenstalk.com/money-tips-you-should-not-follow/)
 - [7 Main Headache Triggers to Avoid ...](https://health.allwomenstalk.com/main-headache-triggers-to-avoid/)
-- [7 Running Mistakes to Avoid ...](https://health.allwomenstalk.com/running-mistakes-to-avoid/)
+- [10 Money Tips You Should NOT Follow ...](https://money.allwomenstalk.com/money-tips-you-should-not-follow/)
 - [things to never say to your boyfriend](https://love.allwomenstalk.com/things-to-never-say-to-his-parents/)
+- [8 Things You Should Stop Doing to Yourself ...](https://lifestyle.allwomenstalk.com/things-you-should-stop-doing-to-yourself/)
+- [9 Things to Never Put on Your Skin ...](https://skincare.allwomenstalk.com/things-to-never-put-on-your-skin/)
 - [10 Things to Never Put on Facebook ...](https://lifestyle.allwomenstalk.com/things-to-never-put-on-facebook/)
+- [7 Running Mistakes to Avoid ...](https://health.allwomenstalk.com/running-mistakes-to-avoid/)
 - [flirting faux pas](https://love.allwomenstalk.com/flirting-mistakes-you-dont-want-to-make/)
+- [7 Trends That Should Stay a Mistake of the past .....](https://fashion.allwomenstalk.com/trends-that-should-stay-a-mistake-of-the-past/)
+- [10 Things Not to Wear when Traveling ...](https://travel.allwomenstalk.com/things-not-to-wear-when-traveling/)
 - [8 Things Celebs Can Teach You about Dating ...](https://celebs.allwomenstalk.com/things-celebs-can-teach-you-about-dating/)
 - [7 Outdated Relationship Rules Not to Follow ...](https://love.allwomenstalk.com/outdated-relationship-rules-not-to-follow/)
 

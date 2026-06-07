@@ -1,12 +1,12 @@
 ---
-title: "10 Celebrities Rocking Thigh-High Splits Who Wore It Best?"
+title: "10 Celebrities Rocking Thigh-High Splits – Who Wore It Best?"
 description: "Kate Hudson; Drew Barrymore; Zoe Kravitz; Lea Michele; Alexa Chung; More ..."
 url: "https://celebs.allwomenstalk.com/celebrities-rocking-thigh-high-splits-who-wore-it-best/"
 category: "celebs"
-last_updated: "2026-05-25"
+last_updated: "2026-06-07"
 ---
 
-# 10 Celebrities Rocking Thigh\-High Splits  Who Wore It Best?
+# 10 Celebrities Rocking Thigh\-High Splits – Who Wore It Best?
 
 Celebrities wearing thigh high splits are a pretty common sight. Whether it’s a floor-sweeping skirt or gown, thigh high splits have become a popular feature on many a celebrity outfit. While celebrities wearing thigh high splits are a common sight on the red carpet, now we’re seeing a trend for it off the red carpet too. Check out these celebrities who have decided to put their best, ahem, leg forward.
 
@@ -74,18 +74,18 @@ These are just some examples of celebrities rocking thigh high splits. As you ca
 
 ## Related Posts
 
-- [9 Best Dressed Celebs at the SAG Awards ...](https://celebs.allwomenstalk.com/best-dressed-celebs-at-the-sag-awards/)
 - [matching separates](https://celebs.allwomenstalk.com/celebrities-wearing-matching-separates-who-wore-it-best/)
-- [7 Best Looking Actresses at the Golden Globes 2014...](https://celebs.allwomenstalk.com/best-looking-actresses-at-the-golden-globes/)
-- [7 Celebrities Wearing a Topknot - Who Wore It Best](https://hair.allwomenstalk.com/celebrities-wearing-a-topknot-who-wore-it-best/)
-- [9 of the Best Dressed at the 2014 Grammys ...](https://fashion.allwomenstalk.com/of-the-best-dressed-at-the-grammys/)
-- [7 of the Best Moments from the Oscars ...](https://movies.allwomenstalk.com/of-the-best-moments-from-the-oscars/)
-- [grammy performances 2014](https://music.allwomenstalk.com/grammy-performances-ranked-from-worst-to-best/)
-- [7 Great Celebrity Outfits from Comic Con 2013 ...](https://celebs.allwomenstalk.com/great-celebrity-outfits-from-comic-con/)
-- [9 More Best Dressed Celebs at the Golden Globes .....](https://celebs.allwomenstalk.com/more-best-dressed-celebs-at-the-golden-globes/)
+- [9 Best Dressed Celebs at the SAG Awards ...](https://celebs.allwomenstalk.com/best-dressed-celebs-at-the-sag-awards/)
 - [7 Best Beauty Highlights from the Oscars in 2014 ....](https://beauty.allwomenstalk.com/best-beauty-highlights-from-the-oscars-in/)
-- [10 Celebrities in Red Dresses  Who Wore It Best](https://celebs.allwomenstalk.com/celebrities-in-red-dresses-who-wore-it-best/)
-- [10 Celebrities in Cut out Dresses  Who Wore It Bes...](https://celebs.allwomenstalk.com/celebrities-in-cut-out-dresses-who-wore-it-best/)
+- [7 Great Celebrity Outfits from Comic Con 2013 ...](https://celebs.allwomenstalk.com/great-celebrity-outfits-from-comic-con/)
+- [grammy performances 2014](https://music.allwomenstalk.com/grammy-performances-ranked-from-worst-to-best/)
+- [9 More Best Dressed Celebs at the Golden Globes .....](https://celebs.allwomenstalk.com/more-best-dressed-celebs-at-the-golden-globes/)
+- [7 Best Looking Actresses at the Golden Globes 2014...](https://celebs.allwomenstalk.com/best-looking-actresses-at-the-golden-globes/)
+- [7 of the Best Moments from the Oscars ...](https://movies.allwomenstalk.com/of-the-best-moments-from-the-oscars/)
+- [9 of the Best Dressed at the 2014 Grammys ...](https://fashion.allwomenstalk.com/of-the-best-dressed-at-the-grammys/)
+- [7 Celebrities Wearing a Topknot - Who Wore It Best...](https://hair.allwomenstalk.com/celebrities-wearing-a-topknot-who-wore-it-best/)
+- [10 Celebrities in Red Dresses – Who Wore It Best?](https://celebs.allwomenstalk.com/celebrities-in-red-dresses-who-wore-it-best/)
+- [10 Celebrities in Cut out Dresses – Who Wore It Be...](https://celebs.allwomenstalk.com/celebrities-in-cut-out-dresses-who-wore-it-best/)
 
 ## Site Information
 

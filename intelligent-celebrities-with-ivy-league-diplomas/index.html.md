@@ -3,7 +3,7 @@ title: "11 Intelligent Celebrities with Ivy League Diplomas ..."
 description: "Mindy Kaling; Emma Watson; Rashida Jones; Natalie Portman; John Krasinski; More ..."
 url: "https://celebs.allwomenstalk.com/intelligent-celebrities-with-ivy-league-diplomas/"
 category: "celebs"
-last_updated: "2026-05-25"
+last_updated: "2026-06-07"
 ---
 
 # 11 Intelligent Celebrities with Ivy League Diplomas ...
@@ -80,15 +80,15 @@ Well, there you have it. These are just 11 out of so many awesome and intelligen
 
 ## Related Posts
 
-- [sabrina carpenter boots](https://celebs.allwomenstalk.com/co-stars-who-are-also-best-friends-in-real-life/)
-- [jim carrey depression quote](https://celebs.allwomenstalk.com/celebrities-on-dealing-with-depression-and-mental-disorders/)
-- [taylor swift favorite candle](https://music.allwomenstalk.com/celebrities-who-have-praised-taylor-swifts-new-album/)
-- [celebrities who love animals](https://celebs.allwomenstalk.com/celebrities-who-love-and-advocate-for-animals/)
-- [sara ramirez on law and order svu](https://celebs.allwomenstalk.com/celebrities-who-guest-starred-on-law-order/)
-- [best of mean tweets](https://funny.allwomenstalk.com/this-video-of-celebs-reacting-to-mean-tweets-is-the-funniest-thing-youll-see-today/)
-- [famous ryans in hollywood](https://funny.allwomenstalk.com/watch-ryan-cabrera-rank-other-famous-ryans-including-gosling-and-reynolds/)
-- [independence day alicia casse](https://celebs.allwomenstalk.com/child-stars-who-quit-acting/)
 - [jim parson and rihanna](https://celebs.allwomenstalk.com/random-pair-of-celebrities-you-didnt-know-were-friends/)
+- [best of mean tweets](https://funny.allwomenstalk.com/this-video-of-celebs-reacting-to-mean-tweets-is-the-funniest-thing-youll-see-today/)
+- [sara ramirez on law and order svu](https://celebs.allwomenstalk.com/celebrities-who-guest-starred-on-law-order/)
+- [celebrities who love animals](https://celebs.allwomenstalk.com/celebrities-who-love-and-advocate-for-animals/)
+- [taylor swift favorite candle](https://music.allwomenstalk.com/celebrities-who-have-praised-taylor-swifts-new-album/)
+- [sabrina carpenter boots](https://celebs.allwomenstalk.com/co-stars-who-are-also-best-friends-in-real-life/)
+- [famous ryans in hollywood](https://funny.allwomenstalk.com/watch-ryan-cabrera-rank-other-famous-ryans-including-gosling-and-reynolds/)
+- [jim carrey depression quote](https://celebs.allwomenstalk.com/celebrities-on-dealing-with-depression-and-mental-disorders/)
+- [independence day alicia casse](https://celebs.allwomenstalk.com/child-stars-who-quit-acting/)
 - [courtside celebrities](https://celebs.allwomenstalk.com/celebs-cant-get-enough-of-basketball-sightings-of-courtside-celebs/)
 - [25 Smartest Celebrities ...](https://celebs.allwomenstalk.com/25-smartest-celebrities/)
 - [7 Cool Celebrities with Dimples ...](https://celebs.allwomenstalk.com/cool-celebrities-with-dimples/)

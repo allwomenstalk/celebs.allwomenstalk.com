@@ -3,7 +3,7 @@ title: "7 Drastic Celebrity Hair Cuts That Caused a Stir ..."
 description: "Beyonce; Keri Russell; Miley Cyrus; Britney Spears; Emma Watson; More ..."
 url: "https://celebs.allwomenstalk.com/drastic-celebrity-hair-cuts-that-caused-a-stir/"
 category: "celebs"
-last_updated: "2026-05-25"
+last_updated: "2026-06-07"
 ---
 
 # 7 Drastic Celebrity Hair Cuts That Caused a Stir ...
@@ -56,16 +56,16 @@ These are just a few celebrities who have set tongues wagging with their drastic
 
 ## Related Posts
 
-- [famous people who are hated](https://celebs.allwomenstalk.com/celebrities-people-love-to-hate/)
-- [celebrities who beat breast cancer](https://celebs.allwomenstalk.com/celebrities-who-have-beaten-breast-cancer-to-be-inspired-by/)
-- [celebrities shop too](https://celebs.allwomenstalk.com/wealthy-celebrities-who-thrift-shop-and-are-proud-of-it/)
-- [celebrities with very fine hair](https://hair.allwomenstalk.com/fabulous-celebrity-hair-crushes-we-absolutely-adore/)
-- [tv man hot](https://movies.allwomenstalk.com/sexiest-men-on-tv-right-now-that-we-cant-stop-drooling-over/)
-- [scarlett johansson jennifer aniston emma watson mi...](https://celebs.allwomenstalk.com/celebs-with-fantastic-hair-i-wish-i-had/)
-- [ian somerhalder cheekbones](https://movies.allwomenstalk.com/of-the-hottest-men-on-tv-right-now/)
-- [what is the most expensive body part](https://celebs.allwomenstalk.com/most-expensive-celebrity-insurance-policies/)
-- [talented celebrities](https://celebs.allwomenstalk.com/talented-celebrities-you-didnt-know-could-sing-really-well/)
 - [the actress with the eyebrows](https://celebs.allwomenstalk.com/beautiful-celebrities-with-gorgeous-eyebrows-to-die-for/)
+- [celebrities with very fine hair](https://hair.allwomenstalk.com/fabulous-celebrity-hair-crushes-we-absolutely-adore/)
+- [ian somerhalder cheekbones](https://movies.allwomenstalk.com/of-the-hottest-men-on-tv-right-now/)
+- [celebrities who beat breast cancer](https://celebs.allwomenstalk.com/celebrities-who-have-beaten-breast-cancer-to-be-inspired-by/)
+- [what is the most expensive body part](https://celebs.allwomenstalk.com/most-expensive-celebrity-insurance-policies/)
+- [tv man hot](https://movies.allwomenstalk.com/sexiest-men-on-tv-right-now-that-we-cant-stop-drooling-over/)
+- [famous people who are hated](https://celebs.allwomenstalk.com/celebrities-people-love-to-hate/)
+- [celebrities shop too](https://celebs.allwomenstalk.com/wealthy-celebrities-who-thrift-shop-and-are-proud-of-it/)
+- [talented celebrities](https://celebs.allwomenstalk.com/talented-celebrities-you-didnt-know-could-sing-really-well/)
+- [scarlett johansson jennifer aniston emma watson mi...](https://celebs.allwomenstalk.com/celebs-with-fantastic-hair-i-wish-i-had/)
 - [7 Funkiest Celebrity Hairstyles ...](https://celebs.allwomenstalk.com/7-funkiest-celebrity-hairstyles/)
 - [20 Fabulous Celebrity Hair Cuts ...](https://hair.allwomenstalk.com/fabulous-celebrity-hair-cuts/)
 

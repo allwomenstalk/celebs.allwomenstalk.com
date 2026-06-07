@@ -3,7 +3,7 @@ title: "9 Inspiring Celebrities That I Look up to ..."
 description: "Eminem; Meryl Streep; Ian Somerhalder; Maya Angelou; Jennifer Lawrence; More ..."
 url: "https://celebs.allwomenstalk.com/inspiring-celebrities-that-i-look-up-to/"
 category: "celebs"
-last_updated: "2026-05-25"
+last_updated: "2026-06-07"
 ---
 
 # 9 Inspiring Celebrities That I Look up to ...
@@ -68,16 +68,16 @@ Celebrities can inspire through their films, their music, their books, or their 
 
 ## Related Posts
 
-- [cameron diaz armpit](https://celebs.allwomenstalk.com/celebrities-who-supposedly-have-bad-hygiene/)
-- [7 Hollywood Same-Sex Couples We Love ...](https://celebs.allwomenstalk.com/hollywood-same-sex-couples-we-love/)
-- [famous career changes](https://celebs.allwomenstalk.com/of-the-best-career-changes-in-hollywood/)
-- [celebrities with criminal records](https://celebs.allwomenstalk.com/celebrities-with-unexpected-criminal-records/)
 - [female tv cops](https://celebs.allwomenstalk.com/brilliant-actors-actresses-who-have-played-cops-on-tv/)
-- [celebrities that were born rich](https://celebs.allwomenstalk.com/celebrities-who-were-born-rich/)
+- [celebrities with criminal records](https://celebs.allwomenstalk.com/celebrities-with-unexpected-criminal-records/)
 - [left at the altar](https://celebs.allwomenstalk.com/celebrities-who-were-left-at-the-altar/)
-- [extras celebrities](https://celebs.allwomenstalk.com/celebrities-who-started-out-as-extras/)
-- [whos a in pretty little liars season 1](https://celebs.allwomenstalk.com/pretty-little-liars-cast-members-who-also-dabble-in-music/)
 - [nde celebrities](https://celebs.allwomenstalk.com/celebrities-who-have-had-near-death-experiences/)
+- [celebrities that were born rich](https://celebs.allwomenstalk.com/celebrities-who-were-born-rich/)
+- [cameron diaz armpit](https://celebs.allwomenstalk.com/celebrities-who-supposedly-have-bad-hygiene/)
+- [who's a in pretty little liars season 1](https://celebs.allwomenstalk.com/pretty-little-liars-cast-members-who-also-dabble-in-music/)
+- [famous career changes](https://celebs.allwomenstalk.com/of-the-best-career-changes-in-hollywood/)
+- [7 Hollywood Same-Sex Couples We Love ...](https://celebs.allwomenstalk.com/hollywood-same-sex-couples-we-love/)
+- [extras celebrities](https://celebs.allwomenstalk.com/celebrities-who-started-out-as-extras/)
 - [7 of My Favorite Celebrities ...](https://celebs.allwomenstalk.com/7-of-my-favorite-celebrities/)
 - [7 Inspiring Celebrities of 2011 ...](https://celebs.allwomenstalk.com/inspiring-celebrities-of/)
 

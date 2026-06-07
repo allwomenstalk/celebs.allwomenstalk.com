@@ -1,12 +1,12 @@
 ---
-title: "Actor Re-Creates Other Celebs Looks is Generally Hilarious ..."
+title: "Actor Re-Creates Other Celeb's Looks, is Generally Hilarious ..."
 description: "Cate at the Tony Awards; Classic Brittney; Tilda at the CFDA; New Girl Zooey; Rihanna at Billboard Music Awards; More ..."
 url: "https://celebs.allwomenstalk.com/actor-re-creates-other-celebs-looks-is-generally-hilarious/"
 category: "celebs"
-last_updated: "2026-05-25"
+last_updated: "2026-06-07"
 ---
 
-# Actor Re\-Creates Other Celebs Looks is Generally Hilarious ...
+# Actor Re\-Creates Other Celeb's Looks, is Generally Hilarious ...
 
 You may remember actor Tom Lenk for his recurring role on Buffy, and if you've missed him, know that he's been busy creating something new (and hilarious). Lenk's been using household items to re-create other celeb's looks, and it's really, really funny. He calls these low-budget recreations LENKLEWKS... let's have a peek!
 
@@ -56,17 +56,17 @@ To see more of Lenk's wicked funny LENKLEWKS, follow him on Instagram at @tommyl
 
 ## Related Posts
 
-- [7 Hottest Hunks on the US Olympic Team  ...](https://celebs.allwomenstalk.com/hottest-athletes-on-the-us-winter-olympics-team/)
-- [You Will Not Believe Which Celebs Turn out to Be O...](https://celebs.allwomenstalk.com/you-will-not-believe-which-celebs-turn-out-to-be-olympians/)
-- [teenage celeberties](https://allwomenstalk.com/15-hottest-teen-celebrities/)
-- [These Are the Amazing People Who Got Presidential ...](https://celebs.allwomenstalk.com/these-are-the-amazing-people-who-got-presidential-medal-of-freedom-this-year/)
-- [Lets Stop Bashing and Recognise the Things the Kar...](https://celebs.allwomenstalk.com/lets-stop-bashing-and-recognise-the-things-the-kardashian-jenner-clan-have-achieved/)
+- [Let's Stop Bashing and Recognise the Things the Ka...](https://celebs.allwomenstalk.com/lets-stop-bashing-and-recognise-the-things-the-kardashian-jenner-clan-have-achieved/)
+- [10 LGBTQ+ Icons Everyone Should Be Aware of ...](https://celebs.allwomenstalk.com/lgbt-icons-everyone-should-be-aware-of/)
 - [Celebrities Top Choice in 2019: Bum Lift ...](https://fitene.com/celebrities-top-choice-in-bum-lift/)
+- [You Will Not Believe Which Celebs Turn out to Be O...](https://celebs.allwomenstalk.com/you-will-not-believe-which-celebs-turn-out-to-be-olympians/)
+- [These Are the Amazing People Who Got Presidential ...](https://celebs.allwomenstalk.com/these-are-the-amazing-people-who-got-presidential-medal-of-freedom-this-year/)
+- [Why Are There No Huge Celebrities Anymore?](https://celebs.allwomenstalk.com/why-are-there-no-huge-celebrities-anymore/)
 - [My Friends with Benefits Experience Part 1: the Ac...](https://love.allwomenstalk.com/friends-with-benefits-experience/)
-- [10 LGBTQ Icons Everyone Should Be Aware of ...](https://celebs.allwomenstalk.com/lgbt-icons-everyone-should-be-aware-of/)
-- [Why Are There No Huge Celebrities Anymore](https://celebs.allwomenstalk.com/why-are-there-no-huge-celebrities-anymore/)
+- [teenage celeberties](https://allwomenstalk.com/15-hottest-teen-celebrities/)
+- [7 Hottest Hunks on the US Olympic Team 🥇 ...](https://celebs.allwomenstalk.com/hottest-athletes-on-the-us-winter-olympics-team/)
 - [celebs who have cheated](https://celebs.allwomenstalk.com/celebs-who-have-cheated/)
-- [Smile like a Celebrity](https://allwomenstalk.com/smile-like-a-celebrity/)
+- [Smile like a Celebrity!](https://allwomenstalk.com/smile-like-a-celebrity/)
 - [The Biggest Names Making Caricatures of Themselves...](https://allwomenstalk.com/the-biggest-names-making-caricatures-of-themselves/)
 
 ## Site Information

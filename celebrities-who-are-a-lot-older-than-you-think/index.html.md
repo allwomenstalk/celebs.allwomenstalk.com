@@ -3,7 +3,7 @@ title: "15 Celebrities Who Are a Lot Older than You Think ..."
 description: "Alyson Hannigan; M.I.a; Gwen Stefani; Seth Green; Salma Hayek; More ..."
 url: "https://celebs.allwomenstalk.com/celebrities-who-are-a-lot-older-than-you-think/"
 category: "celebs"
-last_updated: "2026-05-25"
+last_updated: "2026-06-07"
 ---
 
 # 15 Celebrities Who Are a Lot Older than You Think ...
@@ -106,14 +106,14 @@ This article written in collaboration with editor, Eliza Martinez
 
 ## Related Posts
 
-- [coolest celebrity tattoos](https://celebs.allwomenstalk.com/best-celebrity-tattoos-that-youre-sure-to-love/)
-- [historic actors](https://movies.allwomenstalk.com/celebrities-who-played-historical-figures-perfectly/)
-- [greedy famous person](https://celebs.allwomenstalk.com/celebrities-who-embody-the-7-deadly-sins/)
-- [bikram yoga celebrities](https://celebs.allwomenstalk.com/celebrities-who-love-yoga/)
 - [tina fey daughter alice](https://celebs.allwomenstalk.com/celebrity-kids-who-looks-like-their-parents/)
 - [british actors that do american accents](https://movies.allwomenstalk.com/british-actors-who-can-do-american-accents-perfectly/)
-- [hottest greys anatomy characters](https://movies.allwomenstalk.com/hottest-guys-on-greys-anatomy-that-we-cant-help-but-love/)
+- [bikram yoga celebrities](https://celebs.allwomenstalk.com/celebrities-who-love-yoga/)
+- [hottest grey's anatomy characters](https://movies.allwomenstalk.com/hottest-guys-on-greys-anatomy-that-we-cant-help-but-love/)
 - [brittany murphy deces](https://celebs.allwomenstalk.com/of-the-most-sudden-celebrity-deaths/)
+- [greedy famous person](https://celebs.allwomenstalk.com/celebrities-who-embody-the-7-deadly-sins/)
+- [historic actors](https://movies.allwomenstalk.com/celebrities-who-played-historical-figures-perfectly/)
+- [coolest celebrity tattoos](https://celebs.allwomenstalk.com/best-celebrity-tattoos-that-youre-sure-to-love/)
 - [hard actors to guess](https://movies.allwomenstalk.com/actors-who-turned-down-legendary-roles/)
 - [celebs with big hair](https://celebs.allwomenstalk.com/celebrities-who-cut-their-long-hair-short/)
 - [25 Smartest Celebrities ...](https://celebs.allwomenstalk.com/25-smartest-celebrities/)

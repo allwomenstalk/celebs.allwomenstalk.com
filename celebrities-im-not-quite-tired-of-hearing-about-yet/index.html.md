@@ -1,12 +1,12 @@
 ---
-title: "7 Celebrities Im Not Quite Tired of Hearing about Yet ..."
+title: "7 Celebrities I'm Not Quite Tired of Hearing about Yet ..."
 description: "Ellen; Oprah; Kerry Washington; Carrie Underwood; Katy Perry; More ..."
 url: "https://celebs.allwomenstalk.com/celebrities-im-not-quite-tired-of-hearing-about-yet/"
 category: "celebs"
-last_updated: "2026-05-25"
+last_updated: "2026-06-07"
 ---
 
-# 7 Celebrities Im Not Quite Tired of Hearing about Yet ...
+# 7 Celebrities I'm Not Quite Tired of Hearing about Yet ...
 
 There are some celebrities that I think I might cry if I hear another peep about them, yet there are other celebrities I’m not tired of hearing about yet. I’m not a tabloid nut, but we can’t live in today’s culture and not hear about celebrities. Whether you love them or hate them, they are people just like the rest of us, yet because of the media, we often hear too much about some of them, in a negative light. Let’s be honest: none of us are perfect, including celebrities, but we can hear so much about one or two of them that we start to hate them without even knowing them! Yet, some of them, no matter how much you hear about them, never get old. Here are my favorite celebrities I’m not tired of hearing about yet. Be sure to share yours with me!
 
@@ -56,16 +56,16 @@ Do you have a favorite celebrity you’re not tired of yet? Let me hear all abou
 
 ## Related Posts
 
-- [the hottest heart](https://celebs.allwomenstalk.com/of-the-hottest-actors-of-that-will-get-your-heart-racing/)
-- [7 Celebrity Looks That We Loved This Month ...](https://fashion.allwomenstalk.com/celebrity-looks-that-we-loved-this-month/)
-- [7 Hot Guys Starring in 2014 Movies to Look Forward...](https://bilbr.com/hot-guys-starring-in-movies-to-look-forward-to/)
-- [7 Gorgeous Celebrity Homes Thatll Make You Green w...](https://celebs.allwomenstalk.com/gorgeous-celebrity-homes-thatll-make-you-green-with-envy/)
-- [7 Surprising Celebrities You Didnt Know Changed Th...](https://celebs.allwomenstalk.com/surprising-celebrities-you-didnt-know-changed-their-names/)
 - [worst celebrity breakups](https://celebs.allwomenstalk.com/of-the-worst-celebrity-breakups/)
+- [the hottest heart](https://celebs.allwomenstalk.com/of-the-hottest-actors-of-that-will-get-your-heart-racing/)
+- [11 Awesome Celebrities You Didn't Know Could Sing ...](https://celebs.allwomenstalk.com/awesome-celebrities-you-didnt-know-could-sing/)
+- [7 Celebrity Looks That We Loved This Month ...](https://fashion.allwomenstalk.com/celebrity-looks-that-we-loved-this-month/)
 - [9 of the Best Celebrity Style Transformations ...](https://celebs.allwomenstalk.com/of-the-best-celebrity-style-transformations/)
-- [11 Awesome Celebrities You Didnt Know Could Sing ....](https://celebs.allwomenstalk.com/awesome-celebrities-you-didnt-know-could-sing/)
+- [9 Celebrities We'd Love to Be Best Friends with .....](https://celebs.allwomenstalk.com/celebrities-wed-love-to-be-best-friends-with/)
+- [7 Hot Guys Starring in 2014 Movies to Look Forward...](https://bilbr.com/hot-guys-starring-in-movies-to-look-forward-to/)
 - [7 Celebrity Apologies That Are Impossible to Forge...](https://celebs.allwomenstalk.com/celebrity-apologies-that-are-impossible-to-forget/)
-- [9 Celebrities Wed Love to Be Best Friends with ...](https://celebs.allwomenstalk.com/celebrities-wed-love-to-be-best-friends-with/)
+- [7 Gorgeous Celebrity Homes That'll Make You Green ...](https://celebs.allwomenstalk.com/gorgeous-celebrity-homes-thatll-make-you-green-with-envy/)
+- [7 Surprising Celebrities You Didn't Know Changed T...](https://celebs.allwomenstalk.com/surprising-celebrities-you-didnt-know-changed-their-names/)
 - [7 Celebrities I Would like to Hang with ...](https://celebs.allwomenstalk.com/7-celebrities-i-would-like-to-hang-with/)
 - [7 of My Favorite Celebrities ...](https://celebs.allwomenstalk.com/7-of-my-favorite-celebrities/)
 

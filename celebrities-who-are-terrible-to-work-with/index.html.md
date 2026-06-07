@@ -3,7 +3,7 @@ title: "7 Celebrities Who Are Terrible to Work with ..."
 description: "Russell Crowe; Madonna; Gwyneth Paltrow; Christian Bale; Katherine Heigl; More ..."
 url: "https://celebs.allwomenstalk.com/celebrities-who-are-terrible-to-work-with/"
 category: "celebs"
-last_updated: "2026-05-25"
+last_updated: "2026-06-07"
 ---
 
 # 7 Celebrities Who Are Terrible to Work with ...
@@ -56,16 +56,16 @@ There are so many horror stories about celebrities who are divas on set! Perhaps
 
 ## Related Posts
 
-- [celebrities nyc apartments](https://celebs.allwomenstalk.com/amazing-celebrity-apartments-you-need-to-see/)
+- [sophie turner and taylor swift](https://celebs.allwomenstalk.com/celebrities-who-are-great-friends-with-taylor-swift/)
 - [celebrities suffering from anxiety](https://celebs.allwomenstalk.com/celebrities-with-anxiety-disorders/)
 - [is ricco barrino related to fantasia](https://celebs.allwomenstalk.com/celebrities-who-are-related-to-someone-famous/)
-- [sophie turner and taylor swift](https://celebs.allwomenstalk.com/celebrities-who-are-great-friends-with-taylor-swift/)
-- [jessica szohr taylor swift 22](https://celebs.allwomenstalk.com/gossip-girl-celebs-to-follow-on-twitter/)
+- [celebrities nyc apartments](https://celebs.allwomenstalk.com/amazing-celebrity-apartments-you-need-to-see/)
+- [njbc gossip girl](https://movies.allwomenstalk.com/most-adorable-on-screen-couples/)
+- [celebrities who abandoned their child](https://celebs.allwomenstalk.com/celebrities-who-abandoned-fame/)
 - [surprising celebrity couples](https://celebs.allwomenstalk.com/celebrity-couples-that-you-never-knew-about/)
 - [crazy actor transformations](https://movies.allwomenstalk.com/actors-who-transformed-their-bodies-for-a-movie-role/)
-- [celebrities who abandoned their child](https://celebs.allwomenstalk.com/celebrities-who-abandoned-fame/)
+- [jessica szohr taylor swift 22](https://celebs.allwomenstalk.com/gossip-girl-celebs-to-follow-on-twitter/)
 - [mickey mouse club mouseketeers list](https://celebs.allwomenstalk.com/former-disney-mouseketeers-who-now-made-names-for-themselves/)
-- [njbc gossip girl](https://movies.allwomenstalk.com/most-adorable-on-screen-couples/)
 - [7 Actors Who Are Overrated ...](https://movies.allwomenstalk.com/7-actors-who-are-overrated/)
 - [8 Celebrities with Awful Table Manners ...](https://celebs.allwomenstalk.com/celebrities-with-awful-table-manners/)
 

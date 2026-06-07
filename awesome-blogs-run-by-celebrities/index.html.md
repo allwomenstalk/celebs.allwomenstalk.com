@@ -1,83 +1,91 @@
 ---
-title: "7 Awesome Blogs Run by Celebrities ..."
-description: "Shay Mitchell & Michaela Blaney; The Lo down; Tomboy Kc; Your Zen Life; Nicole 'Snooki' Polizzi; More ..."
+title: "7 Inspiring Lifestyle Brands and Blogs Run by Celebrities"
+description: "Poosh by Kourtney Kardashian Barker; Goop by Gwyneth Paltrow; As Ever by Meghan Markle; The Martha Blog by Martha Stewart; Love Wellness by Lo Bosworth; More ..."
 url: "https://celebs.allwomenstalk.com/awesome-blogs-run-by-celebrities/"
 category: "celebs"
-last_updated: "2026-05-25"
+last_updated: "2026-06-07"
 ---
 
-# 7 Awesome Blogs Run by Celebrities ...
+# 7 Inspiring Lifestyle Brands and Blogs Run by Celebrities
 
-Surprisingly, there are so many amazing blogs run by celebrities! Most of these are lifestyle blogs, meaning they cover everything from beauty to health/fitness, sex, friendship, entertainment, etc. I think it's really cool when celebrities blog because it helps you see what kind of things they're into and how they're the same as anyone else. Check out some of these awesome blogs run by celebrities and then let me know which ones your favorites are.
+Surprisingly, there are so many amazing lifestyle brands and blogs run by celebrities today! Most of these have evolved into full-scale wellness and fashion hubs, covering everything from clean beauty and longevity to home decor and sustainable living. It’s fascinating to see how these celebrities use their platforms to share their passions and connect with fans on a deeper level. Check out some of the most influential celebrity-led lifestyle destinations you should be following in 2026.
 
-## 1. Shay Mitchell & Michaela Blaney
+CelebrityBrand/BlogPrimary FocusKourtney KardashianPooshWellness & LongevityGwyneth PaltrowGoopLuxury Beauty & FashionMeghan MarkleAs EverLuxury Home & LifestyleMartha StewartThe Martha BlogHome, Gardening & Food
 
-![Shay Mitchell & Michaela Blaney](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/zw/t4/bscl0dnh_600x900.jpg)
+## 1. Poosh by Kourtney Kardashian Barker
 
-**Blog Site:** [shaymitchblog.tumblr.com](https://shaymitchblog.tumblr.com/)
+![Kourtney Kardashian Barker Poosh](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/zw/t4/bscl0dnh_600x900.jpg)
 
-Pretty Little Liars' Shay Mitchell runs a blog with Michaela Blaney and the two discuss fashion, cooking, fitness, and more. What's cool about this blog is that it's really interactive. Shay constantly has fans/readers submit recipes and then she chooses the best one to post online! This is just one of the cool blogs run by celebrities.
+**Official Site:** [poosh.com](https://poosh.com/)
 
-## 2. The Lo down
+Kourtney Kardashian Barker’s [Poosh](https://celebs.allwomenstalk.com/health-habits-of-the-hottest-celebs/) has become a powerhouse in the wellness space. By 2026, the brand has leaned heavily into longevity and biohacking, sharing cutting-edge health trends like NAD+ treatments and hormone optimization. What makes Poosh stand out is its mix of high-end wellness advice and accessible lifestyle tips, often showcased through their famous "Camp Poosh" events. It’s the ultimate guide for anyone looking to live their most vibrant, healthy life.
 
-_ **Blog Site:** thelodown.com_
+## 2. Goop by Gwyneth Paltrow
 
-If you love food, fashion, beauty, and shopping, then you'll love Lo Bosworth's blog. She's constantly posting style ideas, make-up tutorials, and even beauty hauls. Lo even has regular "giveaways," where her readers are given the chance to win make-up products and more! The "food" category is full of yummy snacks that you can try and even documents Lo's adventures in culinary school.
+![Gwyneth Paltrow Goop](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/ea/z1/m2kop7lr_600x822.jpg)
 
-## 3. Tomboy Kc
+**Official Site:** [goop.com](https://goop.com/)
 
-![Tomboy Kc](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/ge/rq/two971lx_600x885.jpg)
+Gwyneth Paltrow’s [Goop](https://lifestyle.allwomenstalk.com/essential-beauty-products-for-the-modern-woman/) remains the gold standard for luxury lifestyle curation. In 2026, the brand has streamlined its focus toward high-performance clean beauty, premium fashion via G. Label, and its expanding Goop Kitchen food delivery service. Whether you’re looking for a deep dive into spiritual wellness or the perfect non-toxic face oil, Goop continues to lead the conversation with its expert-backed content and highly curated shop.
 
-**Blog Site:** [tomboykc.com](http://tomboykc.com/)
+## 3. As Ever by Meghan Markle
 
-Katie Cassidy's got some of the best street style looks around and now she's helping us all look just as fabulous. "Tomboy KC" will become your style guide, showing you how to look casual and cool this summer. You can even shop some of the hottest items directly from the site! How convenient is that?!
+![Meghan Markle As Ever](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/ge/rq/two971lx_600x885.jpg)
 
-## 4. Your Zen Life
+**Official Site:** [americanrivieraorchard.com](https://www.instagram.com/americanrivieraorchard/)
 
-![Your Zen Life](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/ax/ny/nifczpcu_600x900.jpg)
+Meghan Markle’s much-anticipated lifestyle brand, [As Ever](https://celebs.allwomenstalk.com/stunning-celebrity-homes-that-will-leave-you-breathless/) (rebranded from American Riviera Orchard), has officially launched to massive acclaim. Focusing on the "joy of living," the site features high-end home goods, artisanal food products like her famous jams and honey, and elegant tableware. The brand is beautifully integrated with her Netflix lifestyle series, offering a sophisticated look at modern entertaining and home life.
 
-**Blog Site:** [yourzenlife.com](https://www.yourzenlife.com/)
+## 4. The Martha Blog by Martha Stewart
 
-For more mellow vibes, you'll love Phoebe Tonkin & Claire Holt's blog. It serves as an online scrapbook where "people from all walks of life can share their knowledge and passion for health and wellness." It's updated regularly and features categories like "eco-living," "inspire," "mind & soul," "nourish," and more.
+![Martha Stewart The Martha Blog](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/ax/ny/nifczpcu_600x900.jpg)
 
-## 5. Nicole 'Snooki' Polizzi
+**Official Site:** [themarthablog.com](https://www.themarthablog.com/)
 
-![Nicole 'Snooki' Polizzi](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/to/np/po2hwk34_600x902.jpg)
+The original lifestyle mogul, Martha Stewart, is still going strong with The Martha Blog. Unlike many modern brands that focus on products, Martha’s blog remains a deeply personal diary of her life at her farm. From hosta garden tours to behind-the-scenes looks at her wardrobe, Martha provides daily inspiration for gardening, cooking, and home management. It’s a masterclass in living well, delivered by the expert herself.
 
-**Blog Site:** [snookinicole.celebuzz.com](https://goo.gl/ZXJZDp)
+## 5. Love Wellness by Lo Bosworth
 
-Snooki's blog is actually one of my favorites. She's always posting fun content and I especially love when she blogs about her son, Lorenzo! Through her second pregnancy, Nicole's posted tons of content that was helpful to other pregnant woman! I can't wait to see all the adorable family photos she'll post when baby #2 is born.
+![Lo Bosworth Love Wellness](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/to/np/po2hwk34_600x902.jpg)
 
-## 6. Lauren Conrad
+**Official Site:** [lovewellness.com](https://lovewellness.com/)
 
-![Lauren Conrad](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/xf/m7/sopxo36f_600x900.jpg)
+Lo Bosworth has successfully pivoted from reality TV to building a 5 million wellness empire. Love Wellness focuses on women’s health from a science-backed perspective, covering what Lo calls the "GBV" axis: Gut, Brain, and Vagina. Her blog, *Work Life Balance*, offers a founder’s perspective on health, career, and self-care, making it a must-read for women looking for practical, expert-led wellness advice.
 
-**Blog Site:** [laurenconrad.com](https://laurenconrad.com/)
+## 6. LaurenConrad.com by Lauren Conrad
 
-Lauren's lifestyle website has been popular for a few years now and it's truly great. It even calls itself "your front row pass to all things lovely and chic," and rightfully so. If you're a fashionista like Lauren, beauty tips are posted regularly. That's not where it stops though; the site offers content in categories like "dine," "decorate," "read," and "get fit." It has everything you could ever need!
+![Lauren Conrad Lifestyle](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/xf/m7/sopxo36f_600x900.jpg)
 
-## 7. Hello Giggles
+**Official Site:** [laurenconrad.com](https://laurenconrad.com/)
 
-![Hello Giggles](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/ga/gt/y31mpqrc_600x850.jpg)
+While Lauren Conrad officially said goodbye to her editorial blog in 2023, her website remains a vital hub for her various brands, including LC Lauren Conrad and The Little Market. The site still hosts a massive archive of "lovely and chic" content, from DIY tutorials to fashion tips. Lauren’s aesthetic continues to influence the lifestyle space, focusing on timeless style and socially conscious shopping.
 
-**Blog Site:** [hellogiggles.com](https://hellogiggles.com/)
+## 7. HelloGiggles (Founded by Zooey Deschanel)
 
-This blog is another one of my favorites! It was founded by actress/musician Zooey Deschanel, producer Sophia Rossi, and writer/Internet sensation Molly McAleer. It really is the ultimate destination for smart, funny, and creative women. The blog covers DIY projects, friendship, sex & relationships, beauty, pop culture, and everything else you'd want. I definitely suggest checking it out!
+![HelloGiggles Zooey Deschanel](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/ga/gt/y31mpqrc_600x850.jpg)
 
-Well, there you have it. These are just seven out of many awesome blogs that are run by celebrities! I love that they all take time from their busy schedules to create such awesome content and share it with all of their fans. Of the list, which celebrity blog is your favorite?
+**Official Site:** [hellogiggles.com](https://hellogiggles.com/)
+
+Though HelloGiggles officially shuttered its editorial operations in 2025, its legacy as a positive, inclusive space for women remains unmatched. Founded by Zooey Deschanel, Sophia Rossi, and Molly McAleer, the site was a pioneer in covering everything from pop culture to mental health with a "smart and funny" lens. While new content may have slowed, it remains a beloved archive for creative women everywhere.
+
+The world of celebrity lifestyle blogging has certainly evolved, moving from simple diaries to multi-million dollar brands. Whether you’re looking for longevity tips from Kourtney or gardening advice from Martha, there is no shortage of inspiration. Which of these celebrity-led brands is your go-to for lifestyle tips? Let us know in the comments below!
+
+- Follow your favorite celebs on social media for real-time updates.
+- Sign up for newsletters to get exclusive content and product drops.
+- Look for expert-backed advice on health and wellness sites.
 
 ## Related Posts
 
 - [blog about parenting](https://parenting.allwomenstalk.com/top-parenting-blogs/)
-- [leandra medine weight](https://fashion.allwomenstalk.com/fashion-bloggers-who-will-change-the-game-this-year/)
-- [top indian fashion bloggers](https://fashion.allwomenstalk.com/indian-fashion-bloggers-thatll-blow-your-mind/)
-- [teen fashion blogger](https://fashion.allwomenstalk.com/young-and-cool-fashion-blogs-you-must-start-following/)
-- [restore ann arbor facebook](https://lifestyle.allwomenstalk.com/humans-of-blogs-sure-to-restore-your-faith-in-humanity/)
 - [blake lively blog](https://celebs.allwomenstalk.com/reasons-to-read-blake-livelys-lifestyle-blog/)
-- [anna victoria fitness](https://fitness.allwomenstalk.com/fitness-bloggers-and-vloggers-to-keep-you-inspired/)
-- [plus size influencer](https://fashion.allwomenstalk.com/fabulous-plus-size-fashion-bloggers-to-follow-on-instagram/)
-- [gluten free goddess](https://food.allwomenstalk.com/blogs-to-follow-if-youre-gluten-free/)
+- [leandra medine weight](https://fashion.allwomenstalk.com/fashion-bloggers-who-will-change-the-game-this-year/)
+- [restore ann arbor facebook](https://lifestyle.allwomenstalk.com/humans-of-blogs-sure-to-restore-your-faith-in-humanity/)
+- [teen fashion blogger](https://fashion.allwomenstalk.com/young-and-cool-fashion-blogs-you-must-start-following/)
 - [acne blogs](https://skincare.allwomenstalk.com/blogs-for-people-who-suffer-from-acne/)
+- [gluten free goddess](https://food.allwomenstalk.com/blogs-to-follow-if-youre-gluten-free/)
+- [anna victoria fitness](https://fitness.allwomenstalk.com/fitness-bloggers-and-vloggers-to-keep-you-inspired/)
+- [top indian fashion bloggers](https://fashion.allwomenstalk.com/indian-fashion-bloggers-thatll-blow-your-mind/)
+- [plus size influencer](https://fashion.allwomenstalk.com/fabulous-plus-size-fashion-bloggers-to-follow-on-instagram/)
 - [7 of My Favorite Paranormal Blogs ...](https://paranormal.allwomenstalk.com/7-of-my-favorite-paranormal-blogs/)
 - [7 Paranormal Blogs ...](https://paranormal.allwomenstalk.com/7-paranormal-blogs/)
 

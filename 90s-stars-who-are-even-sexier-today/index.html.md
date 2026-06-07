@@ -1,12 +1,12 @@
 ---
-title: "17 90s Stars Who Are Even Sexier Today ..."
+title: "17 '90s Stars Who Are Even Sexier Today ..."
 description: "Jennifer Love Hewitt; Danielle Fishel; Tina Majorino; John Stamos; Alicia Silverstone; More ..."
 url: "https://celebs.allwomenstalk.com/90s-stars-who-are-even-sexier-today/"
 category: "celebs"
-last_updated: "2026-05-25"
+last_updated: "2026-06-07"
 ---
 
-# 17 90s Stars Who Are Even Sexier Today ...
+# 17 '90s Stars Who Are Even Sexier Today ...
 
 You know how Hollywood treats the idea of aging and getting older, right? It's not allowed, especially if you're a woman. You get older and Hollywood decides you're no longer hot or sexy or even worthy of recognition. That's bollocks. It ignores the fact that there are plenty of celebrities who get better with age, just like fine wine. For instance, here's a throwback treat for all my '90s kids – these stars were hotter than hot back then, and they're even hotter now.
 
@@ -116,15 +116,15 @@ Tell me, stalkers, who are your picks? Do you love any celebs who look better no
 
 ## Related Posts
 
-- [halle berry sarah palin](https://celebs.allwomenstalk.com/did-you-know-these-celebs-were-beauty-queens-before-they-became-stars/)
-- [celebrity face swap](https://celebs.allwomenstalk.com/these-are-the-best-face-swaps-celebs-have-ever-posted/)
 - [how to snap celebrities](https://celebs.allwomenstalk.com/the-hottest-celebs-to-follow-on-snapchat/)
 - [20 under 20](https://teen.allwomenstalk.com/most-influential-people-under-20/)
-- [social media food trends](https://food.allwomenstalk.com/foods-that-broke-the-internet-as-much-as-kim/)
 - [best celebrity workouts](https://fitness.allwomenstalk.com/celeb-workouts-for-women-who-want-to-look-like-stars/)
-- [full frontal movie stars](https://celebs.allwomenstalk.com/hot-actors-whove-gone-full-frontal-on-screen/)
+- [social media food trends](https://food.allwomenstalk.com/foods-that-broke-the-internet-as-much-as-kim/)
 - [harry potter cast oliver wood](https://celebs.allwomenstalk.com/where-the-supporting-harry-potter-cast-is-now/)
+- [celebrity face swap](https://celebs.allwomenstalk.com/these-are-the-best-face-swaps-celebs-have-ever-posted/)
 - [celebrities](https://celebs.allwomenstalk.com/be-inspired-by-celebrities-who-have-branched-out-to-try-new-things/)
+- [full frontal movie stars](https://celebs.allwomenstalk.com/hot-actors-whove-gone-full-frontal-on-screen/)
+- [halle berry sarah palin](https://celebs.allwomenstalk.com/did-you-know-these-celebs-were-beauty-queens-before-they-became-stars/)
 - [most awkward interviews](https://celebs.allwomenstalk.com/youll-cringe-at-these-unbelievably-awkward-celeb-interviews/)
 - [40 and Fabulous: 7 Female Celebrities That Look Be...](https://celebs.allwomenstalk.com/and-fabulous-7-female-celebrities-that-look-better-than-ever/)
 - [99 Most Wanted Women of 2007 ...](https://allwomenstalk.com/most-wanted-women-of/)

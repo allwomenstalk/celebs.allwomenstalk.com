@@ -3,7 +3,7 @@ title: "9 Recent Celebrity Baby Names ..."
 description: "Willa Lou; Georgia Geraldine; Ethel Mary; Mason Evan; Gemma Rose; More ..."
 url: "https://celebs.allwomenstalk.com/recent-celebrity-baby-names/"
 category: "celebs"
-last_updated: "2026-05-25"
+last_updated: "2026-06-07"
 ---
 
 # 9 Recent Celebrity Baby Names ...
@@ -52,16 +52,16 @@ Top Image Source: [weheartit.com](https://weheartit.com/entry/17457559)
 
 ## Related Posts
 
-- [disney fairytale weddings divorce](https://wedding.allwomenstalk.com/celeb-brides-youd-love-to-see-walk-down-the-aisle/)
-- [omar epps skirt](https://celebs.allwomenstalk.com/adorable-celebs-that-should-be-together/)
-- [what celebrity named their kid pillow](https://celebs.allwomenstalk.com/off-the-wall-celebrity-baby-names/)
-- [good hearted celebrities](https://celebs.allwomenstalk.com/nicest-celebrities-who-have-a-heart-of-gold/)
 - [celebrities selling products](https://celebs.allwomenstalk.com/worst-celebrity-endorsed-products/)
-- [celebrity holiday cards](https://allwomenstalk.com/celebrity-holiday-cards-pick-your-favorite/)
-- [jeannine russell age](https://celebs.allwomenstalk.com/celebs-with-killer-curves/)
 - [best mugshots ever](https://celebs.allwomenstalk.com/top-celebrity-mug-shots/)
-- [is nick cage a good actor](https://movies.allwomenstalk.com/worst-actors-of-our-time/)
+- [celebrity holiday cards](https://allwomenstalk.com/celebrity-holiday-cards-pick-your-favorite/)
+- [disney fairytale weddings divorce](https://wedding.allwomenstalk.com/celeb-brides-youd-love-to-see-walk-down-the-aisle/)
+- [good hearted celebrities](https://celebs.allwomenstalk.com/nicest-celebrities-who-have-a-heart-of-gold/)
+- [jeannine russell age](https://celebs.allwomenstalk.com/celebs-with-killer-curves/)
 - [funny quotes celebrities](https://celebs.allwomenstalk.com/stupidest-quotes-celebrities-have-blurted-out/)
+- [is nick cage a good actor](https://movies.allwomenstalk.com/worst-actors-of-our-time/)
+- [what celebrity named their kid pillow](https://celebs.allwomenstalk.com/off-the-wall-celebrity-baby-names/)
+- [omar epps skirt](https://celebs.allwomenstalk.com/adorable-celebs-that-should-be-together/)
 - [7 of the Top Picked Baby Names Throughout the Year...](https://parenting.allwomenstalk.com/of-the-top-picked-baby-names-throughout-the-years/)
 - [25 Most Unique Celebrity Baby Names ...](https://celebs.allwomenstalk.com/25-most-unique-celebrity-baby-names/)
 

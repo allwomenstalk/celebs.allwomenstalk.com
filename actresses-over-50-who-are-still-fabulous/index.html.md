@@ -3,7 +3,7 @@ title: "7 Actresses over 50 Who Are Still Fabulous ..."
 description: "Ellen; Kim Cattrall; Angela Bassett; Angelica Huston; Meryl Streep; More ..."
 url: "https://celebs.allwomenstalk.com/actresses-over-50-who-are-still-fabulous/"
 category: "celebs"
-last_updated: "2026-05-25"
+last_updated: "2026-06-07"
 ---
 
 # 7 Actresses over 50 Who Are Still Fabulous ...
@@ -60,15 +60,15 @@ Do you have a favorite actress who's over 50? Perhaps, there's one you would lik
 ## Related Posts
 
 - [dilligaf tattoo meaning](https://celebs.allwomenstalk.com/celebs-who-are-obsessed-with-tattoos/)
-- [riche le stylo eye timeless spark](https://celebs.allwomenstalk.com/celebrities-with-famous-godparents-that-you-probably-didnt-know-about/)
-- [alyson hannigan looks like](https://celebs.allwomenstalk.com/celebrities-who-look-like-they-never-age/)
+- [camilla luddington twitter](https://celebs.allwomenstalk.com/greys-anatomy-celebrities-who-are-social-on-twitter/)
 - [zooey deschanel and joseph gordon-levitt relations...](https://celebs.allwomenstalk.com/favorite-real-life-will-theywont-they-celebrity-couples/)
 - [celebrities with non famous spouses](https://celebs.allwomenstalk.com/celebrities-who-married-non-celebrities/)
 - [lauren jauregui weight gain](https://celebs.allwomenstalk.com/celebs-who-rock-bold-brows-and-look-fab/)
-- [male actors 60 years old](https://celebs.allwomenstalk.com/celebrities-who-only-get-better-with-age/)
-- [camilla luddington twitter](https://celebs.allwomenstalk.com/greys-anatomy-celebrities-who-are-social-on-twitter/)
 - [justin berfield height](https://movies.allwomenstalk.com/noughties-tv-stars-we-all-seriously-miss/)
 - [zan efron](https://celebs.allwomenstalk.com/disney-celebs-whove-gone-on-to-do-big-things/)
+- [male actors 60 years old](https://celebs.allwomenstalk.com/celebrities-who-only-get-better-with-age/)
+- [alyson hannigan looks like](https://celebs.allwomenstalk.com/celebrities-who-look-like-they-never-age/)
+- [riche le stylo eye timeless spark](https://celebs.allwomenstalk.com/celebrities-with-famous-godparents-that-you-probably-didnt-know-about/)
 - [25 Hottest Female Celebrities under 25 ...](https://celebs.allwomenstalk.com/25-hottest-female-celebrities-under-25/)
 - [8 Celebrities That Look Older than Their True Age ...](https://celebs.allwomenstalk.com/celebrities-that-look-older-than-their-true-age/)
 

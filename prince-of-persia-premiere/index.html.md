@@ -1,12 +1,12 @@
 ---
-title: "Whos Excited to See the Prince of Persia?"
+title: "Who's Excited to See the Prince of Persia?"
 description: "Stay ahead, stay chic. Trusted guides on beauty, wellness, fashion, and everything that defines today's empowered woman."
 url: "https://celebs.allwomenstalk.com/prince-of-persia-premiere/"
 category: "celebs"
-last_updated: "2026-05-25"
+last_updated: "2026-06-07"
 ---
 
-# Whos Excited to See the Prince of Persia?
+# Who's Excited to See the Prince of Persia?
 
 I am I am! And not just because of Jake Gyllenhaal. I just loved the game! Here are photos from the [Los Angeles](https://celebs.allwomenstalk.com/tag/los-angeles/) Premiere of "Prince Of Persia". Grauman's Chinese Theatre, Hollywood, CA. May 17th, 2010.
 
@@ -68,18 +68,18 @@ So has anyone seen it yet?
 
 ## Related Posts
 
-- [Its Showtime](https://allwomenstalk.com/its-showtime/)
-- [Tortured Artist or Ecstatic Novelist](https://allwomenstalk.com/tortured-artist-or-ecstatic-novelist-2/)
-- [Are You Ready for Your Close-up](https://allwomenstalk.com/are-you-ready-for-your-close-up/)
-- [Are You Ready for Your Close-up](https://allwomenstalk.com/are-you-ready-for-your-close-up-2/)
+- [It's "Showtime"!](https://allwomenstalk.com/its-showtime/)
+- [Tortured Artist or Ecstatic Novelist?](https://allwomenstalk.com/tortured-artist-or-ecstatic-novelist-2/)
+- [Are You Ready for Your Close-up?](https://allwomenstalk.com/are-you-ready-for-your-close-up/)
+- [Are You Ready for Your Close-up?](https://allwomenstalk.com/are-you-ready-for-your-close-up-2/)
 - [Yay. Some Excitement.](https://allwomenstalk.com/yay-some-excitement-2/)
 - [Post Excitement](https://allwomenstalk.com/post-excitement/)
-- [Cool Geek Who Me](https://allwomenstalk.com/cool-geek-who-me/)
-- [Who Wants to Go for a DRIVE](https://allwomenstalk.com/who-wants-to-go-for-a-drive/)
-- [Who Doesnt Love to Flip out](https://allwomenstalk.com/who-doesnt-love-to-flip-out/)
-- [Evanescence Plays the Greek](https://allwomenstalk.com/evanescence-plays-the-greek/)
-- [Who is Ready for More dirt Popbytes is](https://allwomenstalk.com/who-is-ready-for-more-dirt-popbytes-is/)
-- [Who else Wants the New Ferrari California](https://allwomenstalk.com/who-else-wants-the-new-ferrari-california/)
+- [Cool Geek? Who Me?](https://allwomenstalk.com/cool-geek-who-me/)
+- [Who Wants to Go for a DRIVE?](https://allwomenstalk.com/who-wants-to-go-for-a-drive/)
+- [Who Doesn't Love to Flip out?!?](https://allwomenstalk.com/who-doesnt-love-to-flip-out/)
+- [Evanescence Plays the Greek!](https://allwomenstalk.com/evanescence-plays-the-greek/)
+- [Who is Ready for More 'dirt'? Popbytes is!](https://allwomenstalk.com/who-is-ready-for-more-dirt-popbytes-is/)
+- [Who else Wants the New Ferrari California?](https://allwomenstalk.com/who-else-wants-the-new-ferrari-california/)
 
 ## Site Information
 

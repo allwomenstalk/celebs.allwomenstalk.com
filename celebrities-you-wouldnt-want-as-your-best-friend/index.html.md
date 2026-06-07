@@ -1,12 +1,12 @@
 ---
-title: "7 Celebrities You Wouldnt Want as Your Best Friend ..."
+title: "7 Celebrities You Wouldn't Want as Your Best Friend ..."
 description: "Gwyneth Paltrow; Lindsay Lohan; Naomi Campbell; Paris Hilton; Shannen Doherty; More ..."
 url: "https://celebs.allwomenstalk.com/celebrities-you-wouldnt-want-as-your-best-friend/"
 category: "celebs"
-last_updated: "2026-05-25"
+last_updated: "2026-06-07"
 ---
 
-# 7 Celebrities You Wouldnt Want as Your Best Friend ...
+# 7 Celebrities You Wouldn't Want as Your Best Friend ...
 
 You can easily picture yourself laughing and having fun with America’s Sweethearts, Julia (Roberts) and Jen(nifer Aniston), but what about celebrities you wouldn't want as your best friend? These divas wreak havoc with co-workers, colleagues, and friends alike. Their well-publicized tantrums have caused them to lose work as well as fans. While it could be fun to think of some of Hollywood’s nicer gals as besties, these are a few of the celebrities you wouldn't want as your best friend... under any circumstances.
 
@@ -56,16 +56,16 @@ Which Hollywood gal wouldn’t you want as a pal? Share your thoughts with me an
 
 ## Related Posts
 
-- [7 Celebs from ABCs Scandal That Love to Live-Tweet...](https://celebs.allwomenstalk.com/celebs-from-abcs-scandal-that-love-to-live-tweet/)
-- [An Eye-Opening Look at Child Stars Who Have Mature...](https://celebs.allwomenstalk.com/child-stars-whove-matured-into-fine-young-men-and-women/)
-- [9 Celebrities Who Had Secret Weddings ...](https://celebs.allwomenstalk.com/celebrities-who-had-secret-weddings/)
-- [nepotism models list](https://celebs.allwomenstalk.com/celebrity-kids-who-have-stunned-the-modeling-world/)
-- [11 Big Celebrity Beefs from behind the Scenes ...](https://bilbr.com/big-celebrity-beefs-from-behind-the-scenes/)
 - [hotels for celebrities](https://travel.allwomenstalk.com/hotels-owned-by-celebrities/)
-- [7 Crazy Celebrity Feuds Youd Have to Read about to...](https://celebs.allwomenstalk.com/crazy-celebrity-feuds-youd-have-to-read-about-to-believe/)
-- [9 Saturday Night Live Actors We Miss ...](https://7fun.net/saturday-night-live-actors-we-miss/)
+- [nepotism models list](https://celebs.allwomenstalk.com/celebrity-kids-who-have-stunned-the-modeling-world/)
 - [11 Celebrities Who Have Been Turned down in Their ...](https://celebs.allwomenstalk.com/celebrities-who-have-been-turned-down-in-their-career/)
+- [9 Saturday Night Live Actors We Miss ...](https://7fun.net/saturday-night-live-actors-we-miss/)
+- [11 Big Celebrity Beefs from behind the Scenes ...](https://bilbr.com/big-celebrity-beefs-from-behind-the-scenes/)
+- [An Eye-Opening Look at Child Stars Who Have Mature...](https://celebs.allwomenstalk.com/child-stars-whove-matured-into-fine-young-men-and-women/)
 - [Like Fine Wine: Celebrities Who Get Better with Ag...](https://celebs.allwomenstalk.com/celebrities-who-look-better-with-age/)
+- [9 Celebrities Who Had Secret Weddings ...](https://celebs.allwomenstalk.com/celebrities-who-had-secret-weddings/)
+- [7 Celebs from ABC's Scandal That Love to Live-Twee...](https://celebs.allwomenstalk.com/celebs-from-abcs-scandal-that-love-to-live-tweet/)
+- [7 Crazy Celebrity Feuds You'd Have to Read about t...](https://celebs.allwomenstalk.com/crazy-celebrity-feuds-youd-have-to-read-about-to-believe/)
 - [8 Celebrities with Awful Table Manners ...](https://celebs.allwomenstalk.com/celebrities-with-awful-table-manners/)
 - [7 Reasons Not to Date Your Best Friend ...](https://allwomenstalk.com/7-reasons-not-to-date-your-best-friend/)
 

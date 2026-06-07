@@ -1,12 +1,12 @@
 ---
-title: "Celebs Born in February Part 2 of 4 ..."
+title: "Celebs Born in February (Part 2 of 4) ..."
 description: "Seth Green (Feb 8.); Tom Hiddleston (Feb. 9); Elizabeth Banks (Feb. 10); Jennifer Aniston (Feb. 11); Josh Brolin (Feb. 12); More ..."
 url: "https://celebs.allwomenstalk.com/celebrities-born-in-february-2/"
 category: "celebs"
-last_updated: "2026-05-25"
+last_updated: "2026-06-07"
 ---
 
-# Celebs Born in February Part 2 of 4 ...
+# Celebs Born in February \(Part 2 of 4\) ...
 
 Everyone shares a birthday with a celebrity and I'm back with some **celebrities born in February**. Since it is February, I’m posting celebrity birthdays for the whole month; one celebrity for each day. As this is part 2 of the list, this will showcase celebrities born from February 8 to February 14. To see birthdays from February 1 to 7, be sure to read part 1 of the **celebrities born in February**.
 
@@ -56,15 +56,15 @@ Celebrities born from February 15 to February 21 will be shared in part 3, which
 
 ## Related Posts
 
+- [robert downey jr oscar winner](https://movies.allwomenstalk.com/incredible-actors-who-are-yet-to-win-an-oscar/)
+- [gal gadot brother](https://celebs.allwomenstalk.com/yaron-versano/)
+- [90s heartthrobs actors](https://celebs.allwomenstalk.com/heartthrobs-of-the-1990s/)
 - [laurence fishburne ex-wife](https://celebs.allwomenstalk.com/celebrity-couples-who-split-in-2018/)
 - [brazilian asian baby](https://celebs.allwomenstalk.com/dont-hate-me-cause-im-cute-adorable-celeb-kids-we-love/)
-- [what toothpaste do celebrities use](https://beauty.allwomenstalk.com/perfect-ways-to-get-a-celebrity-smile/)
-- [robert downey jr oscar winner](https://movies.allwomenstalk.com/incredible-actors-who-are-yet-to-win-an-oscar/)
-- [wokest celebrities](https://celebs.allwomenstalk.com/who-are-the-most-charitable-celebrities/)
-- [lake como celebrities](https://travel.allwomenstalk.com/where-celebrities-go-on-vacation/)
-- [90s heartthrobs actors](https://celebs.allwomenstalk.com/heartthrobs-of-the-1990s/)
 - [best mym models](https://inspiration.allwomenstalk.com/meet-your-model-exclusive-content-from-your-favourite-personalities/)
-- [gal gadot brother](https://celebs.allwomenstalk.com/yaron-versano/)
+- [wokest celebrities](https://celebs.allwomenstalk.com/who-are-the-most-charitable-celebrities/)
+- [what toothpaste do celebrities use](https://beauty.allwomenstalk.com/perfect-ways-to-get-a-celebrity-smile/)
+- [lake como celebrities](https://travel.allwomenstalk.com/where-celebrities-go-on-vacation/)
 - [celebrities born february 18](https://celebs.allwomenstalk.com/celebrities-born-in-february-3/)
 - [7 Inspiring Celebrities of 2011 ...](https://celebs.allwomenstalk.com/inspiring-celebrities-of/)
 - [10 Gorgeous Full-Figured Celebrities ...](https://celebs.allwomenstalk.com/gorgeous-full-figured-celebrities/)

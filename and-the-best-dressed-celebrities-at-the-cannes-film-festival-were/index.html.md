@@ -3,7 +3,7 @@ title: "And the Best Dressed Celebrities at the Cannes Film Festival 2015 Were .
 description: "A Different Kind of Silhouette - Elizabeth Debicki in Giambattista Valli Couture; Oh-so-Glamorous - Emily Blunt in Stella McCartney; The Right Kind of Dramatic - Araya a. Hargate in Ashi Studio Couture; Lady in Black - Cate Blanchett in Armani Privé; Red Hot- Aishwarya Rai in Oscar De La Renta; More ..."
 url: "https://celebs.allwomenstalk.com/and-the-best-dressed-celebrities-at-the-cannes-film-festival-were/"
 category: "celebs"
-last_updated: "2026-05-25"
+last_updated: "2026-06-07"
 ---
 
 # And the Best Dressed Celebrities at the Cannes Film Festival 2015 Were ...
@@ -114,18 +114,18 @@ Who was your favorite of the bunch?
 
 ## Related Posts
 
-- [blair red dress paris](https://movies.allwomenstalk.com/the-screens-best-dressed-students/)
-- [kroes rocks](https://beauty.allwomenstalk.com/these-were-the-best-hair-and-makeup-looks-from-cannes-film-festival/)
-- [worlds highest paid models](https://celebs.allwomenstalk.com/who-are-the-worlds-highest-paid-models-in/)
 - [teen choice 2015](https://celebs.allwomenstalk.com/the-red-carpet-at-the-teen-choice-awards/)
-- [drinking game with boyfriend](https://lifestyle.allwomenstalk.com/play-this-drinking-game-during-the-oscars/)
-- [best couples of hollywood](https://celebs.allwomenstalk.com/the-best-dressed-hollywood-couples/)
-- [pulitzer prize 2016](https://books.allwomenstalk.com/who-won-pulitzer-prizes-in/)
-- [pulitzer prize winners 2017](https://books.allwomenstalk.com/check-out-the-awesome-pulitzer-prize-winners-of/)
-- [jimmy fallon ellen lip sync](https://celebs.allwomenstalk.com/ellen-degeneres-vs-jimmy-fallon-who-won-their-lip-sync-battle/)
 - [couple fashion editorial](https://celebs.allwomenstalk.com/are-these-the-most-stylish-couples-of-all-time/)
+- [jimmy fallon ellen lip sync](https://celebs.allwomenstalk.com/ellen-degeneres-vs-jimmy-fallon-who-won-their-lip-sync-battle/)
+- [blair red dress paris](https://movies.allwomenstalk.com/the-screens-best-dressed-students/)
+- [worlds highest paid models](https://celebs.allwomenstalk.com/who-are-the-worlds-highest-paid-models-in/)
+- [pulitzer prize 2016](https://books.allwomenstalk.com/who-won-pulitzer-prizes-in/)
+- [kroes rocks](https://beauty.allwomenstalk.com/these-were-the-best-hair-and-makeup-looks-from-cannes-film-festival/)
+- [pulitzer prize winners 2017](https://books.allwomenstalk.com/check-out-the-awesome-pulitzer-prize-winners-of/)
+- [best couples of hollywood](https://celebs.allwomenstalk.com/the-best-dressed-hollywood-couples/)
+- [drinking game with boyfriend](https://lifestyle.allwomenstalk.com/play-this-drinking-game-during-the-oscars/)
 - [The Best Dressed Women of 2010 ...](https://celebs.allwomenstalk.com/the-best-dressed-women-of/)
-- [5 People Who Made It on Vanity Fairs Best Dressed ...](https://celebs.allwomenstalk.com/people-who-made-it-on-vanity-fairs-best-dressed-list/)
+- [5 People Who Made It on Vanity Fair's Best Dressed...](https://celebs.allwomenstalk.com/people-who-made-it-on-vanity-fairs-best-dressed-list/)
 
 ## Site Information
 

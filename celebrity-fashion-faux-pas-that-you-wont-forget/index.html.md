@@ -1,12 +1,12 @@
 ---
-title: "11 Celebrity Fashion Faux-pas That You Wont Forget ..."
+title: "11 Celebrity Fashion Faux-pas That You Won't Forget ..."
 description: "Blake Lively, TIME 100 Gala, 2011; Gwyneth Paltrow, Vanity Fair 2002; Janet Jackson, Superbowl 2004; Britney Spears and Justin Timberlake, American Music Awards 2001; Lucy Liu, Paris Fashion Week 2008; More ..."
 url: "https://celebs.allwomenstalk.com/celebrity-fashion-faux-pas-that-you-wont-forget/"
 category: "celebs"
-last_updated: "2026-05-25"
+last_updated: "2026-06-07"
 ---
 
-# 11 Celebrity Fashion Faux\-pas That You Wont Forget ...
+# 11 Celebrity Fashion Faux\-pas That You Won't Forget ...
 
 When it comes to fashion, we've all made catastrophic errors, but they often donâ€™t compare to the celebrity fashion faux-pas. It is not surprising, with persistent pressure to make a statement or to stand out from the crowd, that sometimes, even the biggest star (and their stylists !) get it very wrong. The most gracious celebrities will themselves admit their errors and celebrity fashion faux-pas, but here are the top 11 that stand out for me.
 
@@ -80,16 +80,16 @@ When all is said and done, fashion is art, and art is subjective. Therefore, Iâ€
 
 ## Related Posts
 
-- [serena van der woodsen trench coat](https://fashion.allwomenstalk.com/most-fashionable-tv-characters-who-will-inspire-you/)
-- [loreal le smoky hollywood icon](https://celebs.allwomenstalk.com/of-hollywoods-newest-fashion-icons/)
-- [wardrobe malfunctions in public](https://fashion.allwomenstalk.com/hilarious-wardrobe-malfunctions-over-the-years/)
-- [project runway outfits](https://fashion.allwomenstalk.com/project-runway-outfits-wed-love-to-wear/)
 - [fashion runway grand junction](https://fashion.allwomenstalk.com/unconventional-project-runway-outfits-you-have-to-see-to-believe/)
+- [ahs coven looks](https://fashion.allwomenstalk.com/witchy-fashion-pieces-inspired-by-american-horror-story-coven/)
+- [project runway outfits](https://fashion.allwomenstalk.com/project-runway-outfits-wed-love-to-wear/)
 - [stylewe clothing reviews](https://fashion.allwomenstalk.com/models-whose-off-duty-style-we-cant-get-enough-of/)
+- [serena van der woodsen trench coat](https://fashion.allwomenstalk.com/most-fashionable-tv-characters-who-will-inspire-you/)
+- [gwen adore](https://celebs.allwomenstalk.com/of-gwen-stefanis-best-looks-that-we-adore/)
+- [wardrobe malfunctions in public](https://fashion.allwomenstalk.com/hilarious-wardrobe-malfunctions-over-the-years/)
 - [most fashionable celebrities](https://streetstyle.allwomenstalk.com/celebrities-with-the-best-street-style/)
 - [fashionable celebrities](https://celebs.allwomenstalk.com/fashionable-celebrity-looks-to-be-inspired-by/)
-- [gwen adore](https://celebs.allwomenstalk.com/of-gwen-stefanis-best-looks-that-we-adore/)
-- [ahs coven looks](https://fashion.allwomenstalk.com/witchy-fashion-pieces-inspired-by-american-horror-story-coven/)
+- [loreal le smoky hollywood icon](https://celebs.allwomenstalk.com/of-hollywoods-newest-fashion-icons/)
 - [25 Celebrity Wardrobe Malfunctions ...](https://celebs.allwomenstalk.com/25-celebrity-wardrobe-malfunctions/)
 - [10 Ugliest Celebrity Fashion Faux Pas of 2011 ...](https://celebs.allwomenstalk.com/ugliest-celebrity-fashion-faux-pas-of/)
 

@@ -3,7 +3,7 @@ title: "7 Celebrities Who Started out as Extras ..."
 description: "Channing Tatum; Bruce Willis; Brad Pitt; Megan Fox; Matt Damon; More ..."
 url: "https://celebs.allwomenstalk.com/celebrities-who-started-out-as-extras/"
 category: "celebs"
-last_updated: "2026-05-25"
+last_updated: "2026-06-07"
 ---
 
 # 7 Celebrities Who Started out as Extras ...
@@ -56,15 +56,15 @@ _elitedaily.com_
 ## Related Posts
 
 - [talented famous person](https://celebs.allwomenstalk.com/celebrities-who-are-multi-talented/)
-- [famous celebrities you didnt know were related](https://celebs.allwomenstalk.com/pairs-of-celebrities-you-didnt-know-were-related/)
-- [actors and musicians](https://celebs.allwomenstalk.com/talented-actors-who-are-also-musicians/)
 - [celebrities with same name](https://celebs.allwomenstalk.com/celebrities-who-changed-their-names-when-they-attained-stardom/)
 - [brian austin green megan fox age](https://celebs.allwomenstalk.com/cute-celebrity-couples-who-eloped/)
-- [actors who changed their names](https://celebs.allwomenstalk.com/celebrities-who-changed-their-appearance-for-a-role/)
-- [kesha cotton candy](https://celebs.allwomenstalk.com/celebrities-with-cotton-candy-hair/)
 - [tyler posey and miley cyrus](https://celebs.allwomenstalk.com/celebrity-couples-that-you-probably-forgot-about/)
 - [river phoenix and anna nicole smith](https://celebs.allwomenstalk.com/amazing-actors-who-died-before-their-time/)
-- [who lives in the same neighborhood as oprah](https://celebs.allwomenstalk.com/celebrities-who-are-neighbors-in-real-life/)
+- [famous celebrities you didn't know were related](https://celebs.allwomenstalk.com/pairs-of-celebrities-you-didnt-know-were-related/)
+- [actors who changed their names](https://celebs.allwomenstalk.com/celebrities-who-changed-their-appearance-for-a-role/)
+- [actors and musicians](https://celebs.allwomenstalk.com/talented-actors-who-are-also-musicians/)
+- [who lives in the same neighborhood as oprah?](https://celebs.allwomenstalk.com/celebrities-who-are-neighbors-in-real-life/)
+- [kesha cotton candy](https://celebs.allwomenstalk.com/celebrities-with-cotton-candy-hair/)
 - [7 Superstitious Celebrities ...](https://allwomenstalk.com/7-superstitious-celebrities/)
 - [7 Celebs Who Drastically Lost Weight for Roles ...](https://celebs.allwomenstalk.com/celebs-who-drastically-lost-weight-for-roles/)
 

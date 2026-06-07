@@ -3,7 +3,7 @@ title: "9 Sexiest Ice Bucket Challenges with the Hottest Guys in Hollywood ..."
 description: "Stephen Amell; Niall Horan; David Beckham; Chris Hemsworth; Lebron James; More ..."
 url: "https://celebs.allwomenstalk.com/sexiest-ice-bucket-challenges-with-the-hottest-guys-in-hollywood/"
 category: "celebs"
-last_updated: "2026-05-25"
+last_updated: "2026-06-07"
 ---
 
 # 9 Sexiest Ice Bucket Challenges with the Hottest Guys in Hollywood ...
@@ -50,15 +50,15 @@ If you haven't been challenged yet, you can still donate money to the cause. It'
 
 ## Related Posts
 
-- [celebrities who went to college](https://celebs.allwomenstalk.com/hollywood-celebrities-with-college-degrees/)
-- [best cameos for each character](https://movies.allwomenstalk.com/best-cameos-from-a-list-celebrities/)
-- [celebrities who love food](https://celebs.allwomenstalk.com/celebrity-foodies-that-love-food-as-much-as-you-do/)
 - [mr rogers sniper](https://celebs.allwomenstalk.com/celebrity-urban-legends-and-the-truth-behind-them/)
-- [celebrities who are vegetarian](https://celebs.allwomenstalk.com/celebrities-who-are-vegan/)
-- [siblings best friends](https://celebs.allwomenstalk.com/these-celeb-siblings-also-double-as-best-friends/)
 - [aileen wuornos movie actress](https://movies.allwomenstalk.com/best-transformations-for-movies/)
+- [celebrities who love food](https://celebs.allwomenstalk.com/celebrity-foodies-that-love-food-as-much-as-you-do/)
+- [best cameos for each character](https://movies.allwomenstalk.com/best-cameos-from-a-list-celebrities/)
+- [siblings best friends](https://celebs.allwomenstalk.com/these-celeb-siblings-also-double-as-best-friends/)
 - [alec baldwin looks like millard fillmore](https://celebs.allwomenstalk.com/whoa-do-these-celebs-have-a-historical-twin/)
+- [celebrities who are vegetarian](https://celebs.allwomenstalk.com/celebrities-who-are-vegan/)
 - [famous sidekicks in literature](https://movies.allwomenstalk.com/amazing-sidekicks-who-can-be-lead-stars/)
+- [celebrities who went to college](https://celebs.allwomenstalk.com/hollywood-celebrities-with-college-degrees/)
 - [ryan gosling tagine](https://celebs.allwomenstalk.com/celebrities-who-own-restaurants-and-bars/)
 - [9 Adorable and Incredibly Gorgeous Alpha Males in ...](https://celebs.allwomenstalk.com/adorable-and-incredibly-gorgeous-alpha-males-in-hollywood/)
 - [10 Hottest Men in Hollywood ...](https://celebs.allwomenstalk.com/hottest-men-in-hollywood/)

@@ -1,12 +1,12 @@
 ---
-title: "30 of the Hunkiest Celebrity Dads ..."
+title: "30 of the Hunkiest Celebrity Dads ‍‍ ..."
 description: "Ryan Reynolds; David Beckham; John Legend; Chris Hemsworth; Louis Tomlinson; More ..."
 url: "https://celebs.allwomenstalk.com/of-the-hunkiest-celebrity-dads-around/"
 category: "celebs"
-last_updated: "2026-05-25"
+last_updated: "2026-06-07"
 ---
 
-# 30 of the Hunkiest Celebrity Dads  ...
+# 30 of the Hunkiest Celebrity Dads ‍‍ ...
 
 Where there are adorable celebrity children, there are hunky **celebrity dads**. These dads made the list because they're always seen out and about with their kids and let's be real, nothing's more attractive than a family man! Am I right, ladies? Here's a look at some hunky **celebrity dads** to celebrate Father's Day:
 
@@ -194,16 +194,16 @@ Well, there you have it. These are just 30 of Hollywood's hunkiest celebrity dad
 
 ## Related Posts
 
-- [famous actors with parkinsons](https://celebs.allwomenstalk.com/celebrities-with-parkinsons-disease/)
+- [strange facts about celebrities](https://celebs.allwomenstalk.com/little-known-facts-about-your-favorite-celebrities/)
+- [celebrities with weird kid names](https://celebs.allwomenstalk.com/celebrities-explain-their-reasoning-behind-their-strange-baby-names/)
+- [famous actors with parkinson's](https://celebs.allwomenstalk.com/celebrities-with-parkinsons-disease/)
+- [ellen pompeo and patrick dempsey bts](https://celebs.allwomenstalk.com/tgit-shondaland-celebrities-you-should-be-following-on-twitter/)
+- [wedding dress magazines free](https://wedding.allwomenstalk.com/gorgeous-celebrities-who-have-covered-wedding-magazines/)
 - [celebrities giving back](https://inspiration.allwomenstalk.com/these-charitable-celebrity-couples-are-all-about-giving-back/)
 - [bromances](https://celebs.allwomenstalk.com/of-the-cutest-celebrity-bromances-of-all-time/)
-- [ellen pompeo and patrick dempsey bts](https://celebs.allwomenstalk.com/tgit-shondaland-celebrities-you-should-be-following-on-twitter/)
-- [strange facts about celebrities](https://celebs.allwomenstalk.com/little-known-facts-about-your-favorite-celebrities/)
+- [cameron diaz snoop high school](https://celebs.allwomenstalk.com/celebrities-who-went-to-high-school-together/)
 - [julianna hough plastic surgery](https://celebs.allwomenstalk.com/whoa-celebrity-doppelgangers-from-different-generations/)
 - [pregnant celebrities on red carpet](https://fashion.allwomenstalk.com/celebrities-that-made-red-carpet-baby-bumps-look-amazing/)
-- [cameron diaz snoop high school](https://celebs.allwomenstalk.com/celebrities-who-went-to-high-school-together/)
-- [wedding dress magazines free](https://wedding.allwomenstalk.com/gorgeous-celebrities-who-have-covered-wedding-magazines/)
-- [celebrities with weird kid names](https://celebs.allwomenstalk.com/celebrities-explain-their-reasoning-behind-their-strange-baby-names/)
 - [25 Hottest Celebrity Moms ...](https://celebs.allwomenstalk.com/25-hottest-celebrity-moms/)
 - [7 Most Recent Celebrity Moms ...](https://celebs.allwomenstalk.com/most-recent-celebrity-moms/)
 

@@ -3,7 +3,7 @@ title: "7 Amazing Things Done by Unexpected Celebrities ..."
 description: "Zach Galifianakis Befriends 87 Year Old Woman; Mandy Moore Supports Many Causes; Taylor Swift Reacts Positively to Internet Prank; Tyler Perry Helps His Hometown; Bradley Cooper Clothes the Homeless; More ..."
 url: "https://celebs.allwomenstalk.com/amazing-things-done-by-unexpected-celebrities/"
 category: "celebs"
-last_updated: "2026-05-25"
+last_updated: "2026-06-07"
 ---
 
 # 7 Amazing Things Done by Unexpected Celebrities ...
@@ -58,14 +58,14 @@ I love hearing about celebrities doing kind deeds. I think the media tries to sh
 
 - [7 Viners to Follow for a Daily Dose of Entertainme...](https://lifestyle.allwomenstalk.com/viners-to-follow-for-a-daily-dose-of-entertainment/)
 - [seth rogen skinny](https://celebs.allwomenstalk.com/most-awesome-canadians-in-hollywood/)
-- [13 Actors Who Started off on SNL ...](https://7fun.net/actors-who-started-off-on-snl/)
-- [7 Celebs from ABCs Scandal That Love to Live-Tweet...](https://celebs.allwomenstalk.com/celebs-from-abcs-scandal-that-love-to-live-tweet/)
 - [9 Saturday Night Live Actors We Miss ...](https://7fun.net/saturday-night-live-actors-we-miss/)
+- [7 Celebrities You Wouldn't Want as Your Best Frien...](https://celebs.allwomenstalk.com/celebrities-you-wouldnt-want-as-your-best-friend/)
+- [13 Actors Who Started off on SNL ...](https://7fun.net/actors-who-started-off-on-snl/)
+- [7 Celebs from ABC's Scandal That Love to Live-Twee...](https://celebs.allwomenstalk.com/celebs-from-abcs-scandal-that-love-to-live-tweet/)
 - [10 Celebrity Couples We Hope Will Never Break up ....](https://celebs.allwomenstalk.com/celebrity-couples-we-hope-will-never-break-up/)
 - [hotels for celebrities](https://travel.allwomenstalk.com/hotels-owned-by-celebrities/)
+- [7 Crazy Celebrity Feuds You'd Have to Read about t...](https://celebs.allwomenstalk.com/crazy-celebrity-feuds-youd-have-to-read-about-to-believe/)
 - [nepotism models list](https://celebs.allwomenstalk.com/celebrity-kids-who-have-stunned-the-modeling-world/)
-- [7 Celebrities You Wouldnt Want as Your Best Friend...](https://celebs.allwomenstalk.com/celebrities-you-wouldnt-want-as-your-best-friend/)
-- [7 Crazy Celebrity Feuds Youd Have to Read about to...](https://celebs.allwomenstalk.com/crazy-celebrity-feuds-youd-have-to-read-about-to-believe/)
 - [7 Awesomely Impressive Celebrity Entrepreneurs ...](https://celebs.allwomenstalk.com/awesomely-impressive-celebrity-entrepreneurs/)
 - [7 Greatly Astonishing Celebrity Scandals ...](https://celebs.allwomenstalk.com/greatly-astonishing-celebrity-scandals/)
 

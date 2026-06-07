@@ -3,7 +3,7 @@ title: "9 Celebrities Who Had Secret Weddings ..."
 description: "Kristen Bell and Dax Shepard; Kate Winslet and Ned Rocknroll; Blake Lively and Ryan Reynolds; Jennifer Lopez and Marc Anthony; Anna Paquin and Stephen Moyer; More ..."
 url: "https://celebs.allwomenstalk.com/celebrities-who-had-secret-weddings/"
 category: "celebs"
-last_updated: "2026-05-25"
+last_updated: "2026-06-07"
 ---
 
 # 9 Celebrities Who Had Secret Weddings ...
@@ -68,16 +68,16 @@ As fun as it may be to gawk at pictures of celebrity weddings and to see the lav
 
 ## Related Posts
 
-- [Chris Pratt Continues Being Awesome ...](https://celebs.allwomenstalk.com/chris-pratt-continues-being-awesome/)
-- [Like Fine Wine: Celebrities Who Get Better with Ag...](https://celebs.allwomenstalk.com/celebrities-who-look-better-with-age/)
-- [These Popular Celebrities Are Also Best Selling Au...](https://celebs.allwomenstalk.com/celebrities-who-are-best-selling-authors/)
-- [27 celebrities that everyone agrees are impossible...](https://celebs.allwomenstalk.com/these-celebs-are-just-impossible-to-hate/)
-- [Todays Wrap up: What Celebrities Posted on Instagr...](https://celebs.allwomenstalk.com/todays-wrap-up-what-celebrities-posted-on-instagram/)
-- [Todays Roundup: What Celebrities Posted on Instagr...](https://celebs.allwomenstalk.com/todays-roundup-what-celebrities-posted-on-instagram/)
-- [An Eye-Opening Look at Child Stars Who Have Mature...](https://celebs.allwomenstalk.com/child-stars-whove-matured-into-fine-young-men-and-women/)
+- [#TBT Wrap-up: What Celebrities Posted This Week!](https://celebs.allwomenstalk.com/tbt-wrap-up-what-celebrities-posted-this-week/)
 - [Interview Magazine Spotlights 6 Stars on September...](https://celebs.allwomenstalk.com/interview-magazine-spotlights-stars-on-september-cover/)
+- [27 celebrities that everyone agrees are impossible...](https://celebs.allwomenstalk.com/these-celebs-are-just-impossible-to-hate/)
+- [Today's Wrap up: What Celebrities Posted on Instag...](https://celebs.allwomenstalk.com/todays-wrap-up-what-celebrities-posted-on-instagram/)
+- [Chris Pratt Continues Being Awesome ...](https://celebs.allwomenstalk.com/chris-pratt-continues-being-awesome/)
+- [Today's Roundup: What Celebrities Posted on Instag...](https://celebs.allwomenstalk.com/todays-roundup-what-celebrities-posted-on-instagram/)
+- [Like Fine Wine: Celebrities Who Get Better with Ag...](https://celebs.allwomenstalk.com/celebrities-who-look-better-with-age/)
 - [7 Iconic Personalities in Asian American Culture ....](https://celebs.allwomenstalk.com/iconic-personalities-in-asian-american-culture/)
-- [TBT Wrap-up: What Celebrities Posted This Week](https://celebs.allwomenstalk.com/tbt-wrap-up-what-celebrities-posted-this-week/)
+- [An Eye-Opening Look at Child Stars Who Have Mature...](https://celebs.allwomenstalk.com/child-stars-whove-matured-into-fine-young-men-and-women/)
+- [These Popular Celebrities Are Also Best Selling Au...](https://celebs.allwomenstalk.com/celebrities-who-are-best-selling-authors/)
 - [7 Biggest Celebrity Weddings ...](https://wedding.allwomenstalk.com/biggest-celebrity-weddings/)
 - [7 Celebrity Weddings to Watch for in 2011 ...](https://celebs.allwomenstalk.com/celebrity-weddings-to-watch-for-in/)
 

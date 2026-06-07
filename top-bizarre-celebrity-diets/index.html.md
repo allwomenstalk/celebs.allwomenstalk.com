@@ -3,7 +3,7 @@ title: "5 Top Bizarre Celebrity Diets..."
 description: "The Baby Food Diet...; The Grapefruit Diet...; The Cookie Diet...; Master Cleanse...; Raw Veggie Diet...; More ..."
 url: "https://celebs.allwomenstalk.com/top-bizarre-celebrity-diets/"
 category: "celebs"
-last_updated: "2026-05-25"
+last_updated: "2026-06-07"
 ---
 
 # 5 Top Bizarre Celebrity Diets...
@@ -42,14 +42,14 @@ _Top Photo Credit_
 
 ## Related Posts
 
-- [celebrity sez tapes](https://celebs.allwomenstalk.com/most-infamous-celebrity-sex-tapes/)
-- [famous people who smoke weed](https://celebs.allwomenstalk.com/celebrities-who-smoke-weed/)
 - [celebrities with body parts insured](https://celebs.allwomenstalk.com/top-celebrity-insured-body-parts/)
-- [is mario lopez still married](https://celebs.allwomenstalk.com/extremely-short-celebrity-marriages/)
+- [celebrity sez tapes](https://celebs.allwomenstalk.com/most-infamous-celebrity-sex-tapes/)
+- [alpha male example](https://celebs.allwomenstalk.com/adorable-and-incredibly-gorgeous-alpha-males-in-hollywood/)
 - [sexy men hollywood](https://celebs.allwomenstalk.com/hottest-men-in-hollywood/)
 - [series with hot male leads](https://celebs.allwomenstalk.com/hottest-actors-from-tv-shows/)
+- [famous people who smoke weed](https://celebs.allwomenstalk.com/celebrities-who-smoke-weed/)
 - [7 Celebrities I Would like to Hang with ...](https://celebs.allwomenstalk.com/7-celebrities-i-would-like-to-hang-with/)
-- [alpha male example](https://celebs.allwomenstalk.com/adorable-and-incredibly-gorgeous-alpha-males-in-hollywood/)
+- [is mario lopez still married](https://celebs.allwomenstalk.com/extremely-short-celebrity-marriages/)
 - [celebritytrends](https://celebs.allwomenstalk.com/awfully-outrageous-celebrity-trends-i-hate/)
 - [men who look better with age](https://celebs.allwomenstalk.com/celebrity-men-that-look-better-with-age/)
 - [10 Insane Celebrity Fad Diets ...](https://celebs.allwomenstalk.com/insane-celebrity-fad-diets/)

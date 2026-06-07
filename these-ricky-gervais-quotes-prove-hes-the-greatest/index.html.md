@@ -1,12 +1,12 @@
 ---
-title: "These Ricky Gervais Quotes Prove Hes the Greatest!"
+title: "These Ricky Gervais Quotes Prove He's the Greatest!"
 description: "For People Who Get Offended Easily; On the Fact That All Religious People Aren't Good, and All Good People Aren't Religious; On Kindness; On Happiness; So True!; More ..."
 url: "https://celebs.allwomenstalk.com/these-ricky-gervais-quotes-prove-hes-the-greatest/"
 category: "celebs"
-last_updated: "2026-05-25"
+last_updated: "2026-06-07"
 ---
 
-# These Ricky Gervais Quotes Prove Hes the Greatest!
+# These Ricky Gervais Quotes Prove He's the Greatest!
 
 Ricky Gervais' acerbic and often blunt sense of humor may not be everyone's cup of tea, but I love the fact that he tells it like it is! Check out these awesome quotes by him...
 
@@ -74,17 +74,17 @@ Isn't he just the best?!
 
 ## Related Posts
 
-- [youre your youre difference](https://lifestyle.allwomenstalk.com/quotes-that-english-majors-everywhere-will-adore/)
-- [broad city quote](https://funny.allwomenstalk.com/broad-city-quotes-about-life-we-can-totally-relate-to/)
-- [reassuring love quotes for her](https://love.allwomenstalk.com/reassuring-quotes-for-girls-who-have-never-been-in-love/)
-- [deep sad poems](https://inspiration.allwomenstalk.com/poems-thatll-express-the-feelings-youve-struggled-to-deal-with/)
-- [a quote from lupita nyongo](https://celebs.allwomenstalk.com/inspirational-quotes-from-the-lovely-lupita-nyongo/)
+- [a quote from lupita nyong'o](https://celebs.allwomenstalk.com/inspirational-quotes-from-the-lovely-lupita-nyongo/)
 - [calming down quotes](https://inspiration.allwomenstalk.com/quotes-to-calm-you-down-whenever-youre-pissed/)
 - [jim carrey speeches](https://inspiration.allwomenstalk.com/the-most-inspirational-college-commencement-speeches/)
+- [saying about reading](https://books.allwomenstalk.com/these-quotes-will-motivate-you-to-read/)
+- [reassuring love quotes for her](https://love.allwomenstalk.com/reassuring-quotes-for-girls-who-have-never-been-in-love/)
+- [deep sad poems](https://inspiration.allwomenstalk.com/poems-thatll-express-the-feelings-youve-struggled-to-deal-with/)
+- [you're your you're difference](https://lifestyle.allwomenstalk.com/quotes-that-english-majors-everywhere-will-adore/)
+- [broad city quote](https://funny.allwomenstalk.com/broad-city-quotes-about-life-we-can-totally-relate-to/)
 - [all we have is who we are meaning](https://inspiration.allwomenstalk.com/quotes-to-inspire-you-right-now/)
 - [shakespeare love quotes sonnets](https://love.allwomenstalk.com/what-shakespeare-had-to-say-about-love/)
-- [saying about reading](https://books.allwomenstalk.com/these-quotes-will-motivate-you-to-read/)
-- [Kevin Spacey: Its Gossip Bottom Line...](https://celebs.allwomenstalk.com/kevin-spacey-its-gossip-bottom-line/)
+- [Kevin Spacey: It's Gossip, Bottom Line...](https://celebs.allwomenstalk.com/kevin-spacey-its-gossip-bottom-line/)
 - [Seth Rogen Bares His Soul to Stern...](https://celebs.allwomenstalk.com/seth-rogen-bares-his-soul-to-stern/)
 
 ## Site Information

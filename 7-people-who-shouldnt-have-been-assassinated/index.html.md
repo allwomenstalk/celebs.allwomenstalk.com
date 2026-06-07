@@ -1,12 +1,12 @@
 ---
-title: "7 People Who Shouldnt Have Been Assassinated ..."
+title: "7 People Who Shouldn't Have Been Assassinated ..."
 description: "Mahatma Gandhi; John F. Kennedy; Anwar Sadat; Leon Trotsky; Martin Luther King; More ..."
 url: "https://celebs.allwomenstalk.com/7-people-who-shouldnt-have-been-assassinated/"
 category: "celebs"
-last_updated: "2026-05-25"
+last_updated: "2026-06-07"
 ---
 
-# 7 People Who Shouldnt Have Been Assassinated ...
+# 7 People Who Shouldn't Have Been Assassinated ...
 
 History is jam packed with people from all disciplines that have made their mark on our lives. Some we recognise as household names, others have left a legacy that is simply subsumed into everyday life and we never give them a second thought but I often wonder what would have happened if certain people had lived longer or if people whose lives were cut cruelly short continued their particular cause. Here are 7 people who shouldn’t have been assassinated and maybe an idea of how things would have been different if they’d been around for longer.
 
@@ -46,18 +46,18 @@ Top Photo Credit: [cliff1066™](https://www.flickr.com/photos/nostri-imago/3085
 
 ## Related Posts
 
-- [awesome birds](https://gardening.allwomenstalk.com/5-awesome-birds/)
-- [amazing butterflies](https://gardening.allwomenstalk.com/5-amazing-butterflies/)
-- [weird implants](https://lifestyle.allwomenstalk.com/8-most-bizarre-body-implants/)
-- [charlie lifestyle](https://celebs.allwomenstalk.com/this-is-charlies-lifestyle-and-it-is-what-it-is/)
-- [bangles definition](https://jewelry.allwomenstalk.com/8-statement-bangles/)
 - [Larry King Live Ends after 25 Years ...](https://celebs.allwomenstalk.com/larry-king-live-ends-after-25-years/)
-- [7 Interesting YouTube Channels ...](https://7fun.net/interesting-youtube-channels/)
-- [Fat: a Love Story ...](https://health.allwomenstalk.com/fat-a-love-story/)
-- [7 Predictions That Might Come True ...](https://lifestyle.allwomenstalk.com/predictions-that-might-come-true/)
+- [amazing butterflies](https://gardening.allwomenstalk.com/5-amazing-butterflies/)
+- [bangles definition](https://jewelry.allwomenstalk.com/8-statement-bangles/)
+- [charlie lifestyle](https://celebs.allwomenstalk.com/this-is-charlies-lifestyle-and-it-is-what-it-is/)
 - [rare and unusual types of phobias](https://health.allwomenstalk.com/extraordinary-rare-phobias-and-their-meaning/)
+- [awesome birds](https://gardening.allwomenstalk.com/5-awesome-birds/)
+- [7 Predictions That Might Come True ...](https://lifestyle.allwomenstalk.com/predictions-that-might-come-true/)
+- [Fat: a Love Story ...](https://health.allwomenstalk.com/fat-a-love-story/)
+- [7 Interesting YouTube Channels ...](https://7fun.net/interesting-youtube-channels/)
+- [weird implants](https://lifestyle.allwomenstalk.com/8-most-bizarre-body-implants/)
 - [Top 7 Actors That Should Get More Work ...](https://movies.allwomenstalk.com/top-7-actors-that-should-get-more-work/)
-- [7 Movies That Shouldnt Be Remade ...](https://movies.allwomenstalk.com/movies-that-shouldnt-be-remade/)
+- [7 Movies That Shouldn't Be Remade ...](https://movies.allwomenstalk.com/movies-that-shouldnt-be-remade/)
 
 ## Site Information
 

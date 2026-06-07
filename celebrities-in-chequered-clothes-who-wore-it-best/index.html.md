@@ -1,12 +1,12 @@
 ---
-title: "10 Celebrities in Chequered Clothes Who Wore It Best?"
+title: "10 Celebrities in Chequered Clothes – Who Wore It Best?"
 description: "Jessica Alba; Kerry Washington; Kirsten Dunst; Miranda Kerr; Kristen Stewart; More ..."
 url: "https://celebs.allwomenstalk.com/celebrities-in-chequered-clothes-who-wore-it-best/"
 category: "celebs"
-last_updated: "2026-05-25"
+last_updated: "2026-06-07"
 ---
 
-# 10 Celebrities in Chequered Clothes  Who Wore It Best?
+# 10 Celebrities in Chequered Clothes – Who Wore It Best?
 
 This edition of who wore it best sees a bunch of celebrities battling it out in chequered clothes. In particular, it seems that the stars are going crazy for Louis Vuitton’s retro chequered pattern. From chic shift dresses to funky jumpsuits, this retro-inspired pattern is having a real fashion moment. Check out the following celebrities sporting chequered clothes, and let us know who wore it best!
 
@@ -74,18 +74,18 @@ While we all can’t afford (or be loaned) some Louis Vuitton, keep an eye out f
 
 ## Related Posts
 
-- [desperate housewives gabrielle solis outfits](https://fashion.allwomenstalk.com/most-stylish-tv-characters/)
-- [orange theme party outfit](https://celebs.allwomenstalk.com/celebrities-in-little-orange-dresses-who-wore-it-best/)
-- [crop top actress](https://celebs.allwomenstalk.com/celebrities-in-crop-tops-who-wore-it-best/)
-- [female celebrities wearing leather jackets](https://celebs.allwomenstalk.com/celebrities-wearing-leather-pants-who-wore-it-best/)
-- [celebrities suit](https://celebs.allwomenstalk.com/celebrities-rocking-the-power-suit-who-wore-it-best/)
-- [celebrities with overalls](https://celebs.allwomenstalk.com/celebrities-wearing-dungarees-who-wore-it-best/)
-- [celebrities wearing dresses](https://celebs.allwomenstalk.com/celebrities-in-cut-out-dresses-who-wore-it-best/)
-- [simple red carpet dresses](https://celebs.allwomenstalk.com/of-the-craziest-red-carpet-dresses-of-all-time/)
 - [celebrity silver dress](https://celebs.allwomenstalk.com/celebrities-in-metallic-clothes-who-wore-it-best/)
+- [desperate housewives gabrielle solis outfits](https://fashion.allwomenstalk.com/most-stylish-tv-characters/)
+- [celebrities with overalls](https://celebs.allwomenstalk.com/celebrities-wearing-dungarees-who-wore-it-best/)
+- [orange theme party outfit](https://celebs.allwomenstalk.com/celebrities-in-little-orange-dresses-who-wore-it-best/)
+- [celebrities wearing dresses](https://celebs.allwomenstalk.com/celebrities-in-cut-out-dresses-who-wore-it-best/)
+- [female celebrities wearing leather jackets](https://celebs.allwomenstalk.com/celebrities-wearing-leather-pants-who-wore-it-best/)
+- [crop top actress](https://celebs.allwomenstalk.com/celebrities-in-crop-tops-who-wore-it-best/)
+- [celebrities suit](https://celebs.allwomenstalk.com/celebrities-rocking-the-power-suit-who-wore-it-best/)
 - [characters with a green jacket](https://celebs.allwomenstalk.com/celebrities-wearing-army-green-jackets-who-wore-it-best/)
-- [10 Celebrities in Red Dresses  Who Wore It Best](https://celebs.allwomenstalk.com/celebrities-in-red-dresses-who-wore-it-best/)
-- [10 Celebrities Wearing Yellow  Who Wore It Best](https://celebs.allwomenstalk.com/celebrities-wearing-yellow-who-wore-it-best/)
+- [simple red carpet dresses](https://celebs.allwomenstalk.com/of-the-craziest-red-carpet-dresses-of-all-time/)
+- [10 Celebrities in Red Dresses – Who Wore It Best?](https://celebs.allwomenstalk.com/celebrities-in-red-dresses-who-wore-it-best/)
+- [10 Celebrities Wearing Yellow – Who Wore It Best?](https://celebs.allwomenstalk.com/celebrities-wearing-yellow-who-wore-it-best/)
 
 ## Site Information
 

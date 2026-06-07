@@ -3,7 +3,7 @@ title: "8 Fabulous It Girls of the 90s ..."
 description: "Winona Ryder; Chloe Sevigny; Cindy Crawford; Alicia Silverstone; Kate Moss; More ..."
 url: "https://celebs.allwomenstalk.com/fabulous-it-girls-of-the-90s/"
 category: "celebs"
-last_updated: "2026-05-25"
+last_updated: "2026-06-07"
 ---
 
 # 8 Fabulous It Girls of the 90s ...
@@ -64,16 +64,16 @@ Top Image Source: [pinterest.com](https://www.pinterest.com/pin/1308859328899494
 
 ## Related Posts
 
-- [what is a female impersonator](https://lifestyle.allwomenstalk.com/most-divine-and-famous-drag-queens-and-female-impersonators/)
-- [fit famous women](https://celebs.allwomenstalk.com/most-fit-celebrity-women-to-be-inspired-by/)
-- [outrageous one](https://celebs.allwomenstalk.com/most-outrageous-women-of-the-20th-century/)
-- [90 heroines](https://lifestyle.allwomenstalk.com/amazing-television-heroines-from-the-90s/)
-- [movie strong female lead](https://movies.allwomenstalk.com/films-with-strong-female-leads-every-girl-should-see/)
 - [unique female musicians](https://fashion.allwomenstalk.com/current-style-setting-female-musicians/)
-- [womens rights bank accounts uk](https://lifestyle.allwomenstalk.com/rights-women-didnt-have-a-century-ago/)
-- [british actress female](https://movies.allwomenstalk.com/stunning-british-leading-ladies/)
-- [best role models in movies](https://movies.allwomenstalk.com/top-movie-heroines-who-make-good-role-models/)
 - [disney princess valance](https://allwomenstalk.com/if-disney-princesses-were-real/)
+- [90 heroines](https://lifestyle.allwomenstalk.com/amazing-television-heroines-from-the-90s/)
+- [what is a female impersonator](https://lifestyle.allwomenstalk.com/most-divine-and-famous-drag-queens-and-female-impersonators/)
+- [best role models in movies](https://movies.allwomenstalk.com/top-movie-heroines-who-make-good-role-models/)
+- [british actress female](https://movies.allwomenstalk.com/stunning-british-leading-ladies/)
+- [fit famous women](https://celebs.allwomenstalk.com/most-fit-celebrity-women-to-be-inspired-by/)
+- [women's rights bank accounts uk](https://lifestyle.allwomenstalk.com/rights-women-didnt-have-a-century-ago/)
+- [outrageous one](https://celebs.allwomenstalk.com/most-outrageous-women-of-the-20th-century/)
+- [movie strong female lead](https://movies.allwomenstalk.com/films-with-strong-female-leads-every-girl-should-see/)
 - [10 Stunning Leading Ladies ...](https://movies.allwomenstalk.com/stunning-leading-ladies/)
 - [8 Most Stylish Female Celebrities of 2011 ...](https://celebs.allwomenstalk.com/most-stylish-female-celebrities-of/)
 

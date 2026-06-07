@@ -3,7 +3,7 @@ title: "7 Most Scandalous Celebrity Sex Tapes ..."
 description: "Kim Kardashian; Pam Anderson; Paris Hilton; Dustin Diamond; Rihanna; More ..."
 url: "https://celebs.allwomenstalk.com/most-scandalous-celebrity-sex-tapes/"
 category: "celebs"
-last_updated: "2026-05-25"
+last_updated: "2026-06-07"
 ---
 
 # 7 Most Scandalous Celebrity Sex Tapes ...
@@ -58,16 +58,16 @@ Top Photo Credit: [neoyoli](https://www.flickr.com/photos/neoyoli/5893181759/)
 
 ## Related Posts
 
-- [most popular person](https://celebs.allwomenstalk.com/gorgeous-full-figured-celebrities/)
-- [actress like sandra bullock](https://celebs.allwomenstalk.com/and-fabulous-7-female-celebrities-that-look-better-than-ever/)
-- [Sexiest Men Alive up for Auction ...](https://celebs.allwomenstalk.com/sexiest-men-alive-up-for-auction/)
-- [ray krocs wives](https://celebs.allwomenstalk.com/celebrities-with-addictions/)
 - [sarah jessica parker south oark](https://celebs.allwomenstalk.com/favourite-south-park-celebrity-targets/)
-- [8 Celebrities Who Have Aged Beautifully ...](https://celebs.allwomenstalk.com/celebrities-who-have-aged-beautifully/)
-- [cute guys wearing skirts](https://celebs.allwomenstalk.com/sexiest-celebrity-men-in-skirts/)
-- [celebrity news 2011](https://celebs.allwomenstalk.com/big-celebrity-news-of/)
-- [highest earning celebrities](https://celebs.allwomenstalk.com/highest-earning-celebrities-of/)
+- [ray kroc's wives](https://celebs.allwomenstalk.com/celebrities-with-addictions/)
 - [current events with celebrities](https://celebs.allwomenstalk.com/best-celebrity-gossip-websites/)
+- [8 Celebrities Who Have Aged Beautifully ...](https://celebs.allwomenstalk.com/celebrities-who-have-aged-beautifully/)
+- [highest earning celebrities](https://celebs.allwomenstalk.com/highest-earning-celebrities-of/)
+- [cute guys wearing skirts](https://celebs.allwomenstalk.com/sexiest-celebrity-men-in-skirts/)
+- [actress like sandra bullock](https://celebs.allwomenstalk.com/and-fabulous-7-female-celebrities-that-look-better-than-ever/)
+- [most popular person](https://celebs.allwomenstalk.com/gorgeous-full-figured-celebrities/)
+- [celebrity news 2011](https://celebs.allwomenstalk.com/big-celebrity-news-of/)
+- [Sexiest Men Alive up for Auction ...](https://celebs.allwomenstalk.com/sexiest-men-alive-up-for-auction/)
 - [7 Biggest Celebrity Weddings ...](https://wedding.allwomenstalk.com/biggest-celebrity-weddings/)
 - [7 Hottest Nude Movie Scenes ...](https://movies.allwomenstalk.com/hottest-nude-movie-scenes/)
 

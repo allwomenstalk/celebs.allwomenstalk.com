@@ -3,7 +3,7 @@ title: "7 Stars Who Died Whilst Doing What They Loved ..."
 description: "Tommy Cooper; Steve Irwin; Sid James; Brandon Lee; Vic Morrow; More ..."
 url: "https://celebs.allwomenstalk.com/stars-who-died-whilst-doing-what-they-loved/"
 category: "celebs"
-last_updated: "2026-05-25"
+last_updated: "2026-06-07"
 ---
 
 # 7 Stars Who Died Whilst Doing What They Loved ...
@@ -56,16 +56,16 @@ Can you think of any other stars who died whilst doing what they loved best?
 
 ## Related Posts
 
-- [christian bale and rowan atkinson](https://movies.allwomenstalk.com/potential-actors-for-james-bonds-role-that-will-probably-never-happen/)
-- [who is ariana grande husband](https://celebs.allwomenstalk.com/celebs-who-have-praised-ariana-grandes-talent/)
-- [blake lively sobriety](https://celebs.allwomenstalk.com/celebs-who-live-a-sober-lifestyle/)
 - [how did tori kelly get famous](https://celebs.allwomenstalk.com/celebrities-who-have-praised-tori-kellys-talents/)
-- [kristin davis adopted child](https://celebs.allwomenstalk.com/celebrities-who-have-adopted-kids/)
-- [jane kaczmarek husband](https://celebs.allwomenstalk.com/celebrity-mothers-who-had-their-first-baby-after-40/)
-- [who did scooter braun manage](https://celebs.allwomenstalk.com/celebs-who-have-scooter-braun-as-a-manager/)
-- [celebs in nashville](https://movies.allwomenstalk.com/celebs-from-nashville-who-love-to-live-tweet-during-the-show/)
-- [the prettiest hair in the world](https://hair.allwomenstalk.com/male-celebrities-with-great-hair/)
+- [blake lively sobriety](https://celebs.allwomenstalk.com/celebs-who-live-a-sober-lifestyle/)
+- [who is ariana grande husband?](https://celebs.allwomenstalk.com/celebs-who-have-praised-ariana-grandes-talent/)
 - [that wish would go away](https://celebs.allwomenstalk.com/celebrities-we-wish-would-go-away/)
+- [celebs in nashville](https://movies.allwomenstalk.com/celebs-from-nashville-who-love-to-live-tweet-during-the-show/)
+- [kristin davis adopted child](https://celebs.allwomenstalk.com/celebrities-who-have-adopted-kids/)
+- [the prettiest hair in the world](https://hair.allwomenstalk.com/male-celebrities-with-great-hair/)
+- [jane kaczmarek husband](https://celebs.allwomenstalk.com/celebrity-mothers-who-had-their-first-baby-after-40/)
+- [christian bale and rowan atkinson](https://movies.allwomenstalk.com/potential-actors-for-james-bonds-role-that-will-probably-never-happen/)
+- [who did scooter braun manage](https://celebs.allwomenstalk.com/celebs-who-have-scooter-braun-as-a-manager/)
 - [7 of My Favorite Celebrities ...](https://celebs.allwomenstalk.com/7-of-my-favorite-celebrities/)
 - [7 Celebrity Deaths Caused by Drug Overdose ...](https://allwomenstalk.com/7-celebrity-deaths-caused-by-drug-overdose/)
 

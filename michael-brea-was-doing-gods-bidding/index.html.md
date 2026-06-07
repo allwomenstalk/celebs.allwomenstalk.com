@@ -1,12 +1,12 @@
 ---
-title: "Michael Brea Was Doing Gods Bidding ..."
+title: "Michael Brea Was Doing God's Bidding ..."
 description: "Stay ahead, stay chic. Trusted guides on beauty, wellness, fashion, and everything that defines today's empowered woman."
 url: "https://celebs.allwomenstalk.com/michael-brea-was-doing-gods-bidding/"
 category: "celebs"
-last_updated: "2026-05-25"
+last_updated: "2026-06-07"
 ---
 
-# Michael Brea Was Doing Gods Bidding ...
+# Michael Brea Was Doing God's Bidding ...
 
 Its not everyday that a (alleged) murderer has a candid interview about his crime, but that is exactly what Michael Brea did. The actor who played a small role on 'Ugly Betty' spoke to the NY Daily News about allegedly killing his mother with a sword.
 
@@ -24,18 +24,18 @@ Brea is being held on charges of 2nd degree murder and criminal possession of a 
 
 ## Related Posts
 
-- [mythbusters obama](https://celebs.allwomenstalk.com/obama-on-mythbusters/)
-- [dadt pink](https://celebs.allwomenstalk.com/stars-come-out-in-support-of-dadt-repeal/)
-- [daniello carting](https://celebs.allwomenstalk.com/ramsays-trash-talk/)
-- [The Hobbit Shooting in Jeopardy Once Again...](https://celebs.allwomenstalk.com/the-hobbit-shooting-in-jeopardy-once-again/)
-- [cool butterflies](https://gardening.allwomenstalk.com/5-cool-butterflies/)
 - [best rags to riches stories](https://celebs.allwomenstalk.com/best-from-rags-to-riches-stories/)
+- [cool butterflies](https://gardening.allwomenstalk.com/5-cool-butterflies/)
+- [dadt pink](https://celebs.allwomenstalk.com/stars-come-out-in-support-of-dadt-repeal/)
+- [mythbusters obama](https://celebs.allwomenstalk.com/obama-on-mythbusters/)
+- [daniello carting](https://celebs.allwomenstalk.com/ramsays-trash-talk/)
+- [Cook's Love for Mother Earth Revealed...](https://celebs.allwomenstalk.com/cooks-love-for-mother-earth-revealed/)
+- [The Hobbit Shooting in Jeopardy Once Again...](https://celebs.allwomenstalk.com/the-hobbit-shooting-in-jeopardy-once-again/)
 - [New Year Bash Wrap-up: Part 1 ...](https://celebs.allwomenstalk.com/new-year-bash-wrap-up-part-1/)
-- [Cooks Love for Mother Earth Revealed...](https://celebs.allwomenstalk.com/cooks-love-for-mother-earth-revealed/)
 - [favorite vines](https://gardening.allwomenstalk.com/5-of-my-favorite-vines/)
 - [New Year Bash Wrap-up: Part 2 ...](https://celebs.allwomenstalk.com/new-year-bash-wrap-up-part-2/)
 - [George Michael Ready to Start Again ...](https://celebs.allwomenstalk.com/george-michael-ready-to-start-again/)
-- [Michael Lohan Doesnt Mind Lindsay Movie...](https://celebs.allwomenstalk.com/michael-lohan-doesnt-mind-lindsay-movie/)
+- [Michael Lohan Doesn't Mind Lindsay Movie...](https://celebs.allwomenstalk.com/michael-lohan-doesnt-mind-lindsay-movie/)
 
 ## Site Information
 

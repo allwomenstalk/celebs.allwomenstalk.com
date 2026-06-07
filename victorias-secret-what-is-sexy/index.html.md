@@ -1,12 +1,12 @@
 ---
-title: "29 Photos of Victorias Secret What is Sexy? ..."
+title: "29 Photos of Victoria's Secret \"What is Sexy?\" ..."
 description: "Stay ahead, stay chic. Trusted guides on beauty, wellness, fashion, and everything that defines today's empowered woman."
 url: "https://celebs.allwomenstalk.com/victorias-secret-what-is-sexy/"
 category: "celebs"
-last_updated: "2026-05-25"
+last_updated: "2026-06-07"
 ---
 
-# 29 Photos of Victorias Secret What is Sexy? ...
+# 29 Photos of Victoria's Secret "What is Sexy?" ...
 
 Check out photos from the Victoria's Secret 5th Annual "What Is Sexy?" List: Bombshell Edition event held at Drai's at West Hollywood, [Los Angeles](https://celebs.allwomenstalk.com/tag/los-angeles/). May 11th, 2010.
 
@@ -94,16 +94,16 @@ Looks like a fun event with gorgeous women! Who's look did you like best?
 
 ## Related Posts
 
-- [Find the Right Bra ...](https://allwomenstalk.com/find-the-right-bra-2/)
-- [figleaves free shipping](https://allwomenstalk.com/figleaves-a-rant/)
-- [bodymetrics](https://allwomenstalk.com/bodymetrics-a-quest-for-the-perfect-jean/)
-- [Corsets ...](https://allwomenstalk.com/corsets/)
-- [wear liners](https://health.allwomenstalk.com/ways-to-use-a-panty-liner/)
-- [Figleaves Fixes up](https://allwomenstalk.com/figleaves-fixes-up/)
 - [strap on strap off](https://allwomenstalk.com/strap-onstrap-off/)
-- [boobieday](https://allwomenstalk.com/its-a-boobie-dayim-a-huge-fan-of-burgers-i/)
 - [look 10 pounds thinner bathing suit](https://allwomenstalk.com/humor-for-women-buying-bathing-suits/)
+- [Corsets ...](https://allwomenstalk.com/corsets/)
+- [Figleaves Fixes up](https://allwomenstalk.com/figleaves-fixes-up/)
 - [site:love.allwomenstalk.com](https://love.allwomenstalk.com/sexiest-lingerie-garments/)
+- [figleaves free shipping](https://allwomenstalk.com/figleaves-a-rant/)
+- [Find the Right Bra ...](https://allwomenstalk.com/find-the-right-bra-2/)
+- [bodymetrics](https://allwomenstalk.com/bodymetrics-a-quest-for-the-perfect-jean/)
+- [wear liners](https://health.allwomenstalk.com/ways-to-use-a-panty-liner/)
+- [boobieday](https://allwomenstalk.com/its-a-boobie-dayim-a-huge-fan-of-burgers-i/)
 - [49 Photos of Taste of Beverly Hills ...](https://celebs.allwomenstalk.com/taste-of-beverly-hills/)
 - [25 Hottest Supermodels ...](https://celebs.allwomenstalk.com/25-hottest-supermodels/)
 

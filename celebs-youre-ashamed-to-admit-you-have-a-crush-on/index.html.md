@@ -1,12 +1,12 @@
 ---
-title: "13 Celebs Youre Ashamed to Admit You Have a Crush on ..."
+title: "13 Celebs You're Ashamed to Admit You Have a Crush on ..."
 description: "Tom Cruise; John Travolta; Ed Sheeran; Jeremy Clarkson; Jeremy Kyle; More ..."
 url: "https://celebs.allwomenstalk.com/celebs-youre-ashamed-to-admit-you-have-a-crush-on/"
 category: "celebs"
-last_updated: "2026-05-25"
+last_updated: "2026-06-07"
 ---
 
-# 13 Celebs Youre Ashamed to Admit You Have a Crush on ...
+# 13 Celebs You're Ashamed to Admit You Have a Crush on ...
 
 The heart wants what it wants...even if our minds can't quite understand it sometimes. Got a secret crush on a...err..."special" celebrity but afraid to admit it? Perhaps he's on Amy's list. Thanks for the fun post Amy!
 
@@ -95,16 +95,16 @@ Dr. House is by far one of the hottest guys in the world and the fact that he ha
 ## Related Posts
 
 - [boys singer](https://celebs.allwomenstalk.com/hottest-male-singers/)
-- [famous celebrities in europe](https://celebs.allwomenstalk.com/hottest-european-actors/)
-- [alanis morissette spouse](https://celebs.allwomenstalk.com/celebrity-couples-who-never-made-it-down-the-aisle/)
-- [amandla stenberg as a kid](https://movies.allwomenstalk.com/up-and-coming-actresses-to-look-out-for/)
+- [sky ferreira michael jackson](https://lifestyle.allwomenstalk.com/music-stars-to-watch-in/)
 - [true blood bloopers](https://celebs.allwomenstalk.com/celebrity-social-media-bloopers/)
+- [alanis morissette spouse](https://celebs.allwomenstalk.com/celebrity-couples-who-never-made-it-down-the-aisle/)
+- [what are the hemsworth brothers names](https://celebs.allwomenstalk.com/hottest-celebrity-siblings/)
 - [site:fashion.allwomenstalk.com](https://fashion.allwomenstalk.com/unlikely-celebrity-style-icons/)
+- [famous celebrities in europe](https://celebs.allwomenstalk.com/hottest-european-actors/)
 - [gamer celebrities](https://lifestyle.allwomenstalk.com/celebrity-girl-gamers/)
 - [adan canto vampire diaries](https://celebs.allwomenstalk.com/hunky-new-actors-were-beginning-to-see-more-of/)
-- [what are the hemsworth brothers names](https://celebs.allwomenstalk.com/hottest-celebrity-siblings/)
-- [sky ferreira michael jackson](https://lifestyle.allwomenstalk.com/music-stars-to-watch-in/)
-- [5 Blogs by Celebrities Youd Love to Get to Know .....](https://allwomenstalk.com/5-blogs-by-celebrities-youd-love-to-get-to-know/)
+- [amandla stenberg as a kid](https://movies.allwomenstalk.com/up-and-coming-actresses-to-look-out-for/)
+- [5 Blogs by Celebrities You'd Love to Get to Know ....](https://allwomenstalk.com/5-blogs-by-celebrities-youd-love-to-get-to-know/)
 - [7 Celebrities I Would like to Meet ...](https://allwomenstalk.com/7-celebrities-i-would-like-to-meet/)
 
 ## Site Information

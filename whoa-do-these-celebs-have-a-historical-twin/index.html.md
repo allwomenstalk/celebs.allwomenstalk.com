@@ -3,7 +3,7 @@ title: "Whoa! do These Celebs Have a Historical Twin?"
 description: "Maggie GYLLENHAAL and ROSE WILDER LANE; RUPERT GRINT and SIR DAVID WILKIE; JENNIFER LAWRENCE & Zubaida Tharwat; Alec Baldwin & President Millard Fillmore; Jimmy Fallon & Mahir Cayan; More ..."
 url: "https://celebs.allwomenstalk.com/whoa-do-these-celebs-have-a-historical-twin/"
 category: "celebs"
-last_updated: "2026-05-25"
+last_updated: "2026-06-07"
 ---
 
 # Whoa! do These Celebs Have a Historical Twin?
@@ -56,18 +56,18 @@ Which photo were you blown away by the most?
 
 ## Related Posts
 
+- [celebrities who love food](https://celebs.allwomenstalk.com/celebrity-foodies-that-love-food-as-much-as-you-do/)
 - [celebrities who went to college](https://celebs.allwomenstalk.com/hollywood-celebrities-with-college-degrees/)
-- [stars of the 1940s](https://celebs.allwomenstalk.com/reasons-to-emulate-1940s-movie-stars/)
-- [celebrities who support gender equality](https://celebs.allwomenstalk.com/heforshe-male-celebs-supporting-gender-equality/)
-- [funny ice bucket challenge](https://celebs.allwomenstalk.com/funniest-celebrity-ice-bucket-challenge-videos/)
+- [vince vaughn spouse](https://celebs.allwomenstalk.com/celebrities-who-are-married-to-non-celebrities/)
 - [romance real life](https://movies.allwomenstalk.com/some-of-the-best-real-life-romances-that-started-on-set/)
 - [taylor and jake gyllenhaal age difference](https://celebs.allwomenstalk.com/for-these-celebs-age-aint-nothing-but-a-number/)
-- [vince vaughn spouse](https://celebs.allwomenstalk.com/celebrities-who-are-married-to-non-celebrities/)
-- [celebrities who love food](https://celebs.allwomenstalk.com/celebrity-foodies-that-love-food-as-much-as-you-do/)
-- [how did mike tysons daughter die](https://celebs.allwomenstalk.com/male-celebrities-who-lost-children/)
+- [stars of the 1940s](https://celebs.allwomenstalk.com/reasons-to-emulate-1940s-movie-stars/)
+- [funny ice bucket challenge](https://celebs.allwomenstalk.com/funniest-celebrity-ice-bucket-challenge-videos/)
 - [kaley cuoco bowling movie](https://celebs.allwomenstalk.com/celebrity-throwbacks-dcom-edition/)
-- [Play Catch-up with Your Favorite Reality Stars](https://allwomenstalk.com/play-catch-up-with-your-favorite-reality-stars/)
-- [Look-alikes: Angelina and Claire](https://allwomenstalk.com/look-alikes-angelina-and-claire/)
+- [celebrities who support gender equality](https://celebs.allwomenstalk.com/heforshe-male-celebs-supporting-gender-equality/)
+- [how did mike tysons daughter die](https://celebs.allwomenstalk.com/male-celebrities-who-lost-children/)
+- [Play Catch-up with Your Favorite Reality Stars!](https://allwomenstalk.com/play-catch-up-with-your-favorite-reality-stars/)
+- [Look-alikes: Angelina and Claire!](https://allwomenstalk.com/look-alikes-angelina-and-claire/)
 
 ## Site Information
 

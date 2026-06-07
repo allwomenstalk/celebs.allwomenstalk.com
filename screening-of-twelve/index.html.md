@@ -1,12 +1,12 @@
 ---
-title: "5 Photos of Screening of Twelve ..."
+title: "5 Photos of Screening of 'Twelve' ..."
 description: "Stay ahead, stay chic. Trusted guides on beauty, wellness, fashion, and everything that defines today's empowered woman."
 url: "https://celebs.allwomenstalk.com/screening-of-twelve/"
 category: "celebs"
-last_updated: "2026-05-25"
+last_updated: "2026-06-07"
 ---
 
-# 5 Photos of Screening of Twelve ...
+# 5 Photos of Screening of 'Twelve' ...
 
 Cinema Society & 2(x)ist present a screening of 'Twelve' at Landmark's Sunshine Cinema
 City: [New York](https://celebs.allwomenstalk.com/tag/new-york/)
@@ -23,16 +23,16 @@ City: [New York](https://celebs.allwomenstalk.com/tag/new-york/)
 
 ## Related Posts
 
-- [shows from 2011](https://lifestyle.allwomenstalk.com/broadway-shows-of-you-have-to-see/)
-- [10 Fun Christmas Movies You Have to Watch This Hol...](https://lifestyle.allwomenstalk.com/fun-christmas-movies-you-have-to-watch-this-holiday-season/)
-- [movies inspired by jane austen](https://lifestyle.allwomenstalk.com/of-my-favorite-jane-austen-movies/)
-- [severalmovies](https://allwomenstalk.com/she-appeared-in-several-movies-among-them-the-h/)
-- [Top 10 Disney Animated Films ...](https://bilbr.com/top-disney-animated-films/)
-- [new movies that just come out](https://lifestyle.allwomenstalk.com/awesome-new-movies-i-cant-wait-to-come-out/)
 - [Premiere of Night at the Museum ...](https://allwomenstalk.com/premiere-of-night-at-the-museum/)
-- [Giveaway Contest: Lionsgate Films Blu-Ray Combo Pa...](https://7fun.net/giveaway-contest-lionsgate-films-blu-ray-combo-pack/)
-- [ab negative movie](https://allwomenstalk.com/my-life-as-a-b-movie-2/)
+- [movies inspired by jane austen](https://lifestyle.allwomenstalk.com/of-my-favorite-jane-austen-movies/)
+- [shows from 2011](https://lifestyle.allwomenstalk.com/broadway-shows-of-you-have-to-see/)
+- [severalmovies](https://allwomenstalk.com/she-appeared-in-several-movies-among-them-the-h/)
 - [When I Fall in Love with a Film](https://allwomenstalk.com/when-i-fall-in-love-with-a-film/)
+- [new movies that just come out](https://lifestyle.allwomenstalk.com/awesome-new-movies-i-cant-wait-to-come-out/)
+- [10 Fun Christmas Movies You Have to Watch This Hol...](https://lifestyle.allwomenstalk.com/fun-christmas-movies-you-have-to-watch-this-holiday-season/)
+- [ab negative movie](https://allwomenstalk.com/my-life-as-a-b-movie-2/)
+- [Giveaway Contest: Lionsgate Films Blu-Ray Combo Pa...](https://7fun.net/giveaway-contest-lionsgate-films-blu-ray-combo-pack/)
+- [Top 10 Disney Animated Films ...](https://bilbr.com/top-disney-animated-films/)
 - [5 Must See Scenes from the Movie ...](https://twilight.allwomenstalk.com/5-must-see-scenes-from-the-movie/)
 - [9 Black and White Flicks You Should See ...](https://movies.allwomenstalk.com/black-and-white-flicks-you-should-see/)
 

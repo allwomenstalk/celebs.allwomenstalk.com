@@ -1,12 +1,12 @@
 ---
-title: "11 Celebrities Wearing Colourful Coats Who Wore It Best?"
+title: "11 Celebrities Wearing Colourful Coats – Who Wore It Best?"
 description: "Jessica Chastain; Olivia Palermo; Zosia Mamet; Rita Ora; Rose Byrne; More ..."
 url: "https://celebs.allwomenstalk.com/celebrities-wearing-colourful-coats-who-wore-it-best/"
 category: "celebs"
-last_updated: "2026-05-25"
+last_updated: "2026-06-07"
 ---
 
-# 11 Celebrities Wearing Colourful Coats  Who Wore It Best?
+# 11 Celebrities Wearing Colourful Coats – Who Wore It Best?
 
 With the arrival of the cooler weather, we’ve spotted a number of celebrities wearing colourful coats. Colourful coats seem to be a popular choice at the moment, and they’re a great alternative to the usually dark and subdued colours of fall and winter. From the polished minimalist style of Olivia Palermo to urban-inspired outfits from Rihanna, there are a number of ways to wear a colourful coat this season. Take a look at these celebrities wearing colourful coats and be sure to let us know who you think wore theirs the best.
 
@@ -80,18 +80,18 @@ From pastel pinks to punchy oranges, colourful coats seem to be all the rage rig
 
 ## Related Posts
 
-- [short celebrity sequin dress](https://celebs.allwomenstalk.com/celebrities-wearing-sparkly-sequin-dresses-who-wore-it-best/)
 - [celebs in sweaters](https://celebs.allwomenstalk.com/celebrities-wearing-printed-sweaters-who-wore-it-best/)
 - [characters that wear camo](https://celebs.allwomenstalk.com/celebrities-wearing-camouflage-prints-who-wore-it-best/)
-- [celebrities in black turtlenecks](https://fashion.allwomenstalk.com/celebs-who-rocked-turtlenecks-who-wore-it-best/)
-- [what color lipstick to wear with a navy blue dress](https://celebs.allwomenstalk.com/celebrities-wearing-navy-outfits-who-wore-it-best-2/)
 - [lady gaga seashell bikini](https://celebs.allwomenstalk.com/of-lady-gagas-best-looks-in/)
 - [celebrity see through clothes](https://celebs.allwomenstalk.com/most-revealing-celebrity-outfits-from-the-red-carpet/)
 - [celebrity travel outfits](https://celebs.allwomenstalk.com/stylish-and-wearable-celebrity-airport-outfits-who-wore-it-best/)
-- [best movie contenders 2014](https://movies.allwomenstalk.com/main-contenders-for-the-oscars/)
 - [celebrities in suit](https://celebs.allwomenstalk.com/celebs-who-rocked-a-suit-on-the-red-carpet/)
-- [10 Celebrities in Red Dresses  Who Wore It Best](https://celebs.allwomenstalk.com/celebrities-in-red-dresses-who-wore-it-best/)
-- [10 Celebrities in Chequered Clothes  Who Wore It B...](https://celebs.allwomenstalk.com/celebrities-in-chequered-clothes-who-wore-it-best/)
+- [celebrities in black turtlenecks](https://fashion.allwomenstalk.com/celebs-who-rocked-turtlenecks-who-wore-it-best/)
+- [what color lipstick to wear with a navy blue dress](https://celebs.allwomenstalk.com/celebrities-wearing-navy-outfits-who-wore-it-best-2/)
+- [short celebrity sequin dress](https://celebs.allwomenstalk.com/celebrities-wearing-sparkly-sequin-dresses-who-wore-it-best/)
+- [best movie contenders 2014](https://movies.allwomenstalk.com/main-contenders-for-the-oscars/)
+- [10 Celebrities in Red Dresses – Who Wore It Best?](https://celebs.allwomenstalk.com/celebrities-in-red-dresses-who-wore-it-best/)
+- [10 Celebrities in Chequered Clothes – Who Wore It ...](https://celebs.allwomenstalk.com/celebrities-in-chequered-clothes-who-wore-it-best/)
 
 ## Site Information
 

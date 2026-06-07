@@ -1,12 +1,12 @@
 ---
-title: "7 Celebrities with Parkinsons Disease ..."
+title: "7 Celebrities with Parkinson's Disease ..."
 description: "Michael J. Fox; Muhammad Ali; Billy Connolly; Estelle Getty; Pope John Paul II; More ..."
 url: "https://celebs.allwomenstalk.com/celebrities-with-parkinsons-disease/"
 category: "celebs"
-last_updated: "2026-05-25"
+last_updated: "2026-06-07"
 ---
 
-# 7 Celebrities with Parkinsons Disease ...
+# 7 Celebrities with Parkinson's Disease ...
 
 Because they live in the public eye, celebrities with Parkinson’s Disease bring attention to the condition. This applies to pretty much any condition. Seeing celebrities with a condition that doesn’t stop them pursing something they love and achieving great things is such an inspiration to others with the same disease or condition. Some choose not to share news of their suffering – like Robin Williams. The knowledge that he was dealing with the early stages of Parkinson’s did not emerge until shortly after his death. Among those celebrities with Parkinson’s Disease there are some big names.
 
@@ -60,16 +60,16 @@ For more info on Parkinson’s Disease see [apdaparkinson.org](https://www.apdap
 
 ## Related Posts
 
-- [pregnant celebrities on red carpet](https://fashion.allwomenstalk.com/celebrities-that-made-red-carpet-baby-bumps-look-amazing/)
-- [strange facts about celebrities](https://celebs.allwomenstalk.com/little-known-facts-about-your-favorite-celebrities/)
-- [most influential teenagers](https://celebs.allwomenstalk.com/in-case-you-missed-it-these-are-times-most-influential-teens/)
-- [celebrities photobombing](https://celebs.allwomenstalk.com/celebrity-photobombs-thatll-make-you-lol/)
 - [julianna hough plastic surgery](https://celebs.allwomenstalk.com/whoa-celebrity-doppelgangers-from-different-generations/)
-- [bromances](https://celebs.allwomenstalk.com/of-the-cutest-celebrity-bromances-of-all-time/)
-- [cameron diaz snoop high school](https://celebs.allwomenstalk.com/celebrities-who-went-to-high-school-together/)
-- [selena gomez no makeup selfie](https://celebs.allwomenstalk.com/what-do-these-celebrities-look-like-without-makeup/)
+- [strange facts about celebrities](https://celebs.allwomenstalk.com/little-known-facts-about-your-favorite-celebrities/)
+- [celebrities photobombing](https://celebs.allwomenstalk.com/celebrity-photobombs-thatll-make-you-lol/)
 - [celebrities giving back](https://inspiration.allwomenstalk.com/these-charitable-celebrity-couples-are-all-about-giving-back/)
 - [celebrities with weird kid names](https://celebs.allwomenstalk.com/celebrities-explain-their-reasoning-behind-their-strange-baby-names/)
+- [bromances](https://celebs.allwomenstalk.com/of-the-cutest-celebrity-bromances-of-all-time/)
+- [pregnant celebrities on red carpet](https://fashion.allwomenstalk.com/celebrities-that-made-red-carpet-baby-bumps-look-amazing/)
+- [cameron diaz snoop high school](https://celebs.allwomenstalk.com/celebrities-who-went-to-high-school-together/)
+- [most influential teenagers](https://celebs.allwomenstalk.com/in-case-you-missed-it-these-are-times-most-influential-teens/)
+- [selena gomez no makeup selfie](https://celebs.allwomenstalk.com/what-do-these-celebrities-look-like-without-makeup/)
 - [7 of My Favorite Celebrities ...](https://celebs.allwomenstalk.com/7-of-my-favorite-celebrities/)
 - [7 Celebrities Who Smoke Weed ...](https://celebs.allwomenstalk.com/celebrities-who-smoke-weed/)
 

@@ -1,12 +1,12 @@
 ---
-title: "32 Photos of the Back-up Plan Premiere ..."
+title: "32 Photos of \"the Back-up Plan\" Premiere ..."
 description: "Stay ahead, stay chic. Trusted guides on beauty, wellness, fashion, and everything that defines today's empowered woman."
 url: "https://celebs.allwomenstalk.com/the-back-up-plan-premiere/"
 category: "celebs"
-last_updated: "2026-05-25"
+last_updated: "2026-06-07"
 ---
 
-# 32 Photos of the Back\-up Plan Premiere ...
+# 32 Photos of "the Back\-up Plan" Premiere ...
 
 Jennifer Lopez hasn't had a movie in what, four years? She's finally back with romantic comedy "Back up Plan" that centers around a woman who conceives twins through artificial insemination, only to meet the man of her dreams on the very same day. Check out photos from the [Los Angeles](https://celebs.allwomenstalk.com/tag/los-angeles/) Premiere of "The Back-Up Plan" held at Regency Village Theatre, Westwood, CA. on April 21, 2010.
 
@@ -102,17 +102,17 @@ As always, tell me who your picks for best and worst dressed are!
 ## Related Posts
 
 - [serena william hot](https://celebs.allwomenstalk.com/serenas-day-at-the-beach/)
-- [yasmine zeroc](https://celebs.allwomenstalk.com/camilla-gets-a-push/)
-- [ringless finger](https://celebs.allwomenstalk.com/winslets-ringless-finger/)
-- [amandah dominic](https://celebs.allwomenstalk.com/amanda-and-dominic-check-in/)
-- [emma thompson photos](https://celebs.allwomenstalk.com/5-photos-of-emma-in-london/)
-- [niecy nash photos](https://celebs.allwomenstalk.com/nash-wears-yellow-on-live/)
-- [selena gomez red lips](https://celebs.allwomenstalk.com/selenas-fashion-line/)
-- [kristen stewart in the runaways](https://celebs.allwomenstalk.com/9-photos-of-kristen-arrives/)
 - [color le stylo emerald conquest](https://celebs.allwomenstalk.com/karas-poor-fit/)
 - [kourtney kardashian mude](https://celebs.allwomenstalk.com/kourtney-keeps-it-fashionable/)
-- [36 Photos of the GLEE Spring Premiere Soiree ...](https://celebs.allwomenstalk.com/glee-premiere/)
-- [16 Photos of in My Sleep Premiere ...](https://celebs.allwomenstalk.com/in-my-sleep-premiere/)
+- [ringless finger](https://celebs.allwomenstalk.com/winslets-ringless-finger/)
+- [kristen stewart in the runaways](https://celebs.allwomenstalk.com/9-photos-of-kristen-arrives/)
+- [yasmine zeroc](https://celebs.allwomenstalk.com/camilla-gets-a-push/)
+- [amandah dominic](https://celebs.allwomenstalk.com/amanda-and-dominic-check-in/)
+- [selena gomez red lips](https://celebs.allwomenstalk.com/selenas-fashion-line/)
+- [emma thompson photos](https://celebs.allwomenstalk.com/5-photos-of-emma-in-london/)
+- [niecy nash photos](https://celebs.allwomenstalk.com/nash-wears-yellow-on-live/)
+- [36 Photos of the "GLEE" Spring Premiere Soiree ...](https://celebs.allwomenstalk.com/glee-premiere/)
+- [16 Photos of "in My Sleep" Premiere ...](https://celebs.allwomenstalk.com/in-my-sleep-premiere/)
 
 ## Site Information
 

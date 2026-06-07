@@ -1,12 +1,12 @@
 ---
-title: "30 Photos of Scott Pilgrim Vs. the World Premiere ..."
+title: "30 Photos of \"Scott Pilgrim Vs. the World\" Premiere ..."
 description: "Stay ahead, stay chic. Trusted guides on beauty, wellness, fashion, and everything that defines today's empowered woman."
 url: "https://celebs.allwomenstalk.com/scott-pilgrim-vs-the-world-premiere/"
 category: "celebs"
-last_updated: "2026-05-25"
+last_updated: "2026-06-07"
 ---
 
-# 30 Photos of Scott Pilgrim Vs. the World Premiere ...
+# 30 Photos of "Scott Pilgrim Vs. the World" Premiere ...
 
 Los Angeles Premiere of "Scott Pilgrim vs. the World". Grauman's Chinese Theatre, Hollywood, CA. July 27, 2010. I adore Michael Cera and can't wait to watch this one! And look at all the lovely people at the premiere...
 City: [Los Angeles](https://celebs.allwomenstalk.com/tag/los-angeles/)
@@ -91,18 +91,18 @@ My favorite look of the evening though was definitely Anna Kendrick!
 
 ## Related Posts
 
-- [newnownext awards](https://celebs.allwomenstalk.com/newnownext-awards/)
-- [71 Photos of AmfAR Party ...](https://celebs.allwomenstalk.com/amfar-party/)
 - [kimberly wyatt feet](https://celebs.allwomenstalk.com/teen-choice-awards/)
+- [newnownext awards](https://celebs.allwomenstalk.com/newnownext-awards/)
+- [Who Was Best Dressed at the "Sex and the City 2" i...](https://celebs.allwomenstalk.com/sex-and-the-city-2-in-london/)
 - [mary lynn rajskub net worth](https://celebs.allwomenstalk.com/primetime-creative-arts-emmy-awards/)
-- [Who Was Best Dressed at the Sex and the City 2 in ...](https://celebs.allwomenstalk.com/sex-and-the-city-2-in-london/)
 - [bertille sefolosha](https://celebs.allwomenstalk.com/18th-annual-espy-awards/)
 - [salt premiere](https://celebs.allwomenstalk.com/salt-premiere/)
 - [women in film crystal award](https://celebs.allwomenstalk.com/women-in-film-crystal-lucy-awards/)
 - [mischa barton nip slip](https://celebs.allwomenstalk.com/artists-for-peace-and-justice-benefit-party/)
+- [71 Photos of AmfAR Party ...](https://celebs.allwomenstalk.com/amfar-party/)
 - [national movie awards 2010](https://celebs.allwomenstalk.com/national-movie-awards/)
-- [9 Photos of Kristen Stewart at the Runaways Premie...](https://celebs.allwomenstalk.com/9-photos-of-kristen-arrives/)
-- [16 Photos of in My Sleep Premiere ...](https://celebs.allwomenstalk.com/in-my-sleep-premiere/)
+- [9 Photos of Kristen Stewart at "the Runaways" Prem...](https://celebs.allwomenstalk.com/9-photos-of-kristen-arrives/)
+- [16 Photos of "in My Sleep" Premiere ...](https://celebs.allwomenstalk.com/in-my-sleep-premiere/)
 
 ## Site Information
 

@@ -1,12 +1,12 @@
 ---
-title: "Full List of Leonardo DiCaprio’s Serious Girlfriends"
+title: "Full List of Leonardo DiCaprio’s Serious Girlfriends …"
 description: "Bridget Hall (1994); Naomi Campbell (1995); Kristen Zang (1996-1997); Helena Christensen (1997); Amber Valletta (1998); More ..."
 url: "https://celebs.allwomenstalk.com/leonardo-dicaprio-girlfriends-list/"
 category: "celebs"
-last_updated: "2026-05-25"
+last_updated: "2026-06-07"
 ---
 
-# Full List of Leonardo DiCaprio’s Serious Girlfriends
+# Full List of Leonardo DiCaprio’s Serious Girlfriends …
 
 Let's be real, who hasn't done a little bit of celebrity snooping from time to time? Especially when it's about someone as mysterious and charming as Leonardo DiCaprio. Well, hold on to your lattes, ladies, because we've got the tea on Leo's love life, and it's piping hot! We've all seen him portray the ultimate heartthrob on the big screen, but his off-screen romances are more thrilling than any Hollywood script. From supermodels to starlets, Leo's list of paramours reads like a who's who of the fashion and film universe. And guess what? **You're about to get the full scoop**.
 
@@ -84,16 +84,16 @@ So, after traipsing through Leonardo DiCaprio’s veritable odyssey of romance, 
 
 ## Related Posts
 
-- [7 Biggest Celebrity Weddings ...](https://wedding.allwomenstalk.com/biggest-celebrity-weddings/)
-- [miranda lambert wedding dress](https://wedding.allwomenstalk.com/celebrity-weddings-of-spring/)
-- [twilight the cullen family](https://twilight.allwomenstalk.com/members-of-the-cullen-family/)
-- [15 Intriguing Facts About Timothee Chalamets Love ...](https://celebs.allwomenstalk.com/timothee-chalamet-love-life-facts/)
+- [20 Most Popular Ariana Grande Songs That Shaped He...](https://music.allwomenstalk.com/ariana-grande-most-popular-songs/)
+- [paris riche le stylo eye paradise enchanted](https://twilight.allwomenstalk.com/if-i-could-pick-the-cast-for-the-twilight-movie-this-is-who-i-would-pick/)
 - [5 Things to Remember when You See Robert in Hollyw...](https://twilight.allwomenstalk.com/5-things-to-remember-when-you-see-robert-in-hollywood/)
 - [lizzy pattinson age](https://twilight.allwomenstalk.com/a-biography-on-robert-pattinson/)
-- [15 Iconic New York City Socialites of the 20th Cen...](https://celebs.allwomenstalk.com/famous-new-york-city-socialites/)
-- [paris riche le stylo eye paradise enchanted](https://twilight.allwomenstalk.com/if-i-could-pick-the-cast-for-the-twilight-movie-this-is-who-i-would-pick/)
-- [20 Most Popular Ariana Grande Songs That Shaped He...](https://music.allwomenstalk.com/ariana-grande-most-popular-songs/)
 - [7 Most Inspiring Celebrity Weight Loss Stories ...](https://weightloss.allwomenstalk.com/7-most-inspiring-celebrity-weight-loss-stories/)
+- [7 Biggest Celebrity Weddings ...](https://wedding.allwomenstalk.com/biggest-celebrity-weddings/)
+- [15 Iconic New York City Socialites of the 20th Cen...](https://celebs.allwomenstalk.com/famous-new-york-city-socialites/)
+- [miranda lambert wedding dress](https://wedding.allwomenstalk.com/celebrity-weddings-of-spring/)
+- [15 Intriguing Facts About Timothee Chalamet's Love...](https://celebs.allwomenstalk.com/timothee-chalamet-love-life-facts/)
+- [twilight the cullen family](https://twilight.allwomenstalk.com/members-of-the-cullen-family/)
 - [8 Best Actresses in a Romantic Role ...](https://movies.allwomenstalk.com/8-best-actresses-in-a-romantic-role/)
 - [7 Recent Celebrity Breakups ...](https://celebs.allwomenstalk.com/recent-celebrity-breakups/)
 

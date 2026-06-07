@@ -1,12 +1,12 @@
 ---
-title: "7 Celebs Who Celebrated Mean Girls 10 Year Anniversary ..."
+title: "7 Celebs Who Celebrated Mean Girls' 10 Year Anniversary ..."
 description: "Lindsay Lohan; Amanda Seyfried; Lacey Chambert; Jonathan Bennet; Toaster Strudel; More ..."
 url: "https://celebs.allwomenstalk.com/celebs-who-celebrated-mean-girls-10-year-anniversary/"
 category: "celebs"
-last_updated: "2026-05-25"
+last_updated: "2026-06-07"
 ---
 
-# 7 Celebs Who Celebrated Mean Girls 10 Year Anniversary ...
+# 7 Celebs Who Celebrated Mean Girls' 10 Year Anniversary ...
 
 One of the most iconic things about April was the fact that it was the Mean Girls' 10 year anniversary. Being the huge movie that it is, everyone participated in the celebration. I, of course, wore my 'On Wednesdays we wear pink' beanie! What did you do to celebrate? Let me know in the comments! Check out some of the celebrities who celebrated Mean Girls' 10 year anniversary.
 
@@ -57,15 +57,15 @@ Well, there you have it. These are just seven celebs out of many who celebrated 
 ## Related Posts
 
 - [celebrities twitter accounts](https://celebs.allwomenstalk.com/hilarious-celebrity-twitter-accounts-to-follow/)
-- [underrated.lee](https://fitness.allwomenstalk.com/amazing-sports-stars-who-make-their-sport-an-art/)
-- [cute famous couples](https://celebs.allwomenstalk.com/adorable-celebrity-couples-we-wish-were-more-public/)
-- [nde celebrities](https://celebs.allwomenstalk.com/celebrities-who-have-had-near-death-experiences/)
-- [left at the altar](https://celebs.allwomenstalk.com/celebrities-who-were-left-at-the-altar/)
-- [celebrities giving back to the community](https://celebs.allwomenstalk.com/wonderful-celebrities-that-help-the-community/)
 - [danny zugelder](https://celebs.allwomenstalk.com/female-celebrities-who-have-been-married-more-than-once/)
-- [whos a in pretty little liars season 1](https://celebs.allwomenstalk.com/pretty-little-liars-cast-members-who-also-dabble-in-music/)
-- [famous people who are inspiring](https://celebs.allwomenstalk.com/inspiring-celebrities-that-i-look-up-to/)
+- [underrated.lee](https://fitness.allwomenstalk.com/amazing-sports-stars-who-make-their-sport-an-art/)
+- [celebrities giving back to the community](https://celebs.allwomenstalk.com/wonderful-celebrities-that-help-the-community/)
+- [left at the altar](https://celebs.allwomenstalk.com/celebrities-who-were-left-at-the-altar/)
+- [nde celebrities](https://celebs.allwomenstalk.com/celebrities-who-have-had-near-death-experiences/)
+- [who's a in pretty little liars season 1](https://celebs.allwomenstalk.com/pretty-little-liars-cast-members-who-also-dabble-in-music/)
 - [female tv cops](https://celebs.allwomenstalk.com/brilliant-actors-actresses-who-have-played-cops-on-tv/)
+- [cute famous couples](https://celebs.allwomenstalk.com/adorable-celebrity-couples-we-wish-were-more-public/)
+- [famous people who are inspiring](https://celebs.allwomenstalk.com/inspiring-celebrities-that-i-look-up-to/)
 - [7 of My Favorite Celebrities ...](https://celebs.allwomenstalk.com/7-of-my-favorite-celebrities/)
 - [7 Inspiring Celebrities of 2011 ...](https://celebs.allwomenstalk.com/inspiring-celebrities-of/)
 

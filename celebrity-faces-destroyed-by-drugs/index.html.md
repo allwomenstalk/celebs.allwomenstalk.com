@@ -3,7 +3,7 @@ title: "7 Celebrity Faces Destroyed by Drugs ..."
 description: "Courtney Love; Macaulay Culkin; Lindsay Lohan; Mischa Barton; Whitney Houston; More ..."
 url: "https://celebs.allwomenstalk.com/celebrity-faces-destroyed-by-drugs/"
 category: "celebs"
-last_updated: "2026-05-25"
+last_updated: "2026-06-07"
 ---
 
 # 7 Celebrity Faces Destroyed by Drugs ...
@@ -56,16 +56,16 @@ It is sad that not only are celebrity faces destroyed by drugs but sometimes the
 
 ## Related Posts
 
-- [miley cyrus scandal video](https://celebs.allwomenstalk.com/of-the-biggest-miley-cyrus-scandals/)
-- [pale skin women](https://celebs.allwomenstalk.com/beautiful-pale-skinned-celebrities-who-embrace-their-look/)
-- [famous celebrities as kids](https://celebs.allwomenstalk.com/child-celebrities-who-are-no-longer-famous/)
 - [fit blonde actresses](https://celebs.allwomenstalk.com/hottest-blonde-celebrities-from-yesterday-and-today/)
-- [hollywood homewreckers](https://celebs.allwomenstalk.com/most-notorious-home-wreckers-in-hollywood/)
-- [james blunt net worth](https://celebs.allwomenstalk.com/celebrities-who-have-praised-ed-sheerans-new-album/)
-- [all blonde dreads](https://celebs.allwomenstalk.com/fierce-celebrities-with-dreadlocks-who-rocked-that-look/)
-- [fit celeb](https://celebs.allwomenstalk.com/fit-celebrities-wholl-inspire-you-this-summer/)
 - [why should celebrities be role models](https://celebs.allwomenstalk.com/reasons-why-some-celebrities-are-bad-role-models/)
+- [all blonde dreads](https://celebs.allwomenstalk.com/fierce-celebrities-with-dreadlocks-who-rocked-that-look/)
+- [hollywood homewreckers](https://celebs.allwomenstalk.com/most-notorious-home-wreckers-in-hollywood/)
+- [pale skin women](https://celebs.allwomenstalk.com/beautiful-pale-skinned-celebrities-who-embrace-their-look/)
+- [miley cyrus scandal video](https://celebs.allwomenstalk.com/of-the-biggest-miley-cyrus-scandals/)
 - [pauly d child](https://celebs.allwomenstalk.com/celebrity-babies-who-seem-more-famous-than-their-parents/)
+- [james blunt net worth](https://celebs.allwomenstalk.com/celebrities-who-have-praised-ed-sheerans-new-album/)
+- [famous celebrities as kids](https://celebs.allwomenstalk.com/child-celebrities-who-are-no-longer-famous/)
+- [fit celeb](https://celebs.allwomenstalk.com/fit-celebrities-wholl-inspire-you-this-summer/)
 - [7 Recent Celebrity Breakups ...](https://celebs.allwomenstalk.com/recent-celebrity-breakups/)
 - [7 Women Celebrities Who Smoke ...](https://celebs.allwomenstalk.com/women-celebrities-who-smoke/)
 

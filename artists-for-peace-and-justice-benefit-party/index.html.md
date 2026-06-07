@@ -1,12 +1,12 @@
 ---
-title: "15 Photos of Artists for Peace and Justice Benefit Party ..."
+title: "15 Photos of \"Artists for Peace and Justice\" Benefit Party ..."
 description: "Stay ahead, stay chic. Trusted guides on beauty, wellness, fashion, and everything that defines today's empowered woman."
 url: "https://celebs.allwomenstalk.com/artists-for-peace-and-justice-benefit-party/"
 category: "celebs"
-last_updated: "2026-05-25"
+last_updated: "2026-06-07"
 ---
 
-# 15 Photos of Artists for Peace and Justice Benefit Party ...
+# 15 Photos of "Artists for Peace and Justice" Benefit Party ...
 
 Check out photos from the "Artists for Peace and Justice" benefit party at VIP Room during the 63rd Cannes Film Festival at [Cannes](https://celebs.allwomenstalk.com/tag/cannes/). Artist for Peace and Justice is a fundraising effort founded by Paul Haggis and friends that encourages peace and social justice and addresses issues of poverty and enfranchisement in communities around the world. The organization’s immediate goal is to build schools to serve the poorest areas of Haiti, providing an education, hot meals, clean drinking water and regular medical treatments to the children living in the slums.
 
@@ -49,18 +49,18 @@ I think we all agree that the worst look of the night was Mischa Barton, no? Wha
 
 ## Related Posts
 
-- [Who Was Best Dressed at the Sex and the City 2 in ...](https://celebs.allwomenstalk.com/sex-and-the-city-2-in-london/)
-- [is charlie st cloud based on a true story](https://celebs.allwomenstalk.com/charlie-st-cloud-world-premiere/)
 - [vail bloom feet](https://celebs.allwomenstalk.com/easy-a-premiere/)
-- [kimberly wyatt feet](https://celebs.allwomenstalk.com/teen-choice-awards/)
 - [inception photos](https://celebs.allwomenstalk.com/inception-premiere/)
+- [salt premiere](https://celebs.allwomenstalk.com/salt-premiere/)
 - [71 Photos of AmfAR Party ...](https://celebs.allwomenstalk.com/amfar-party/)
 - [96 Photos of 2010 MTV Video Music Awards - Arrival...](https://celebs.allwomenstalk.com/mtv-video-music-awards-arrivals/)
-- [A Wide Ranging Soul Train Awards ...](https://celebs.allwomenstalk.com/a-wide-ranging-soul-train-awards/)
+- [is charlie st cloud based on a true story](https://celebs.allwomenstalk.com/charlie-st-cloud-world-premiere/)
 - [national movie awards 2010](https://celebs.allwomenstalk.com/national-movie-awards/)
-- [salt premiere](https://celebs.allwomenstalk.com/salt-premiere/)
+- [kimberly wyatt feet](https://celebs.allwomenstalk.com/teen-choice-awards/)
+- [Who Was Best Dressed at the "Sex and the City 2" i...](https://celebs.allwomenstalk.com/sex-and-the-city-2-in-london/)
+- [A Wide Ranging Soul Train Awards ...](https://celebs.allwomenstalk.com/a-wide-ranging-soul-train-awards/)
 - [27 Photos of 21st Annual GLAAD Media Awards ...](https://celebs.allwomenstalk.com/21st-annual-glaad-media-awards/)
-- [42 Photos of 21st Annual a Time for Heroes ...](https://celebs.allwomenstalk.com/21st-annual-a-time-for-heroes/)
+- [42 Photos of 21st Annual "a Time for Heroes" ...](https://celebs.allwomenstalk.com/21st-annual-a-time-for-heroes/)
 
 ## Site Information
 

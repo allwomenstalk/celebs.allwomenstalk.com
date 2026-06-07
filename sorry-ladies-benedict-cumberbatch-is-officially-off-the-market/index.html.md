@@ -1,12 +1,12 @@
 ---
-title: "Sorry Ladies Benedict Cumberbatch is Officially off the Market!"
+title: "Sorry Ladies, Benedict Cumberbatch is Officially off the Market!"
 description: "Stay ahead, stay chic. Trusted guides on beauty, wellness, fashion, and everything that defines today's empowered woman."
 url: "https://celebs.allwomenstalk.com/sorry-ladies-benedict-cumberbatch-is-officially-off-the-market/"
 category: "celebs"
-last_updated: "2026-05-25"
+last_updated: "2026-06-07"
 ---
 
-# Sorry Ladies Benedict Cumberbatch is Officially off the Market!
+# Sorry Ladies, Benedict Cumberbatch is Officially off the Market!
 
 If you listen really closely, you can hear the cries of women all over the world after hearing that Benedict Cumberbatch is now a husband-to-be! According to The Mail On Sunday, Benedict actually flew to Edinburgh to ask his long-time girlfriend Sophie Hunter's mother permission for her daughter's hand in marriage. Can we all let out a collective "AW"?!
 
@@ -16,18 +16,18 @@ When Benedict was asked about his thoughts on commitment, he said: "I can imagin
 
 ## Related Posts
 
-- [Weinstein Affleck Et Al: the Grey Area of Harassme...](https://lifestyle.allwomenstalk.com/the-grey-area-of-harassment/)
-- [No Forgiveness for Kevin Hart ...](https://celebs.allwomenstalk.com/no-forgiveness-for-kevin-hart/)
-- [Potty-Mouth Princesses Break the Silence on Domest...](https://inspiration.allwomenstalk.com/potty-mouth-princesses-break-the-silence-on-domestic-violence/)
+- [Weinstein, Affleck, Et Al: the Grey Area of Harass...](https://lifestyle.allwomenstalk.com/the-grey-area-of-harassment/)
+- [Paris Hilton Ordered to Return to Court](https://allwomenstalk.com/paris-hilton-ordered-to-return-to-court/)
+- [Robin Williams' Daughter Has a Message for Women S...](https://inspiration.allwomenstalk.com/robin-williams-daughter-has-a-message-for-women-struggling-with-depression/)
 - [George Michael Ready to Start Again ...](https://celebs.allwomenstalk.com/george-michael-ready-to-start-again/)
-- [riche le stylo skirt](https://allwomenstalk.com/nicole-richie-need-help-on-weight-gain/)
-- [Jennifer Aniston  Lisa Kudrow Battle It out on cel...](https://funny.allwomenstalk.com/watch-jennifer-aniston-vs-lisa-kudrow-in-celebrity-curse-off/)
 - [stylo violet amour](https://lifestyle.allwomenstalk.com/a-mother-was-reunited-with-her-baby-in-the-nice-attack-after-a-facebook-post-when-viral/)
 - [MUST KNOW: Robert Pattinson and Kristen Stewart Le...](https://twilight.allwomenstalk.com/must-know-robert-pattinson-and-kristen-stewart-leave-the-love-nest/)
-- [Robin Williams Daughter Has a Message for Women St...](https://inspiration.allwomenstalk.com/robin-williams-daughter-has-a-message-for-women-struggling-with-depression/)
-- [Paris Hilton Ordered to Return to Court](https://allwomenstalk.com/paris-hilton-ordered-to-return-to-court/)
-- [Brad amp Angelina Took Secret Vows](https://allwomenstalk.com/brad-angelina-took-secret-vows/)
-- [Katie Holmes Runs Away W Posh](https://allwomenstalk.com/katie-holmes-runs-away-w-posh/)
+- [Jennifer Aniston & Lisa Kudrow Battle It out on "c...](https://funny.allwomenstalk.com/watch-jennifer-aniston-vs-lisa-kudrow-in-celebrity-curse-off/)
+- [Potty-Mouth Princesses Break the Silence on Domest...](https://inspiration.allwomenstalk.com/potty-mouth-princesses-break-the-silence-on-domestic-violence/)
+- [No Forgiveness for Kevin Hart ...](https://celebs.allwomenstalk.com/no-forgiveness-for-kevin-hart/)
+- [riche le stylo skirt](https://allwomenstalk.com/nicole-richie-need-help-on-weight-gain/)
+- [Brad & Angelina Took Secret Vows?!?](https://allwomenstalk.com/brad-angelina-took-secret-vows/)
+- [Kat(i)e Holmes Runs Away W/ Posh!](https://allwomenstalk.com/katie-holmes-runs-away-w-posh/)
 
 ## Site Information
 

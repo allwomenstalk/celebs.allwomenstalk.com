@@ -3,7 +3,7 @@ title: "Were These Celebrity Hairstyles Inspired by Disney Princesses?"
 description: "Lorde X Merida; Bella X Jasmine; Shay X Belle; Selena X Snow White; Taylor X Cinderella; More ..."
 url: "https://celebs.allwomenstalk.com/were-these-celebrity-hairstyles-inspired-by-disney-princesses/"
 category: "celebs"
-last_updated: "2026-05-25"
+last_updated: "2026-06-07"
 ---
 
 # Were These Celebrity Hairstyles Inspired by Disney Princesses?
@@ -44,18 +44,18 @@ Which Disney princess 'do would YOU copy?
 
 ## Related Posts
 
-- [braided bun hairstyles](https://hair.allwomenstalk.com/easy-bun-hairstyles-for-busy-days/)
-- [heatless curl target](https://hair.allwomenstalk.com/honestly-good-heatless-hairstyles-to-try-out/)
-- [green peek a boo braids](https://hair.allwomenstalk.com/hair-how-to-the-peek-a-boo-braid/)
-- [how to wear a hat with long hair woman](https://hair.allwomenstalk.com/hairstyles-that-look-cute-under-a-baseball-cap/)
 - [celebrity hair styles](https://hair.allwomenstalk.com/celebrity-hair-transformations-the-most-dramatic-haircuts/)
+- [green peek a boo braids](https://hair.allwomenstalk.com/hair-how-to-the-peek-a-boo-braid/)
 - [cute easy thanksgiving hairstyles](https://hair.allwomenstalk.com/no-fuss-hairstyles-for-thanksgiving-this-year/)
-- [curls n clouds volume spray](https://hair.allwomenstalk.com/quick-hairstyles-for-curly-textured-hair/)
-- [ponytail with bobby pins](https://hair.allwomenstalk.com/really-cool-ways-to-use-bobby-pins/)
 - [womens fauxhawk](https://hair.allwomenstalk.com/break-out-of-your-hair-rut-with-this-fauxhawk-tutorial/)
+- [curls 'n clouds volume spray](https://hair.allwomenstalk.com/quick-hairstyles-for-curly-textured-hair/)
+- [ponytail with bobby pins](https://hair.allwomenstalk.com/really-cool-ways-to-use-bobby-pins/)
+- [heatless curl target](https://hair.allwomenstalk.com/honestly-good-heatless-hairstyles-to-try-out/)
+- [braided bun hairstyles](https://hair.allwomenstalk.com/easy-bun-hairstyles-for-busy-days/)
 - [short hair accesories](https://hair.allwomenstalk.com/stunning-accessories-for-women-with-short-hair/)
-- [Fashionable Hair Styles 2006: Eyes on Stars](https://allwomenstalk.com/fashionable-hair-styles-eyes-on-stars/)
-- [The Latest Celebrity Hair Trend - Are YOU in](https://allwomenstalk.com/the-latest-celebrity-hair-trend-are-you-in/)
+- [how to wear a hat with long hair woman](https://hair.allwomenstalk.com/hairstyles-that-look-cute-under-a-baseball-cap/)
+- [Fashionable Hair Styles 2006: Eyes on Stars!](https://allwomenstalk.com/fashionable-hair-styles-eyes-on-stars/)
+- [The Latest Celebrity Hair Trend - Are YOU in?](https://allwomenstalk.com/the-latest-celebrity-hair-trend-are-you-in/)
 
 ## Site Information
 

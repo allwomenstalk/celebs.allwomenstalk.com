@@ -3,7 +3,7 @@ title: "7 Celebrities Who Were Left at the Altar ..."
 description: "Julia Roberts and Kiefer Sutherland; Jennifer Lopez and Ben Affleck; Carson Daly and Tara Reid; Demi Moore and Emilio Estevez; Alec Baldwin and Janine Turner; More ..."
 url: "https://celebs.allwomenstalk.com/celebrities-who-were-left-at-the-altar/"
 category: "celebs"
-last_updated: "2026-05-25"
+last_updated: "2026-06-07"
 ---
 
 # 7 Celebrities Who Were Left at the Altar ...
@@ -58,16 +58,16 @@ radaronline.com_
 
 ## Related Posts
 
-- [female tv cops](https://celebs.allwomenstalk.com/brilliant-actors-actresses-who-have-played-cops-on-tv/)
-- [7 Hollywood Same-Sex Couples We Love ...](https://celebs.allwomenstalk.com/hollywood-same-sex-couples-we-love/)
-- [tyler posey and miley cyrus](https://celebs.allwomenstalk.com/celebrity-couples-that-you-probably-forgot-about/)
-- [river phoenix and anna nicole smith](https://celebs.allwomenstalk.com/amazing-actors-who-died-before-their-time/)
-- [celebrities that were born rich](https://celebs.allwomenstalk.com/celebrities-who-were-born-rich/)
-- [celebrities with criminal records](https://celebs.allwomenstalk.com/celebrities-with-unexpected-criminal-records/)
-- [who lives in the same neighborhood as oprah](https://celebs.allwomenstalk.com/celebrities-who-are-neighbors-in-real-life/)
-- [famous career changes](https://celebs.allwomenstalk.com/of-the-best-career-changes-in-hollywood/)
 - [cameron diaz armpit](https://celebs.allwomenstalk.com/celebrities-who-supposedly-have-bad-hygiene/)
+- [female tv cops](https://celebs.allwomenstalk.com/brilliant-actors-actresses-who-have-played-cops-on-tv/)
+- [tyler posey and miley cyrus](https://celebs.allwomenstalk.com/celebrity-couples-that-you-probably-forgot-about/)
+- [who lives in the same neighborhood as oprah?](https://celebs.allwomenstalk.com/celebrities-who-are-neighbors-in-real-life/)
+- [7 Hollywood Same-Sex Couples We Love ...](https://celebs.allwomenstalk.com/hollywood-same-sex-couples-we-love/)
+- [famous career changes](https://celebs.allwomenstalk.com/of-the-best-career-changes-in-hollywood/)
+- [celebrities that were born rich](https://celebs.allwomenstalk.com/celebrities-who-were-born-rich/)
+- [river phoenix and anna nicole smith](https://celebs.allwomenstalk.com/amazing-actors-who-died-before-their-time/)
 - [extras celebrities](https://celebs.allwomenstalk.com/celebrities-who-started-out-as-extras/)
+- [celebrities with criminal records](https://celebs.allwomenstalk.com/celebrities-with-unexpected-criminal-records/)
 - [7 Biggest Celebrity Weddings ...](https://wedding.allwomenstalk.com/biggest-celebrity-weddings/)
 - [7 Recent Celebrity Breakups ...](https://celebs.allwomenstalk.com/recent-celebrity-breakups/)
 

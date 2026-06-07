@@ -1,12 +1,12 @@
 ---
-title: "15 Inspiring Celebrities Whove Stripped off for Charity ..."
+title: "15 Inspiring Celebrities Who've Stripped off for Charity ..."
 description: "Miley Cyrus; Cindy Crawford; Eva Mendes; Kate Moss; Victoria Beckham; More ..."
 url: "https://celebs.allwomenstalk.com/inspiring-celebrities-whove-stripped-off-for-charity/"
 category: "celebs"
-last_updated: "2026-05-25"
+last_updated: "2026-06-07"
 ---
 
-# 15 Inspiring Celebrities Whove Stripped off for Charity ...
+# 15 Inspiring Celebrities Who've Stripped off for Charity ...
 
 Can you name any celebrities who’ve stripped off for charity? It’s certainly a controversial idea. It undoubtedly gets extra coverage for the charity in question, and it must take some confidence to peel off your clothes knowing that the whole world will see, but plenty of people feel that there are more valid ways to raise awareness. Then there is the issue of extra publicity for the celebrities, too... Here’s 15 of the biggest celebrities who’ve stripped off for charity. Would you do it?
 
@@ -104,16 +104,16 @@ Miley definitely isn’t alone – there are hundreds of celebrities who’ve st
 
 ## Related Posts
 
+- [jon heder lds](https://celebs.allwomenstalk.com/famous-celebrities-with-a-twin-that-will-probably-surprise-you/)
+- [underrated celebrity](https://celebs.allwomenstalk.com/underrated-hollywood-stars-that-deserve-more-attention/)
+- [eva longoria and jennifer lopez](https://celebs.allwomenstalk.com/best-celebrity-friendships-that-didnt-last-forever/)
+- [good luck with bookin that stage](https://celebs.allwomenstalk.com/most-scandalous-celebrity-twitter-feuds-that-will-evoke-a-facepalm/)
+- [wino forever meaning](https://celebs.allwomenstalk.com/worst-celebrity-tattoos-that-make-us-cringe/)
+- [brown's chicken steve carell](https://celebs.allwomenstalk.com/old-commercials-with-now-famous-actors-that-will-blow-your-mind/)
+- [chace crawford liam hemsworth](https://celebs.allwomenstalk.com/hottest-guys-of-that-we-cant-stop-drooling-over/)
+- [blonde hair 50s](https://celebs.allwomenstalk.com/celebrities-with-trend-setting-hair-to-copy-happily/)
 - [famous duos characters](https://inspiration.allwomenstalk.com/top-american-tv-duos-of-all-time/)
 - [most famous british actors](https://movies.allwomenstalk.com/underrated-british-actors-i-want-to-see-more-of/)
-- [jon heder lds](https://celebs.allwomenstalk.com/famous-celebrities-with-a-twin-that-will-probably-surprise-you/)
-- [blonde hair 50s](https://celebs.allwomenstalk.com/celebrities-with-trend-setting-hair-to-copy-happily/)
-- [underrated celebrity](https://celebs.allwomenstalk.com/underrated-hollywood-stars-that-deserve-more-attention/)
-- [good luck with bookin that stage](https://celebs.allwomenstalk.com/most-scandalous-celebrity-twitter-feuds-that-will-evoke-a-facepalm/)
-- [browns chicken steve carell](https://celebs.allwomenstalk.com/old-commercials-with-now-famous-actors-that-will-blow-your-mind/)
-- [chace crawford liam hemsworth](https://celebs.allwomenstalk.com/hottest-guys-of-that-we-cant-stop-drooling-over/)
-- [wino forever meaning](https://celebs.allwomenstalk.com/worst-celebrity-tattoos-that-make-us-cringe/)
-- [eva longoria and jennifer lopez](https://celebs.allwomenstalk.com/best-celebrity-friendships-that-didnt-last-forever/)
 - [Top Celebrity Philantrophists ...](https://celebs.allwomenstalk.com/top-celebrity-philantrophists/)
 - [8 Celebrities with Excellent off-Duty Style ...](https://celebs.allwomenstalk.com/celebrities-with-excellent-off-duty-style/)
 

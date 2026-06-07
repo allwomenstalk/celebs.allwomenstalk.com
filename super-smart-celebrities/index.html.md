@@ -3,7 +3,7 @@ title: "15 Super Smart Celebrities ..."
 description: "Lily Cole; Natalie Portman; Dolph Lundgren; Jayne Mansfield; Quentin Tarantino; More ..."
 url: "https://celebs.allwomenstalk.com/super-smart-celebrities/"
 category: "celebs"
-last_updated: "2026-05-25"
+last_updated: "2026-06-07"
 ---
 
 # 15 Super Smart Celebrities ...
@@ -104,16 +104,16 @@ So, it appears that there are some pretty smart celebrities out there! Fame isnÂ
 
 ## Related Posts
 
-- [zoe perry smoking](https://beauty.allwomenstalk.com/chic-celebrities-to-get-beauty-inspiration-from/)
-- [sexiest comedian](https://celebs.allwomenstalk.com/hottest-comedians/)
-- [celebs with rosacea](https://skincare.allwomenstalk.com/hot-celebs-with-skincare-issues/)
-- [ed begley jnr](https://celebs.allwomenstalk.com/celebrities-who-care-about-the-environment/)
-- [glitter bodysuits](https://celebs.allwomenstalk.com/best-sparkly-bodysuits-on-celebrities/)
-- [long haired british comedian](https://celebs.allwomenstalk.com/hottest-famous-guys-brits-vs-americans/)
-- [famous celebrity haircuts](https://celebs.allwomenstalk.com/shocking-celebrity-haircuts/)
 - [celebrities in trouble with the law](https://celebs.allwomenstalk.com/celebrities-who-have-been-in-trouble-with-the-law/)
-- [celebrity girl crush list](https://celebs.allwomenstalk.com/fabulous-celebrities-its-okay-to-have-a-girl-crush-on/)
 - [bezos wife](https://celebs.allwomenstalk.com/famous-people-who-are-beautiful-on-the-inside/)
+- [long haired british comedian](https://celebs.allwomenstalk.com/hottest-famous-guys-brits-vs-americans/)
+- [sexiest comedian](https://celebs.allwomenstalk.com/hottest-comedians/)
+- [famous celebrity haircuts](https://celebs.allwomenstalk.com/shocking-celebrity-haircuts/)
+- [celebrity girl crush list](https://celebs.allwomenstalk.com/fabulous-celebrities-its-okay-to-have-a-girl-crush-on/)
+- [glitter bodysuits](https://celebs.allwomenstalk.com/best-sparkly-bodysuits-on-celebrities/)
+- [zoe perry smoking](https://beauty.allwomenstalk.com/chic-celebrities-to-get-beauty-inspiration-from/)
+- [ed begley jnr](https://celebs.allwomenstalk.com/celebrities-who-care-about-the-environment/)
+- [celebs with rosacea](https://skincare.allwomenstalk.com/hot-celebs-with-skincare-issues/)
 - [25 Most Messed up Celebrities ...](https://celebs.allwomenstalk.com/25-most-messed-up-celebrities/)
 - [25 Smartest Celebrities ...](https://celebs.allwomenstalk.com/25-smartest-celebrities/)
 

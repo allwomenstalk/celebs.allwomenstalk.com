@@ -3,7 +3,7 @@ title: "17 Worst Celebrity Tattoos ..."
 description: "Ke$ha; Rihanna; T-Pain; Bam Margera; Mike Tyson; More ..."
 url: "https://celebs.allwomenstalk.com/worst-celebrity-tattoos/"
 category: "celebs"
-last_updated: "2026-05-25"
+last_updated: "2026-06-07"
 ---
 
 # 17 Worst Celebrity Tattoos ...
@@ -116,16 +116,16 @@ Here’s proof that celebrities have temporary lapses in judgment just like us w
 
 ## Related Posts
 
-- [hot hollywood news](https://celebs.allwomenstalk.com/hot-hollywood-stars-with-troubled-pasts/)
-- [weddings while pregnant](https://wedding.allwomenstalk.com/gorgeous-pregnant-celebrity-brides/)
-- [best front men](https://celebs.allwomenstalk.com/hottest-band-front-men/)
 - [dilf celebs](https://celebs.allwomenstalk.com/gorgeous-celebrities-both-men-and-women-drool-over/)
-- [edward cullen sixpack](https://celebs.allwomenstalk.com/top-hot-actors-who-should-play-christian-grey/)
-- [teenage celebs](https://celebs.allwomenstalk.com/most-stylish-teen-celebrities-to-watch/)
-- [stephenie meyer twilight cameo](https://movies.allwomenstalk.com/writers-who-made-a-cameo-appearance/)
-- [is natalie portman smart](https://celebs.allwomenstalk.com/super-smart-celebrities/)
 - [renee zellweger weight loss diet](https://celebs.allwomenstalk.com/celebs-who-drastically-lost-weight-for-roles/)
+- [teenage celebs](https://celebs.allwomenstalk.com/most-stylish-teen-celebrities-to-watch/)
+- [is natalie portman smart](https://celebs.allwomenstalk.com/super-smart-celebrities/)
+- [weddings while pregnant](https://wedding.allwomenstalk.com/gorgeous-pregnant-celebrity-brides/)
 - [rihanna no make up](https://celebs.allwomenstalk.com/no-makeup-celebrities-that-look-great/)
+- [edward cullen sixpack](https://celebs.allwomenstalk.com/top-hot-actors-who-should-play-christian-grey/)
+- [best front men](https://celebs.allwomenstalk.com/hottest-band-front-men/)
+- [stephenie meyer twilight cameo](https://movies.allwomenstalk.com/writers-who-made-a-cameo-appearance/)
+- [hot hollywood news](https://celebs.allwomenstalk.com/hot-hollywood-stars-with-troubled-pasts/)
 - [7 Biggest Celebrity Weddings ...](https://wedding.allwomenstalk.com/biggest-celebrity-weddings/)
 - [7 Funkiest Celebrity Hairstyles ...](https://celebs.allwomenstalk.com/7-funkiest-celebrity-hairstyles/)
 

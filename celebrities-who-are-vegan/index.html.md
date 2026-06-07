@@ -3,7 +3,7 @@ title: "7 Celebrities Who Are Vegan ..."
 description: "Carrie Underwood; Natalie Portman; Ellen Degeneres; Alicia Silverstone; Joaquin Phoenix; More ..."
 url: "https://celebs.allwomenstalk.com/celebrities-who-are-vegan/"
 category: "celebs"
-last_updated: "2026-05-25"
+last_updated: "2026-06-07"
 ---
 
 # 7 Celebrities Who Are Vegan ...
@@ -56,16 +56,16 @@ Well, there you have it. Who knew so many celebrities had made the change to a v
 
 ## Related Posts
 
-- [aileen wuornos movie actress](https://movies.allwomenstalk.com/best-transformations-for-movies/)
-- [taylor and jake gyllenhaal age difference](https://celebs.allwomenstalk.com/for-these-celebs-age-aint-nothing-but-a-number/)
-- [famous sidekicks in literature](https://movies.allwomenstalk.com/amazing-sidekicks-who-can-be-lead-stars/)
 - [vince vaughn spouse](https://celebs.allwomenstalk.com/celebrities-who-are-married-to-non-celebrities/)
-- [alec baldwin looks like millard fillmore](https://celebs.allwomenstalk.com/whoa-do-these-celebs-have-a-historical-twin/)
+- [aileen wuornos movie actress](https://movies.allwomenstalk.com/best-transformations-for-movies/)
+- [famous sidekicks in literature](https://movies.allwomenstalk.com/amazing-sidekicks-who-can-be-lead-stars/)
 - [celebrities who love food](https://celebs.allwomenstalk.com/celebrity-foodies-that-love-food-as-much-as-you-do/)
-- [siblings best friends](https://celebs.allwomenstalk.com/these-celeb-siblings-also-double-as-best-friends/)
-- [ryan gosling tagine](https://celebs.allwomenstalk.com/celebrities-who-own-restaurants-and-bars/)
 - [romance real life](https://movies.allwomenstalk.com/some-of-the-best-real-life-romances-that-started-on-set/)
+- [alec baldwin looks like millard fillmore](https://celebs.allwomenstalk.com/whoa-do-these-celebs-have-a-historical-twin/)
+- [taylor and jake gyllenhaal age difference](https://celebs.allwomenstalk.com/for-these-celebs-age-aint-nothing-but-a-number/)
+- [ryan gosling tagine](https://celebs.allwomenstalk.com/celebrities-who-own-restaurants-and-bars/)
 - [celebrities who went to college](https://celebs.allwomenstalk.com/hollywood-celebrities-with-college-degrees/)
+- [siblings best friends](https://celebs.allwomenstalk.com/these-celeb-siblings-also-double-as-best-friends/)
 - [7 of My Favorite Celebrities ...](https://celebs.allwomenstalk.com/7-of-my-favorite-celebrities/)
 - [7 Women Celebrities Who Smoke ...](https://celebs.allwomenstalk.com/women-celebrities-who-smoke/)
 
