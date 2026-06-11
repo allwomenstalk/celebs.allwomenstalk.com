@@ -3,7 +3,7 @@ title: "Celebrity Throwbacks: Dcom Edition ..."
 description: "Taran Killam; Hayden Panetierre; Kat Dennings; Emmy Rossum; Kaley Cuoco; More ..."
 url: "https://celebs.allwomenstalk.com/celebrity-throwbacks-dcom-edition/"
 category: "celebs"
-last_updated: "2026-06-07"
+last_updated: "2026-06-11"
 ---
 
 # Celebrity Throwbacks: Dcom Edition ...
@@ -68,16 +68,16 @@ Which of these throwback Disney movies was your favorite?
 
 ## Related Posts
 
-- [stars of the 1940s](https://celebs.allwomenstalk.com/reasons-to-emulate-1940s-movie-stars/)
-- [how did mike tysons daughter die](https://celebs.allwomenstalk.com/male-celebrities-who-lost-children/)
-- [disney look alikes](https://celebs.allwomenstalk.com/whoa-celebrities-and-their-disney-lookalikes/)
-- [dennis rodman belly button](https://celebs.allwomenstalk.com/celebrities-you-may-have-forgotten-had-facial-piercings/)
-- [flynn rider irl](https://celebs.allwomenstalk.com/celebs-you-probably-forgot-voiced-disney-characters/)
 - [celebrities on bereal](https://celebs.allwomenstalk.com/celebrities-and-their-honest-opinions-on-motherhood/)
-- [cast of twilight dancers](https://movies.allwomenstalk.com/worst-dancers-on-tv-and-in-the-movies/)
-- [handsome david beckham](https://celebs.allwomenstalk.com/of-the-hunkiest-celebrity-dads-around/)
+- [flynn rider irl](https://celebs.allwomenstalk.com/celebs-you-probably-forgot-voiced-disney-characters/)
+- [dennis rodman belly button](https://celebs.allwomenstalk.com/celebrities-you-may-have-forgotten-had-facial-piercings/)
 - [cute pairings](https://celebs.allwomenstalk.com/adorable-pairings-of-celebrity-best-friends/)
+- [how did mike tysons daughter die](https://celebs.allwomenstalk.com/male-celebrities-who-lost-children/)
+- [cast of twilight dancers](https://movies.allwomenstalk.com/worst-dancers-on-tv-and-in-the-movies/)
+- [stars of the 1940s](https://celebs.allwomenstalk.com/reasons-to-emulate-1940s-movie-stars/)
 - [celebrities who support gender equality](https://celebs.allwomenstalk.com/heforshe-male-celebs-supporting-gender-equality/)
+- [disney look alikes](https://celebs.allwomenstalk.com/whoa-celebrities-and-their-disney-lookalikes/)
+- [handsome david beckham](https://celebs.allwomenstalk.com/of-the-hunkiest-celebrity-dads-around/)
 - [25 Awesome Celebrity Halloween Costumes ...](https://celebs.allwomenstalk.com/25-awesome-celebrity-halloween-costumes/)
 - [Celebrity Fashion Face-off: Pick Your Winners ...](https://celebs.allwomenstalk.com/celebrity-fashion-face-off-pick-your-winners/)
 

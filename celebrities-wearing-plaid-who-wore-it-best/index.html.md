@@ -3,7 +3,7 @@ title: "9 Celebrities Wearing Plaid – Who Wore It Best?"
 description: "Blake Lively; Hailee Steinfeld; Gwen Stefani; Taylor Swift; Ashley Madekwe; More ..."
 url: "https://celebs.allwomenstalk.com/celebrities-wearing-plaid-who-wore-it-best/"
 category: "celebs"
-last_updated: "2026-06-07"
+last_updated: "2026-06-11"
 ---
 
 # 9 Celebrities Wearing Plaid – Who Wore It Best?
@@ -68,16 +68,16 @@ These are just some of the celebrities that we’ve spotted sporting the plaid t
 
 ## Related Posts
 
-- [green haired celebrities](https://celebs.allwomenstalk.com/celebrities-with-rainbow-hair-who-wore-it-best/)
-- [wide leg jeans celebrity](https://celebs.allwomenstalk.com/celebrities-wearing-wide-leg-pants-who-wore-it-best/)
-- [peplum top 2013](https://celebs.allwomenstalk.com/celebrities-wearing-peplum-who-wore-it-best/)
-- [celebritybelly](https://celebs.allwomenstalk.com/belly-baring-celebrities-who-wore-it-best/)
-- [jt double denim](https://celebs.allwomenstalk.com/celebrities-wearing-double-denim-who-wore-it-best/)
-- [striped t shirts](https://celebs.allwomenstalk.com/celebrities-wearing-a-striped-t-shirt-who-wore-it-best/)
-- [celebrities in coats](https://celebs.allwomenstalk.com/celebrities-wearing-colourful-coats-who-wore-it-best/)
-- [tartan trousers womens](https://celebs.allwomenstalk.com/celebrities-wearing-the-tartan-trend-who-wore-it-best/)
-- [red carpet floral dress](https://celebs.allwomenstalk.com/floral-red-carpet-looks-from-the-celebrities-who-wore-it-best/)
 - [tilda swinton style](https://celebs.allwomenstalk.com/of-tilda-swintons-best-looks/)
+- [celebrities in coats](https://celebs.allwomenstalk.com/celebrities-wearing-colourful-coats-who-wore-it-best/)
+- [peplum top 2013](https://celebs.allwomenstalk.com/celebrities-wearing-peplum-who-wore-it-best/)
+- [wide leg jeans celebrity](https://celebs.allwomenstalk.com/celebrities-wearing-wide-leg-pants-who-wore-it-best/)
+- [striped t shirts](https://celebs.allwomenstalk.com/celebrities-wearing-a-striped-t-shirt-who-wore-it-best/)
+- [red carpet floral dress](https://celebs.allwomenstalk.com/floral-red-carpet-looks-from-the-celebrities-who-wore-it-best/)
+- [celebritybelly](https://celebs.allwomenstalk.com/belly-baring-celebrities-who-wore-it-best/)
+- [green haired celebrities](https://celebs.allwomenstalk.com/celebrities-with-rainbow-hair-who-wore-it-best/)
+- [jt double denim](https://celebs.allwomenstalk.com/celebrities-wearing-double-denim-who-wore-it-best/)
+- [tartan trousers womens](https://celebs.allwomenstalk.com/celebrities-wearing-the-tartan-trend-who-wore-it-best/)
 - [10 Celebrities in Chequered Clothes – Who Wore It ...](https://celebs.allwomenstalk.com/celebrities-in-chequered-clothes-who-wore-it-best/)
 - [10 Celebrities Wearing Striped Dresses – Who Wore ...](https://celebs.allwomenstalk.com/celebrities-wearing-striped-dresses-who-wore-it-best/)
 

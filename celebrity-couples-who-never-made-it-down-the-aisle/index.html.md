@@ -3,7 +3,7 @@ title: "7 Celebrity Couples Who Never Made It down the Aisle ..."
 description: "Brad Pitt & Gwyneth Paltrow; Jennifer Lopez & Ben Affleck...; Britney Spears & Jason Trawick,; Johnny Depp & Vanessa Paradis; Sheryl Crow and Lance Armstrong...; More ..."
 url: "https://celebs.allwomenstalk.com/celebrity-couples-who-never-made-it-down-the-aisle/"
 category: "celebs"
-last_updated: "2026-06-07"
+last_updated: "2026-06-11"
 ---
 
 # 7 Celebrity Couples Who Never Made It down the Aisle ...
@@ -57,15 +57,15 @@ So, did you know about any of these celebrity couples who never made it down the
 ## Related Posts
 
 - [adan canto vampire diaries](https://celebs.allwomenstalk.com/hunky-new-actors-were-beginning-to-see-more-of/)
-- [site:fashion.allwomenstalk.com](https://fashion.allwomenstalk.com/unlikely-celebrity-style-icons/)
-- [true blood bloopers](https://celebs.allwomenstalk.com/celebrity-social-media-bloopers/)
-- [what are the hemsworth brothers names](https://celebs.allwomenstalk.com/hottest-celebrity-siblings/)
-- [celebrity clothes for less](https://celebs.allwomenstalk.com/celebrity-looks-for-less-sites-to-check-out/)
-- [boys singer](https://celebs.allwomenstalk.com/hottest-male-singers/)
 - [celebrities that give back](https://celebs.allwomenstalk.com/celebrities-who-give-back/)
-- [amandla stenberg as a kid](https://movies.allwomenstalk.com/up-and-coming-actresses-to-look-out-for/)
 - [famous tv parents](https://celebs.allwomenstalk.com/celebrities-who-are-only-famous-because-of-their-parents/)
+- [celebrity clothes for less](https://celebs.allwomenstalk.com/celebrity-looks-for-less-sites-to-check-out/)
 - [famous celebrities in europe](https://celebs.allwomenstalk.com/hottest-european-actors/)
+- [true blood bloopers](https://celebs.allwomenstalk.com/celebrity-social-media-bloopers/)
+- [site:fashion.allwomenstalk.com](https://fashion.allwomenstalk.com/unlikely-celebrity-style-icons/)
+- [boys singer](https://celebs.allwomenstalk.com/hottest-male-singers/)
+- [what are the hemsworth brothers names](https://celebs.allwomenstalk.com/hottest-celebrity-siblings/)
+- [amandla stenberg as a kid](https://movies.allwomenstalk.com/up-and-coming-actresses-to-look-out-for/)
 - [7 Biggest Celebrity Weddings ...](https://wedding.allwomenstalk.com/biggest-celebrity-weddings/)
 - [7 Celebrity Weddings I Wish I'd Been Invited Too ....](https://allwomenstalk.com/7-celebrity-weddings-i-wish-id-been-invited-too/)
 

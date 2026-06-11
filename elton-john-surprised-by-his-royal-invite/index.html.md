@@ -3,7 +3,7 @@ title: "Elton John Surprised by His Royal Invite…"
 description: "Stay ahead, stay chic. Trusted guides on beauty, wellness, fashion, and everything that defines today's empowered woman."
 url: "https://celebs.allwomenstalk.com/elton-john-surprised-by-his-royal-invite/"
 category: "celebs"
-last_updated: "2026-06-07"
+last_updated: "2026-06-11"
 ---
 
 # Elton John Surprised by His Royal Invite…
@@ -26,13 +26,13 @@ Though of course, his outburst was short lived.
 
 - [Ashley Judd Now Treads a Little More Carefully…](https://celebs.allwomenstalk.com/ashley-judd-rape-culture-apology/)
 - [kate michelman](https://allwomenstalk.com/i-really-really-hope-that-kate-michelman-doesnt-run-for-the-senate-in-pennsylvania/)
-- [britney spears sec tape](https://allwomenstalk.com/celebrity-porn-peddler-offers-100-million-for-britney-spears-sex-tape/)
-- [A Fellow Author Clued Me in That Gawker Was Having...](https://allwomenstalk.com/a-fellow-author-clued-me-in-that-gawker-was-having/)
 - [elin nordegren pics](https://allwomenstalk.com/tiger-may-sue-irish-mag-for-elin-nordegren-nude-pics/)
-- ["Fuck You, Bitch"](https://allwomenstalk.com/fuck-you-bitch-2/)
-- [sara evans tattoo](https://allwomenstalk.com/kenny-chesney-denies-he-had-an-affair-with-sara-evans/)
-- [Constant Fighting Ended Richie and Jenner's Relati...](https://allwomenstalk.com/constant-fighting-ended-richie-and-jenners-relationship/)
 - [Lionel Richie Calls Himself 'the Greatest Porn Sta...](https://allwomenstalk.com/lionel-richie-calls-himself-the-greatest-porn-star/)
+- [Constant Fighting Ended Richie and Jenner's Relati...](https://allwomenstalk.com/constant-fighting-ended-richie-and-jenners-relationship/)
+- [A Fellow Author Clued Me in That Gawker Was Having...](https://allwomenstalk.com/a-fellow-author-clued-me-in-that-gawker-was-having/)
+- ["Fuck You, Bitch"](https://allwomenstalk.com/fuck-you-bitch-2/)
+- [britney spears sec tape](https://allwomenstalk.com/celebrity-porn-peddler-offers-100-million-for-britney-spears-sex-tape/)
+- [sara evans tattoo](https://allwomenstalk.com/kenny-chesney-denies-he-had-an-affair-with-sara-evans/)
 - [simon mills journalist](https://allwomenstalk.com/posh-spice-is-no-style-icon/)
 - [Ed O'Neill is Jane's Biggest Fan ...](https://celebs.allwomenstalk.com/ed-oneill-is-janes-biggest-fan/)
 - [LeAnn & Eddie Not Allowed to Party....](https://celebs.allwomenstalk.com/leann-eddie-not-allowed-to-party/)

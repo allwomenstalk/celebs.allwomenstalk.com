@@ -3,7 +3,7 @@ title: "7 Awesome Reasons to Love Tina Fey ..."
 description: "She's Not Afraid of Being Powerful; She Roots for Other Women; Her Book; She Calls People out; She's Hilarious; More ..."
 url: "https://celebs.allwomenstalk.com/awesome-reasons-to-love-tina-fey/"
 category: "celebs"
-last_updated: "2026-06-07"
+last_updated: "2026-06-11"
 ---
 
 # 7 Awesome Reasons to Love Tina Fey ...
@@ -56,16 +56,16 @@ Well, there you have it! These are just seven out of many awesome reasons to lov
 
 ## Related Posts
 
-- [willow summers actor](https://movies.allwomenstalk.com/reasons-why-buffy-summers-is-the-best-female-tv-character-of-all-time/)
-- [lupita nyong'o ethnicity](https://celebs.allwomenstalk.com/reasons-why-we-love-lupita-nyongo/)
 - [demi lovato voice type](https://music.allwomenstalk.com/reasons-you-should-see-demi-lovato-in-concert/)
+- [who is your role model ?](https://celebs.allwomenstalk.com/reasons-marilyn-monroe-is-a-great-role-model/)
 - [fifth harmony better together lyrics](https://music.allwomenstalk.com/reasons-you-should-be-a-fifth-harmony-fan/)
 - [emo adam lambert](https://celebs.allwomenstalk.com/reasons-im-obsessed-with-adam-lambert/)
+- [7 Awesome Reasons to Love Madelaine Hasson ...](https://celebs.allwomenstalk.com/awesome-reasons-to-love-madelaine-hasson/)
 - [francofest](https://movies.allwomenstalk.com/reasons-why-franco-fest-was-the-best-thing-to-have-happened-in-a-while/)
 - [blake lively best friend](https://celebs.allwomenstalk.com/reasons-why-blake-lively-would-make-the-perfect-bff/)
-- [7 Awesome Reasons to Love Madelaine Hasson ...](https://celebs.allwomenstalk.com/awesome-reasons-to-love-madelaine-hasson/)
-- [who is your role model ?](https://celebs.allwomenstalk.com/reasons-marilyn-monroe-is-a-great-role-model/)
 - [is ghost adventures fake](https://movies.allwomenstalk.com/reasons-i-love-watching-ghost-adventures/)
+- [lupita nyong'o ethnicity](https://celebs.allwomenstalk.com/reasons-why-we-love-lupita-nyongo/)
+- [willow summers actor](https://movies.allwomenstalk.com/reasons-why-buffy-summers-is-the-best-female-tv-character-of-all-time/)
 - [10 Reasons to Love Jennifer Aniston ...](https://allwomenstalk.com/10-reasons-to-love-jennifer-aniston/)
 - [10 Reasons to Love Kate Winslet ...](https://allwomenstalk.com/10-reasons-to-love-kate-winslet/)
 

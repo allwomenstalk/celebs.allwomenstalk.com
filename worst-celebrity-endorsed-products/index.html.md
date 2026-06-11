@@ -3,7 +3,7 @@ title: "10 Worst Celebrity Endorsed Products ..."
 description: "The Kardashians and Quick Trim; The KISS Casket; Heidi Klum’s Fruit Flirtations; Paris Hilton’s Creativity Collection; Nelly’s Pimp Juice; More ..."
 url: "https://celebs.allwomenstalk.com/worst-celebrity-endorsed-products/"
 category: "celebs"
-last_updated: "2026-06-07"
+last_updated: "2026-06-11"
 ---
 
 # 10 Worst Celebrity Endorsed Products ...
@@ -77,15 +77,15 @@ Top Image Source: [weheartit.com](https://weheartit.com/entry/18041618)
 ## Related Posts
 
 - [disney fairytale weddings divorce](https://wedding.allwomenstalk.com/celeb-brides-youd-love-to-see-walk-down-the-aisle/)
+- [funny quotes celebrities](https://celebs.allwomenstalk.com/stupidest-quotes-celebrities-have-blurted-out/)
+- [good hearted celebrities](https://celebs.allwomenstalk.com/nicest-celebrities-who-have-a-heart-of-gold/)
 - [what celebrity named their kid pillow](https://celebs.allwomenstalk.com/off-the-wall-celebrity-baby-names/)
+- [best mugshots ever](https://celebs.allwomenstalk.com/top-celebrity-mug-shots/)
+- [celebrity holiday cards](https://allwomenstalk.com/celebrity-holiday-cards-pick-your-favorite/)
 - [jeannine russell age](https://celebs.allwomenstalk.com/celebs-with-killer-curves/)
 - [embarrassing moments celebrities](https://celebs.allwomenstalk.com/most-embarrassing-celeb-moments-youve-got-to-hear-about/)
-- [celebrity holiday cards](https://allwomenstalk.com/celebrity-holiday-cards-pick-your-favorite/)
-- [omar epps skirt](https://celebs.allwomenstalk.com/adorable-celebs-that-should-be-together/)
-- [funny quotes celebrities](https://celebs.allwomenstalk.com/stupidest-quotes-celebrities-have-blurted-out/)
-- [best mugshots ever](https://celebs.allwomenstalk.com/top-celebrity-mug-shots/)
-- [good hearted celebrities](https://celebs.allwomenstalk.com/nicest-celebrities-who-have-a-heart-of-gold/)
 - [is nick cage a good actor](https://movies.allwomenstalk.com/worst-actors-of-our-time/)
+- [omar epps skirt](https://celebs.allwomenstalk.com/adorable-celebs-that-should-be-together/)
 - [7 Hair Products Celebs Love ...](https://allwomenstalk.com/7-hair-products-celebs-love/)
 - [10 Classic Beauty Buys for 2010 ...](https://allwomenstalk.com/classic-beauty-buys-for/)
 

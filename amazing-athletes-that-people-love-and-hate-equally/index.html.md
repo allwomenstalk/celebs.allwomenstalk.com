@@ -3,7 +3,7 @@ title: "9 Amazing Athletes That People Love and Hate Equally ..."
 description: "Peyton Manning; LeBron James; Kobe Bryant; Richard Sherman; Tiger Woods; More ..."
 url: "https://celebs.allwomenstalk.com/amazing-athletes-that-people-love-and-hate-equally/"
 category: "celebs"
-last_updated: "2026-06-07"
+last_updated: "2026-06-11"
 ---
 
 # 9 Amazing Athletes That People Love and Hate Equally ...
@@ -68,16 +68,16 @@ These are all great athletes who are loved and hated just as equally by our spor
 
 ## Related Posts
 
-- [seth rogen skinny](https://celebs.allwomenstalk.com/most-awesome-canadians-in-hollywood/)
-- [celebrity body transformations](https://celebs.allwomenstalk.com/celebrity-body-transformations-that-are-truly-amazing/)
-- [10 Celebrity Couples We Hope Will Never Break up ....](https://celebs.allwomenstalk.com/celebrity-couples-we-hope-will-never-break-up/)
-- [13 Actors Who Started off on SNL ...](https://7fun.net/actors-who-started-off-on-snl/)
-- [7 Celebrities Who Were Fired from Their Own Shows ...](https://celebs.allwomenstalk.com/celebrities-who-were-fired-from-their-own-shows/)
-- [7 Viners to Follow for a Daily Dose of Entertainme...](https://lifestyle.allwomenstalk.com/viners-to-follow-for-a-daily-dose-of-entertainment/)
 - [7 Amusing Internet Personalities We Love to Hate ....](https://funny.allwomenstalk.com/internet-personalities-we-love-to-hate/)
+- [7 Viners to Follow for a Daily Dose of Entertainme...](https://lifestyle.allwomenstalk.com/viners-to-follow-for-a-daily-dose-of-entertainment/)
+- [7 Celebrities Who Were Fired from Their Own Shows ...](https://celebs.allwomenstalk.com/celebrities-who-were-fired-from-their-own-shows/)
+- [10 Celebrity Couples We Hope Will Never Break up ....](https://celebs.allwomenstalk.com/celebrity-couples-we-hope-will-never-break-up/)
 - [7 Amazing Things Done by Unexpected Celebrities .....](https://celebs.allwomenstalk.com/amazing-things-done-by-unexpected-celebrities/)
-- [7 Celebs from ABC's Scandal That Love to Live-Twee...](https://celebs.allwomenstalk.com/celebs-from-abcs-scandal-that-love-to-live-tweet/)
 - [7 Celebrities You Wouldn't Want as Your Best Frien...](https://celebs.allwomenstalk.com/celebrities-you-wouldnt-want-as-your-best-friend/)
+- [celebrity body transformations](https://celebs.allwomenstalk.com/celebrity-body-transformations-that-are-truly-amazing/)
+- [seth rogen skinny](https://celebs.allwomenstalk.com/most-awesome-canadians-in-hollywood/)
+- [13 Actors Who Started off on SNL ...](https://7fun.net/actors-who-started-off-on-snl/)
+- [7 Celebs from ABC's Scandal That Love to Live-Twee...](https://celebs.allwomenstalk.com/celebs-from-abcs-scandal-that-love-to-live-tweet/)
 - [8 Enduring Celebrity Myths ...](https://celebs.allwomenstalk.com/enduring-celebrity-myths/)
 - [10 Celebrities We Love to Hate ...](https://allwomenstalk.com/top-8-most-loved-celebrities/)
 

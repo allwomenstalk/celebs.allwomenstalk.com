@@ -3,7 +3,7 @@ title: "And the Winner of American Idol 9 is ..."
 description: "Stay ahead, stay chic. Trusted guides on beauty, wellness, fashion, and everything that defines today's empowered woman."
 url: "https://celebs.allwomenstalk.com/american-idol-finale-arrivals/"
 category: "celebs"
-last_updated: "2026-06-07"
+last_updated: "2026-06-11"
 ---
 
 # And the Winner of American Idol 9 is ...
@@ -145,16 +145,16 @@ Are you happy that Lee won or would you have rather had someone else win? Honest
 
 ## Related Posts
 
-- [kelly brook tight dress](https://celebs.allwomenstalk.com/kellys-tight-dress/)
 - [kristen dunst](https://celebs.allwomenstalk.com/dunsts-bikini-body/)
-- [megan fox in her 20s](https://celebs.allwomenstalk.com/megan-fox-and-her-pink-underwear/)
-- [jonah hex makeup](https://celebs.allwomenstalk.com/premiere-of-jonah-hex/)
-- [8 Photos of Miley Makes an Appearance ...](https://celebs.allwomenstalk.com/miley-makes-an-appearance/)
-- [kimberly wyatt legs](https://celebs.allwomenstalk.com/wyatts-short-shorts/)
 - [peyton list short hair](https://celebs.allwomenstalk.com/ginnifer-and-peyton-head-to-work/)
-- [gordon ramsay topless](https://celebs.allwomenstalk.com/ramsay-spots-a-nudist/)
+- [jonah hex makeup](https://celebs.allwomenstalk.com/premiere-of-jonah-hex/)
+- [kelly brook tight dress](https://celebs.allwomenstalk.com/kellys-tight-dress/)
+- [kimberly wyatt legs](https://celebs.allwomenstalk.com/wyatts-short-shorts/)
 - [paris hilton soles](https://celebs.allwomenstalk.com/paris-gets-a-lift/)
+- [megan fox in her 20s](https://celebs.allwomenstalk.com/megan-fox-and-her-pink-underwear/)
 - [amy poehler pregnant?](https://celebs.allwomenstalk.com/pregnant-poehler-gets-groceries/)
+- [gordon ramsay topless](https://celebs.allwomenstalk.com/ramsay-spots-a-nudist/)
+- [8 Photos of Miley Makes an Appearance ...](https://celebs.allwomenstalk.com/miley-makes-an-appearance/)
 - [10 Big Celebrity News of 2011 ...](https://celebs.allwomenstalk.com/big-celebrity-news-of/)
 - [Men Disappoint on 'American Idol' ...](https://allwomenstalk.com/men-disappoint-on-american-idol/)
 

@@ -3,7 +3,7 @@ title: "Joan Rivers Had a Serious Health Scare ..."
 description: "Stay ahead, stay chic. Trusted guides on beauty, wellness, fashion, and everything that defines today's empowered woman."
 url: "https://celebs.allwomenstalk.com/joan-rivers-had-a-serious-health-scare/"
 category: "celebs"
-last_updated: "2026-06-07"
+last_updated: "2026-06-11"
 ---
 
 # Joan Rivers Had a Serious Health Scare ...
@@ -20,13 +20,13 @@ Though Joan Rivers is certainly a polarizing figure, she's also an institution i
 
 - [No Forgiveness for Kevin Hart ...](https://celebs.allwomenstalk.com/no-forgiveness-for-kevin-hart/)
 - [Sorry Ladies, Benedict Cumberbatch is Officially o...](https://celebs.allwomenstalk.com/sorry-ladies-benedict-cumberbatch-is-officially-off-the-market/)
-- [Potty-Mouth Princesses Break the Silence on Domest...](https://inspiration.allwomenstalk.com/potty-mouth-princesses-break-the-silence-on-domestic-violence/)
-- [MUST KNOW: Robert Pattinson and Kristen Stewart Le...](https://twilight.allwomenstalk.com/must-know-robert-pattinson-and-kristen-stewart-leave-the-love-nest/)
-- [Paris Hilton Ordered to Return to Court](https://allwomenstalk.com/paris-hilton-ordered-to-return-to-court/)
-- [Jennifer Aniston & Lisa Kudrow Battle It out on "c...](https://funny.allwomenstalk.com/watch-jennifer-aniston-vs-lisa-kudrow-in-celebrity-curse-off/)
 - [Robin Williams' Daughter Has a Message for Women S...](https://inspiration.allwomenstalk.com/robin-williams-daughter-has-a-message-for-women-struggling-with-depression/)
-- [stylo violet amour](https://lifestyle.allwomenstalk.com/a-mother-was-reunited-with-her-baby-in-the-nice-attack-after-a-facebook-post-when-viral/)
+- [Paris Hilton Ordered to Return to Court](https://allwomenstalk.com/paris-hilton-ordered-to-return-to-court/)
+- [MUST KNOW: Robert Pattinson and Kristen Stewart Le...](https://twilight.allwomenstalk.com/must-know-robert-pattinson-and-kristen-stewart-leave-the-love-nest/)
+- [Potty-Mouth Princesses Break the Silence on Domest...](https://inspiration.allwomenstalk.com/potty-mouth-princesses-break-the-silence-on-domestic-violence/)
+- [Jennifer Aniston & Lisa Kudrow Battle It out on "c...](https://funny.allwomenstalk.com/watch-jennifer-aniston-vs-lisa-kudrow-in-celebrity-curse-off/)
 - [riche le stylo skirt](https://allwomenstalk.com/nicole-richie-need-help-on-weight-gain/)
+- [stylo violet amour](https://lifestyle.allwomenstalk.com/a-mother-was-reunited-with-her-baby-in-the-nice-attack-after-a-facebook-post-when-viral/)
 - [Weinstein, Affleck, Et Al: the Grey Area of Harass...](https://lifestyle.allwomenstalk.com/the-grey-area-of-harassment/)
 - [Halle Berry Talks about Her Attempt to Kill Hersel...](https://allwomenstalk.com/halle-berry-talks-about-her-attempt-to-kill-herself/)
 - [Courtney Love Denies Getting Surgery ...](https://allwomenstalk.com/courtney-love-denies-getting-surgery/)

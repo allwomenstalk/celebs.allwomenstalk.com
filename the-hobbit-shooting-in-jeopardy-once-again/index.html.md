@@ -3,7 +3,7 @@ title: "The Hobbit Shooting in Jeopardy Once Again..."
 description: "Stay ahead, stay chic. Trusted guides on beauty, wellness, fashion, and everything that defines today's empowered woman."
 url: "https://celebs.allwomenstalk.com/the-hobbit-shooting-in-jeopardy-once-again/"
 category: "celebs"
-last_updated: "2026-06-07"
+last_updated: "2026-06-11"
 ---
 
 # The Hobbit Shooting in Jeopardy Once Again...
@@ -24,16 +24,16 @@ The first instalment of the film is set for release in late 2012 and will be fol
 
 ## Related Posts
 
-- [favorite vines](https://gardening.allwomenstalk.com/5-of-my-favorite-vines/)
-- [New Year Bash Wrap-up: Part 2 ...](https://celebs.allwomenstalk.com/new-year-bash-wrap-up-part-2/)
-- [Cook's Love for Mother Earth Revealed...](https://celebs.allwomenstalk.com/cooks-love-for-mother-earth-revealed/)
-- [cool butterflies](https://gardening.allwomenstalk.com/5-cool-butterflies/)
-- [7 People Who Shouldn't Have Been Assassinated ...](https://celebs.allwomenstalk.com/7-people-who-shouldnt-have-been-assassinated/)
 - [New Year Bash Wrap-up: Part 1 ...](https://celebs.allwomenstalk.com/new-year-bash-wrap-up-part-1/)
-- [awesome birds](https://gardening.allwomenstalk.com/5-awesome-birds/)
+- [Cook's Love for Mother Earth Revealed...](https://celebs.allwomenstalk.com/cooks-love-for-mother-earth-revealed/)
 - [mythbusters obama](https://celebs.allwomenstalk.com/obama-on-mythbusters/)
+- [7 People Who Shouldn't Have Been Assassinated ...](https://celebs.allwomenstalk.com/7-people-who-shouldnt-have-been-assassinated/)
+- [favorite vines](https://gardening.allwomenstalk.com/5-of-my-favorite-vines/)
 - [best rags to riches stories](https://celebs.allwomenstalk.com/best-from-rags-to-riches-stories/)
 - [dadt pink](https://celebs.allwomenstalk.com/stars-come-out-in-support-of-dadt-repeal/)
+- [cool butterflies](https://gardening.allwomenstalk.com/5-cool-butterflies/)
+- [New Year Bash Wrap-up: Part 2 ...](https://celebs.allwomenstalk.com/new-year-bash-wrap-up-part-2/)
+- [awesome birds](https://gardening.allwomenstalk.com/5-awesome-birds/)
 - [Harry Potter to Cast a Spell in Southern Californi...](https://travel.allwomenstalk.com/could-it-be-magic-harry-potter-to-cast-a-spell-in-southern-california/)
 - [The Oscar Race is on...](https://celebs.allwomenstalk.com/the-oscar-race-is-on/)
 

@@ -3,7 +3,7 @@ title: "7 Gorgeous WAGS at the World Cup ..."
 description: "Irina Shayk; Shakira; Jourdan Dunn; Laia Grassi; Evangelina Anderson; More ..."
 url: "https://celebs.allwomenstalk.com/gorgeous-wags-at-the-world-cup/"
 category: "celebs"
-last_updated: "2026-06-07"
+last_updated: "2026-06-11"
 ---
 
 # 7 Gorgeous WAGS at the World Cup ...
@@ -56,15 +56,15 @@ These are just a few of the WAGS at the World Cup who will capture the eye of ph
 
 ## Related Posts
 
-- [career in dancing](https://lifestyle.allwomenstalk.com/highs-and-lows-of-a-career-in-dancing/)
-- [jonah hill jimmy kimmel](https://funny.allwomenstalk.com/hilarious-jonah-hill-interviews-thatll-keep-you-laughing/)
-- [disney voice over](https://movies.allwomenstalk.com/best-disney-voice-over-performances/)
-- [@love jade teen](https://lifestyle.allwomenstalk.com/mysterious-creatures-that-only-exist-in-urban-legends/)
-- [unexpected nudity in movies](https://celebs.allwomenstalk.com/cases-of-embarrassing-accidental-nudity-caught-on-camera/)
-- [easiest directors to work with](https://movies.allwomenstalk.com/of-the-worst-directors-to-work-with/)
-- [renfaire characters](https://funny.allwomenstalk.com/interesting-people-youll-see-at-a-renaissance-fair/)
 - [fictional businesses](https://money.allwomenstalk.com/fictional-companies-we-wish-were-real/)
+- [disney voice over](https://movies.allwomenstalk.com/best-disney-voice-over-performances/)
+- [easiest directors to work with](https://movies.allwomenstalk.com/of-the-worst-directors-to-work-with/)
 - [anime for all ages](https://movies.allwomenstalk.com/anime-shows-to-enjoy-at-any-age/)
+- [jonah hill jimmy kimmel](https://funny.allwomenstalk.com/hilarious-jonah-hill-interviews-thatll-keep-you-laughing/)
+- [renfaire characters](https://funny.allwomenstalk.com/interesting-people-youll-see-at-a-renaissance-fair/)
+- [unexpected nudity in movies](https://celebs.allwomenstalk.com/cases-of-embarrassing-accidental-nudity-caught-on-camera/)
+- [career in dancing](https://lifestyle.allwomenstalk.com/highs-and-lows-of-a-career-in-dancing/)
+- [@love jade teen](https://lifestyle.allwomenstalk.com/mysterious-creatures-that-only-exist-in-urban-legends/)
 - [down east music festival](https://movies.allwomenstalk.com/things-we-learned-from-historys-down-east-dickering/)
 - [8 World Famous Sports Teams ...](https://celebs.allwomenstalk.com/8-world-famous-sports-teams/)
 - [7 World Famous Sporting Trophies ...](https://lifestyle.allwomenstalk.com/world-famous-sporting-trophies/)

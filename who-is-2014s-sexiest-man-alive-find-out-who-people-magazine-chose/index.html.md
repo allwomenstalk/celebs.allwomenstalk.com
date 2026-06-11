@@ -3,7 +3,7 @@ title: "Who is 2014's Sexiest Man Alive? Find out Who People Magazine Chose!"
 description: "Stay ahead, stay chic. Trusted guides on beauty, wellness, fashion, and everything that defines today's empowered woman."
 url: "https://celebs.allwomenstalk.com/who-is-2014s-sexiest-man-alive-find-out-who-people-magazine-chose/"
 category: "celebs"
-last_updated: "2026-06-07"
+last_updated: "2026-06-11"
 ---
 
 # Who is 2014's Sexiest Man Alive? Find out Who People Magazine Chose!
@@ -22,16 +22,16 @@ Previous winners include George Clooney, Brad Pitt, Hugh Jackman, Johnny Depp, B
 
 ## Related Posts
 
+- [The Best-Dressed Men at the 2015 OScars ...](https://fashion.allwomenstalk.com/the-best-dressed-men-at-the-oscars/)
+- [Beyonce, Sam Smith & Pharrell Lead in Grammy Nods ...](https://music.allwomenstalk.com/beyonce-sam-smith-pharrell-lead-in-grammy-nods-see-all-nominees-here/)
+- [9 Shockingly Awful Looks from the 2015 Grammys ...](https://celebs.allwomenstalk.com/shockingly-awful-looks-from-the-grammys/)
 - [Relive the Best Red Carpet Fashion from the Latin ...](https://fashion.allwomenstalk.com/relive-the-best-red-carpet-fashion-from-the-latin-grammys/)
 - [Critics' Choice Nominations Announced for 2015 Awa...](https://movies.allwomenstalk.com/critics-choice-nominations-announced-for-award-show/)
 - [Here Are the Best Dressed Celebrities at the 2015 ...](https://fashion.allwomenstalk.com/here-are-the-best-dressed-celebrities-at-the-golden-globes/)
+- [Who Was Nominated for the 2015 Golden Globes? Full...](https://movies.allwomenstalk.com/who-was-nominated-for-the-golden-globes-full-list-here/)
 - [The Best-Dressed Women at the Academy Awards ...](https://fashion.allwomenstalk.com/the-best-dressed-women-at-the-academy-awards/)
 - [And the Winner is – Best Moments from the Oscars 2...](https://bilbr.com/and-the-winner-is-best-moments-from-the-oscars/)
-- [The Best-Dressed Men at the 2015 OScars ...](https://fashion.allwomenstalk.com/the-best-dressed-men-at-the-oscars/)
 - [7 Best Looks from the 2015 Grammy Awards ...](https://fashion.allwomenstalk.com/best-looks-from-the-grammy-awards/)
-- [9 Shockingly Awful Looks from the 2015 Grammys ...](https://celebs.allwomenstalk.com/shockingly-awful-looks-from-the-grammys/)
-- [Beyonce, Sam Smith & Pharrell Lead in Grammy Nods ...](https://music.allwomenstalk.com/beyonce-sam-smith-pharrell-lead-in-grammy-nods-see-all-nominees-here/)
-- [Who Was Nominated for the 2015 Golden Globes? Full...](https://movies.allwomenstalk.com/who-was-nominated-for-the-golden-globes-full-list-here/)
 - [Sexiest Men Alive up for Auction ...](https://celebs.allwomenstalk.com/sexiest-men-alive-up-for-auction/)
 - [Justin Timberlake - New DETAILS Coverboy!](https://allwomenstalk.com/justin-timberlake-new-details-coverboy/)
 

@@ -3,7 +3,7 @@ title: "40 and Fabulous: 7 Female Celebrities That Look Better than Ever ..."
 description: "Demi Moore; Salma Hayek; Angelina Jolie; Halle Berry; Toni Braxton; More ..."
 url: "https://celebs.allwomenstalk.com/and-fabulous-7-female-celebrities-that-look-better-than-ever/"
 category: "celebs"
-last_updated: "2026-06-07"
+last_updated: "2026-06-11"
 ---
 
 # 40 and Fabulous: 7 Female Celebrities That Look Better than Ever ...
@@ -58,15 +58,15 @@ Top Photo Credit: [Tiger Fénix](https://www.flickr.com/photos/tigerfenix/346340
 
 ## Related Posts
 
-- [Sexiest Men Alive up for Auction ...](https://celebs.allwomenstalk.com/sexiest-men-alive-up-for-auction/)
-- [ray kroc's wives](https://celebs.allwomenstalk.com/celebrities-with-addictions/)
+- [current events with celebrities](https://celebs.allwomenstalk.com/best-celebrity-gossip-websites/)
+- [sarah jessica parker south oark](https://celebs.allwomenstalk.com/favourite-south-park-celebrity-targets/)
+- [8 Celebrities Who Have Aged Beautifully ...](https://celebs.allwomenstalk.com/celebrities-who-have-aged-beautifully/)
+- [celebrity news 2011](https://celebs.allwomenstalk.com/big-celebrity-news-of/)
+- [highest earning celebrities](https://celebs.allwomenstalk.com/highest-earning-celebrities-of/)
 - [cute guys wearing skirts](https://celebs.allwomenstalk.com/sexiest-celebrity-men-in-skirts/)
 - [most popular person](https://celebs.allwomenstalk.com/gorgeous-full-figured-celebrities/)
-- [sarah jessica parker south oark](https://celebs.allwomenstalk.com/favourite-south-park-celebrity-targets/)
-- [current events with celebrities](https://celebs.allwomenstalk.com/best-celebrity-gossip-websites/)
-- [highest earning celebrities](https://celebs.allwomenstalk.com/highest-earning-celebrities-of/)
-- [celebrity news 2011](https://celebs.allwomenstalk.com/big-celebrity-news-of/)
-- [8 Celebrities Who Have Aged Beautifully ...](https://celebs.allwomenstalk.com/celebrities-who-have-aged-beautifully/)
+- [ray kroc's wives](https://celebs.allwomenstalk.com/celebrities-with-addictions/)
+- [Sexiest Men Alive up for Auction ...](https://celebs.allwomenstalk.com/sexiest-men-alive-up-for-auction/)
 - [celebrity cancer survivors](https://celebs.allwomenstalk.com/wonderfully-remarkable-celebrity-cancer-survivor-stories/)
 - [20 Fabulous Celebrity Hair Cuts ...](https://hair.allwomenstalk.com/fabulous-celebrity-hair-cuts/)
 - [15 Most Fabulous "Real Size" Celebrities ...](https://allwomenstalk.com/10-most-fabulous-real-size-celebrities/)

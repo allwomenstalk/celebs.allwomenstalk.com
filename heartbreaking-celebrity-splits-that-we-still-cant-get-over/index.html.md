@@ -3,7 +3,7 @@ title: "7 Heartbreaking Celebrity Splits That We Still Can't Get over ..."
 description: "Orlando Bloom and Miranda Kerr; Michael Douglas and Catherine Zeta-Jones; Brad Pitt and Jennifer Aniston; Ryan Gosling and Rachel McAdams; Seal and Heidi Klum; More ..."
 url: "https://celebs.allwomenstalk.com/heartbreaking-celebrity-splits-that-we-still-cant-get-over/"
 category: "celebs"
-last_updated: "2026-06-07"
+last_updated: "2026-06-11"
 ---
 
 # 7 Heartbreaking Celebrity Splits That We Still Can't Get over ...
@@ -56,16 +56,16 @@ It’s easy to get caught up in the Hollywood gossip, but these splits are compl
 
 ## Related Posts
 
-- [7 Celebrities Who Were Fired from Their Own Shows ...](https://celebs.allwomenstalk.com/celebrities-who-were-fired-from-their-own-shows/)
-- [celebrity body transformations](https://celebs.allwomenstalk.com/celebrity-body-transformations-that-are-truly-amazing/)
-- [9 Amazing Athletes That People Love and Hate Equal...](https://celebs.allwomenstalk.com/amazing-athletes-that-people-love-and-hate-equally/)
-- [7 Amazing Things Done by Unexpected Celebrities .....](https://celebs.allwomenstalk.com/amazing-things-done-by-unexpected-celebrities/)
 - [7 Breakout Actors to Watch out for in 2014 ...](https://celebs.allwomenstalk.com/breakout-actors-to-watch-out-for-in/)
 - [7 Tenacious Rumors about the Kardashians ...](https://celebs.allwomenstalk.com/tenacious-rumors-about-the-kardashians/)
 - [11 Super Sweet Celebrity Couples in 2014 ...](https://celebs.allwomenstalk.com/super-sweet-celebrity-couples-in/)
+- [celebrity body transformations](https://celebs.allwomenstalk.com/celebrity-body-transformations-that-are-truly-amazing/)
+- [7 Celebrities Who Were Fired from Their Own Shows ...](https://celebs.allwomenstalk.com/celebrities-who-were-fired-from-their-own-shows/)
 - [seth rogen skinny](https://celebs.allwomenstalk.com/most-awesome-canadians-in-hollywood/)
-- [7 Celebrity Feuds That Just Wont Stop ...](https://celebs.allwomenstalk.com/celebrity-feuds-that-just-wont-stop/)
+- [7 Amazing Things Done by Unexpected Celebrities .....](https://celebs.allwomenstalk.com/amazing-things-done-by-unexpected-celebrities/)
+- [9 Amazing Athletes That People Love and Hate Equal...](https://celebs.allwomenstalk.com/amazing-athletes-that-people-love-and-hate-equally/)
 - [7 Amusing Internet Personalities We Love to Hate ....](https://funny.allwomenstalk.com/internet-personalities-we-love-to-hate/)
+- [7 Celebrity Feuds That Just Wont Stop ...](https://celebs.allwomenstalk.com/celebrity-feuds-that-just-wont-stop/)
 - [7 Biggest Celebrity Weddings ...](https://wedding.allwomenstalk.com/biggest-celebrity-weddings/)
 - [7 Recent Celebrity Breakups ...](https://celebs.allwomenstalk.com/recent-celebrity-breakups/)
 

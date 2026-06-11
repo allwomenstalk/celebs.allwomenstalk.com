@@ -3,7 +3,7 @@ title: "20 Gorgeous Celebrities Both Men and Women Drool over ..."
 description: "Johnny Depp; Olivia Wilde; Brad Pitt; Kim Kardashian; Will Smith; More ..."
 url: "https://celebs.allwomenstalk.com/gorgeous-celebrities-both-men-and-women-drool-over/"
 category: "celebs"
-last_updated: "2026-06-07"
+last_updated: "2026-06-11"
 ---
 
 # 20 Gorgeous Celebrities Both Men and Women Drool over ...
@@ -134,15 +134,15 @@ Did you find your favorite celeb on this list of gorgeous celebrities? It was ha
 
 ## Related Posts
 
-- [celebrities in trouble with the law](https://celebs.allwomenstalk.com/celebrities-who-have-been-in-trouble-with-the-law/)
-- [long haired british comedian](https://celebs.allwomenstalk.com/hottest-famous-guys-brits-vs-americans/)
-- [celebs with rosacea](https://skincare.allwomenstalk.com/hot-celebs-with-skincare-issues/)
-- [is natalie portman smart](https://celebs.allwomenstalk.com/super-smart-celebrities/)
 - [sexiest comedian](https://celebs.allwomenstalk.com/hottest-comedians/)
-- [edward cullen sixpack](https://celebs.allwomenstalk.com/top-hot-actors-who-should-play-christian-grey/)
-- [best front men](https://celebs.allwomenstalk.com/hottest-band-front-men/)
+- [is natalie portman smart](https://celebs.allwomenstalk.com/super-smart-celebrities/)
+- [celebrities in trouble with the law](https://celebs.allwomenstalk.com/celebrities-who-have-been-in-trouble-with-the-law/)
 - [glitter bodysuits](https://celebs.allwomenstalk.com/best-sparkly-bodysuits-on-celebrities/)
 - [celebrity girl crush list](https://celebs.allwomenstalk.com/fabulous-celebrities-its-okay-to-have-a-girl-crush-on/)
+- [celebs with rosacea](https://skincare.allwomenstalk.com/hot-celebs-with-skincare-issues/)
+- [edward cullen sixpack](https://celebs.allwomenstalk.com/top-hot-actors-who-should-play-christian-grey/)
+- [best front men](https://celebs.allwomenstalk.com/hottest-band-front-men/)
+- [long haired british comedian](https://celebs.allwomenstalk.com/hottest-famous-guys-brits-vs-americans/)
 - [bezos wife](https://celebs.allwomenstalk.com/famous-people-who-are-beautiful-on-the-inside/)
 - [10 Hottest Men in Hollywood ...](https://celebs.allwomenstalk.com/hottest-men-in-hollywood/)
 - [10 Gorgeous Full-Figured Celebrities ...](https://celebs.allwomenstalk.com/gorgeous-full-figured-celebrities/)

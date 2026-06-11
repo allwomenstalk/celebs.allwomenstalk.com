@@ -3,7 +3,7 @@ title: "12 Hottest Famous Guys (Brits Vs. Americans) ..."
 description: "Ryan Lochte – Hottest American Athlete; David Beckham – Hottest British Athlete; ‘Nsync – Hottest American Boy Band; One Direction – Hottest British Boy Band; Channing Tatum – Hottest American Male Stripper; More ..."
 url: "https://celebs.allwomenstalk.com/hottest-famous-guys-brits-vs-americans/"
 category: "celebs"
-last_updated: "2026-06-07"
+last_updated: "2026-06-11"
 ---
 
 # 12 Hottest Famous Guys \(Brits Vs. Americans\) ...
@@ -100,16 +100,16 @@ Top Image Source: [stylefrizz.com](http://stylefrizz.com/201205/david-beckhams-e
 
 ## Related Posts
 
+- [girl celeb crushes](https://movies.allwomenstalk.com/celebrity-girl-crushes-on-tv/)
+- [ed begley jnr](https://celebs.allwomenstalk.com/celebrities-who-care-about-the-environment/)
 - [famous eccentric person](https://celebs.allwomenstalk.com/most-eccentric-pop-stars/)
 - [role models for teenagers](https://celebs.allwomenstalk.com/best-tv-teen-role-models/)
-- [ed begley jnr](https://celebs.allwomenstalk.com/celebrities-who-care-about-the-environment/)
-- [famous couples in tv](https://movies.allwomenstalk.com/of-the-best-tv-couples/)
+- [zoe perry smoking](https://beauty.allwomenstalk.com/chic-celebrities-to-get-beauty-inspiration-from/)
 - [big easy baddies](https://movies.allwomenstalk.com/top-tv-baddies-we-love/)
-- [famous person who learned from their mistakes](https://celebs.allwomenstalk.com/celebrities-who-blew-it-and-how-not-to-repeat-their-mistakes/)
 - [famous celebrity haircuts](https://celebs.allwomenstalk.com/shocking-celebrity-haircuts/)
 - [hot irish actor](https://celebs.allwomenstalk.com/most-talented-irish-actors/)
-- [girl celeb crushes](https://movies.allwomenstalk.com/celebrity-girl-crushes-on-tv/)
-- [zoe perry smoking](https://beauty.allwomenstalk.com/chic-celebrities-to-get-beauty-inspiration-from/)
+- [famous person who learned from their mistakes](https://celebs.allwomenstalk.com/celebrities-who-blew-it-and-how-not-to-repeat-their-mistakes/)
+- [famous couples in tv](https://movies.allwomenstalk.com/of-the-best-tv-couples/)
 - [10 Hottest Celebrity Vacation Spots ...](https://travel.allwomenstalk.com/hottest-celebrity-vacation-spots/)
 - [10 Amazing British Movie Stars ...](https://movies.allwomenstalk.com/amazing-british-movie-stars/)
 

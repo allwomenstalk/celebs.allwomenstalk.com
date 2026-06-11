@@ -3,7 +3,7 @@ title: "21 Celebrity Couples Who Split in 2018 ..."
 description: "Jennifer Aniston and Justin Theroux; Michael Sheen and Sarah Silverman; Monica Potter and Daniel Christopher Allison; Elon Musk and Amber Heard; Julie Bowen and Scott Phillips; More ..."
 url: "https://celebs.allwomenstalk.com/celebrity-couples-who-split-in-2018/"
 category: "celebs"
-last_updated: "2026-06-07"
+last_updated: "2026-06-11"
 ---
 
 # 21 Celebrity Couples Who Split in 2018 ...
@@ -140,16 +140,16 @@ For a while it seemed as though these two were set to become the newest sports/a
 
 ## Related Posts
 
+- [greasy bear davis](https://allwomenstalk.com/hollywood-march-madness-nicole-v-paris-jacko-v-greasy-bear/)
 - [Stars W/ Deadly Eating Disorders!](https://allwomenstalk.com/stars-w-deadly-eating-disorders/)
-- [best mym models](https://inspiration.allwomenstalk.com/meet-your-model-exclusive-content-from-your-favourite-personalities/)
-- [Anyone Want to Pick up a Celebrity?](https://allwomenstalk.com/anyone-want-to-pick-up-a-celebrity/)
-- [riche le stylo eye primped and](https://allwomenstalk.com/stars-w-deadly-eating-disorders-popbytes/)
 - [robert downey jr oscar winner](https://movies.allwomenstalk.com/incredible-actors-who-are-yet-to-win-an-oscar/)
-- [More on Celebs & Their Weight ...](https://allwomenstalk.com/more-on-celebs-their-weight/)
 - [brazilian asian baby](https://celebs.allwomenstalk.com/dont-hate-me-cause-im-cute-adorable-celeb-kids-we-love/)
 - [gal gadot brother](https://celebs.allwomenstalk.com/yaron-versano/)
 - [celebrities with assault charges](https://allwomenstalk.com/celebs-accused-with-charges-of-sexual-assault/)
-- [greasy bear davis](https://allwomenstalk.com/hollywood-march-madness-nicole-v-paris-jacko-v-greasy-bear/)
+- [riche le stylo eye primped and](https://allwomenstalk.com/stars-w-deadly-eating-disorders-popbytes/)
+- [best mym models](https://inspiration.allwomenstalk.com/meet-your-model-exclusive-content-from-your-favourite-personalities/)
+- [More on Celebs & Their Weight ...](https://allwomenstalk.com/more-on-celebs-their-weight/)
+- [Anyone Want to Pick up a Celebrity?](https://allwomenstalk.com/anyone-want-to-pick-up-a-celebrity/)
 - [8 Famous Hollywood Divorces ...](https://celebs.allwomenstalk.com/famous-hollywood-divorces/)
 - [20 Shortest Celebrity Marriages ...](https://allwomenstalk.com/20-shortest-celebrity-marriages/)
 

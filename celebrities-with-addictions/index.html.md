@@ -3,7 +3,7 @@ title: "7 Celebrities with Addictions ..."
 description: "Ray Kroc; Johnny Depp; Dick Van Dyke; Buzz Aldrin; Leonard Nimoy; More ..."
 url: "https://celebs.allwomenstalk.com/celebrities-with-addictions/"
 category: "celebs"
-last_updated: "2026-06-07"
+last_updated: "2026-06-11"
 ---
 
 # 7 Celebrities with Addictions ...
@@ -58,16 +58,16 @@ Top Photo Credit: [oko-kino.ru](http://oko-kino.ru/Akteru/DG-D-1.jpg)
 
 ## Related Posts
 
-- [bob hope chrysler classic](https://allwomenstalk.com/celebrity-stalking-at-the-bob-hope-chrysler-classic/)
-- [current events with celebrities](https://celebs.allwomenstalk.com/best-celebrity-gossip-websites/)
-- [sarah jessica parker south oark](https://celebs.allwomenstalk.com/favourite-south-park-celebrity-targets/)
+- [cute guys wearing skirts](https://celebs.allwomenstalk.com/sexiest-celebrity-men-in-skirts/)
+- [most popular person](https://celebs.allwomenstalk.com/gorgeous-full-figured-celebrities/)
 - [celebrity news 2011](https://celebs.allwomenstalk.com/big-celebrity-news-of/)
 - [Sexiest Men Alive up for Auction ...](https://celebs.allwomenstalk.com/sexiest-men-alive-up-for-auction/)
-- [most famous affairs](https://love.allwomenstalk.com/extraordinary-famous-love-affairs/)
-- [sundance film festival outfits](https://allwomenstalk.com/star-sightings-at-the-sundance-film-festival-january-18-22/)
-- [most popular person](https://celebs.allwomenstalk.com/gorgeous-full-figured-celebrities/)
-- [cute guys wearing skirts](https://celebs.allwomenstalk.com/sexiest-celebrity-men-in-skirts/)
 - [celebrity cancer survivors](https://celebs.allwomenstalk.com/wonderfully-remarkable-celebrity-cancer-survivor-stories/)
+- [sarah jessica parker south oark](https://celebs.allwomenstalk.com/favourite-south-park-celebrity-targets/)
+- [sundance film festival outfits](https://allwomenstalk.com/star-sightings-at-the-sundance-film-festival-january-18-22/)
+- [bob hope chrysler classic](https://allwomenstalk.com/celebrity-stalking-at-the-bob-hope-chrysler-classic/)
+- [current events with celebrities](https://celebs.allwomenstalk.com/best-celebrity-gossip-websites/)
+- [most famous affairs](https://love.allwomenstalk.com/extraordinary-famous-love-affairs/)
 - [7 of My Favorite Celebrities ...](https://celebs.allwomenstalk.com/7-of-my-favorite-celebrities/)
 - [7 Women Celebrities Who Smoke ...](https://celebs.allwomenstalk.com/women-celebrities-who-smoke/)
 

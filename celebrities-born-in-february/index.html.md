@@ -3,7 +3,7 @@ title: "Celebs Born in February (Part 1 of 4) ..."
 description: "Michael C. Hall (Feb 1.); Shakira (Feb 2.); Isla Fisher (Feb 3.); Alice Cooper (Feb. 4); Michael Sheen (Feb 5.); More ..."
 url: "https://celebs.allwomenstalk.com/celebrities-born-in-february/"
 category: "celebs"
-last_updated: "2026-06-07"
+last_updated: "2026-06-11"
 ---
 
 # Celebs Born in February \(Part 1 of 4\) ...
@@ -56,16 +56,16 @@ So these are the first seven celebrities born in February. Make sure to watch ou
 
 ## Related Posts
 
-- [celebrities born on february 2](https://celebs.allwomenstalk.com/celebrities-born-in-february-2/)
-- [lake como celebrities](https://travel.allwomenstalk.com/where-celebrities-go-on-vacation/)
 - [what toothpaste do celebrities use](https://beauty.allwomenstalk.com/perfect-ways-to-get-a-celebrity-smile/)
-- [90s heartthrobs actors](https://celebs.allwomenstalk.com/heartthrobs-of-the-1990s/)
-- [celebrities born february 18](https://celebs.allwomenstalk.com/celebrities-born-in-february-3/)
-- [laurence fishburne ex-wife](https://celebs.allwomenstalk.com/celebrity-couples-who-split-in-2018/)
-- [robert downey jr oscar winner](https://movies.allwomenstalk.com/incredible-actors-who-are-yet-to-win-an-oscar/)
-- [celebrities born on february 4th](https://celebs.allwomenstalk.com/celebrities-born-in-february-4/)
-- [wokest celebrities](https://celebs.allwomenstalk.com/who-are-the-most-charitable-celebrities/)
+- [lake como celebrities](https://travel.allwomenstalk.com/where-celebrities-go-on-vacation/)
 - [brazilian asian baby](https://celebs.allwomenstalk.com/dont-hate-me-cause-im-cute-adorable-celeb-kids-we-love/)
+- [celebrities born on february 2](https://celebs.allwomenstalk.com/celebrities-born-in-february-2/)
+- [wokest celebrities](https://celebs.allwomenstalk.com/who-are-the-most-charitable-celebrities/)
+- [robert downey jr oscar winner](https://movies.allwomenstalk.com/incredible-actors-who-are-yet-to-win-an-oscar/)
+- [celebrities born february 18](https://celebs.allwomenstalk.com/celebrities-born-in-february-3/)
+- [celebrities born on february 4th](https://celebs.allwomenstalk.com/celebrities-born-in-february-4/)
+- [laurence fishburne ex-wife](https://celebs.allwomenstalk.com/celebrity-couples-who-split-in-2018/)
+- [90s heartthrobs actors](https://celebs.allwomenstalk.com/heartthrobs-of-the-1990s/)
 - [7 Inspiring Celebrities of 2011 ...](https://celebs.allwomenstalk.com/inspiring-celebrities-of/)
 - [10 Gorgeous Full-Figured Celebrities ...](https://celebs.allwomenstalk.com/gorgeous-full-figured-celebrities/)
 

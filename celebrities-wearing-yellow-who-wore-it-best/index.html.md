@@ -3,7 +3,7 @@ title: "10 Celebrities Wearing Yellow – Who Wore It Best?"
 description: "Kate Mara; Olivia Palermo; Jessica Chastain; Miranda Kerr; Kristen Stewart; More ..."
 url: "https://celebs.allwomenstalk.com/celebrities-wearing-yellow-who-wore-it-best/"
 category: "celebs"
-last_updated: "2026-06-07"
+last_updated: "2026-06-11"
 ---
 
 # 10 Celebrities Wearing Yellow – Who Wore It Best?
@@ -74,16 +74,16 @@ Yellow is such a fun and cheery colour. These celebrities show that it can look 
 
 ## Related Posts
 
-- [celebs in red dressed](https://celebs.allwomenstalk.com/celebrities-in-red-dresses-who-wore-it-best/)
-- [celeb skirt](https://celebs.allwomenstalk.com/celebrities-in-pencil-skirts-who-wore-it-best/)
-- [crop top actress](https://celebs.allwomenstalk.com/celebrities-in-crop-tops-who-wore-it-best/)
-- [simple red carpet dresses](https://celebs.allwomenstalk.com/of-the-craziest-red-carpet-dresses-of-all-time/)
-- [celebrities clothes](https://celebs.allwomenstalk.com/celebrities-in-chequered-clothes-who-wore-it-best/)
-- [characters with a green jacket](https://celebs.allwomenstalk.com/celebrities-wearing-army-green-jackets-who-wore-it-best/)
-- [celebrities suit](https://celebs.allwomenstalk.com/celebrities-rocking-the-power-suit-who-wore-it-best/)
-- [celebrities wearing dresses](https://celebs.allwomenstalk.com/celebrities-in-cut-out-dresses-who-wore-it-best/)
-- [celebrity silver dress](https://celebs.allwomenstalk.com/celebrities-in-metallic-clothes-who-wore-it-best/)
 - [orange theme party outfit](https://celebs.allwomenstalk.com/celebrities-in-little-orange-dresses-who-wore-it-best/)
+- [celebrities suit](https://celebs.allwomenstalk.com/celebrities-rocking-the-power-suit-who-wore-it-best/)
+- [celebs in red dressed](https://celebs.allwomenstalk.com/celebrities-in-red-dresses-who-wore-it-best/)
+- [simple red carpet dresses](https://celebs.allwomenstalk.com/of-the-craziest-red-carpet-dresses-of-all-time/)
+- [celebrity silver dress](https://celebs.allwomenstalk.com/celebrities-in-metallic-clothes-who-wore-it-best/)
+- [characters with a green jacket](https://celebs.allwomenstalk.com/celebrities-wearing-army-green-jackets-who-wore-it-best/)
+- [celeb skirt](https://celebs.allwomenstalk.com/celebrities-in-pencil-skirts-who-wore-it-best/)
+- [celebrities clothes](https://celebs.allwomenstalk.com/celebrities-in-chequered-clothes-who-wore-it-best/)
+- [crop top actress](https://celebs.allwomenstalk.com/celebrities-in-crop-tops-who-wore-it-best/)
+- [celebrities wearing dresses](https://celebs.allwomenstalk.com/celebrities-in-cut-out-dresses-who-wore-it-best/)
 - [10 Celebrities Wearing Dungarees – Who Wore It Bes...](https://celebs.allwomenstalk.com/celebrities-wearing-dungarees-who-wore-it-best/)
 - [10 Celebrities Wearing Striped Dresses – Who Wore ...](https://celebs.allwomenstalk.com/celebrities-wearing-striped-dresses-who-wore-it-best/)
 

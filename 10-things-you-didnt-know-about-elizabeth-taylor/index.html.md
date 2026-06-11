@@ -3,7 +3,7 @@ title: "10 Things You Didn't Know about Elizabeth Taylor ..."
 description: "Her Continuous Back Problems Stemmed from Making the Movie National Velvet; Portraying Cleopatra in the Movie of the Same Name Made Taylor the Highest Paid Actress in 1960; She Was Once Married to Paris Hilton’s Granduncle; Queen Elizabeth II Made Liz a Dame; She Had Two Rows of Eyelashes; More ..."
 url: "https://celebs.allwomenstalk.com/10-things-you-didnt-know-about-elizabeth-taylor/"
 category: "celebs"
-last_updated: "2026-06-07"
+last_updated: "2026-06-11"
 ---
 
 # 10 Things You Didn't Know about Elizabeth Taylor ...
@@ -50,16 +50,16 @@ Top Photo Credit: [manfrys](https://www.flickr.com/photos/manfrys/2134591387/)
 
 ## Related Posts
 
-- [5 facts about roses](https://gardening.allwomenstalk.com/5-facts-on-roses/)
-- [7 Amazing Facts about Your Sense of Smell ...](https://health.allwomenstalk.com/amazing-facts-about-your-sense-of-smell/)
-- [beetle trivia](https://gardening.allwomenstalk.com/5-cool-facts-on-beetles/)
-- [ladybug description](https://gardening.allwomenstalk.com/facts-on-the-ladybug/)
-- [7 Things You Didn't Know about Parasites ...](https://health.allwomenstalk.com/7-things-you-didnt-know-about-parasites/)
-- [7 Facts on Breasts ...](https://health.allwomenstalk.com/7-facts-on-breasts/)
-- [who is tiffany from tiffany and co](https://jewelry.allwomenstalk.com/7-interesting-facts-about-tiffany-co-you-may-not-know/)
-- [9 Uncommon Facts about the Human Body ...](https://health.allwomenstalk.com/uncommon-facts-about-the-human-body/)
 - [facts about lemons](https://cooking.allwomenstalk.com/7-facts-about-lemons/)
 - [7 Facts about Coffee ...](https://lifestyle.allwomenstalk.com/7-facts-about-coffee/)
+- [beetle trivia](https://gardening.allwomenstalk.com/5-cool-facts-on-beetles/)
+- [who is tiffany from tiffany and co](https://jewelry.allwomenstalk.com/7-interesting-facts-about-tiffany-co-you-may-not-know/)
+- [7 Amazing Facts about Your Sense of Smell ...](https://health.allwomenstalk.com/amazing-facts-about-your-sense-of-smell/)
+- [ladybug description](https://gardening.allwomenstalk.com/facts-on-the-ladybug/)
+- [7 Facts on Breasts ...](https://health.allwomenstalk.com/7-facts-on-breasts/)
+- [9 Uncommon Facts about the Human Body ...](https://health.allwomenstalk.com/uncommon-facts-about-the-human-body/)
+- [7 Things You Didn't Know about Parasites ...](https://health.allwomenstalk.com/7-things-you-didnt-know-about-parasites/)
+- [5 facts about roses](https://gardening.allwomenstalk.com/5-facts-on-roses/)
 - [5 Facts on Bella Swan ...](https://twilight.allwomenstalk.com/5-facts-on-bella-swan/)
 - [10 Things You Didn’t Know about Jessica Alba](https://allwomenstalk.com/10-things-you-didnt-know-about-jessica-alba/)
 

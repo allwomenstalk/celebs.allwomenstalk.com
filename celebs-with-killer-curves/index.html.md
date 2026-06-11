@@ -3,7 +3,7 @@ title: "Kim Kardashian and Other Celebs with Killer Curves ..."
 description: "Kim Kardashian: Reality Star; Christina Hendricks: Actress; Amber Rose: Model; Christina Aguilera: Singer; Adele: Singer; More ..."
 url: "https://celebs.allwomenstalk.com/celebs-with-killer-curves/"
 category: "celebs"
-last_updated: "2026-06-07"
+last_updated: "2026-06-11"
 ---
 
 # Kim Kardashian and Other Celebs with Killer Curves ...
@@ -62,16 +62,16 @@ Curves make a woman irresistible. But based on the 8 gorgeous women above it als
 
 ## Related Posts
 
-- [best mugshots ever](https://celebs.allwomenstalk.com/top-celebrity-mug-shots/)
+- [omar epps skirt](https://celebs.allwomenstalk.com/adorable-celebs-that-should-be-together/)
 - [disney fairytale weddings divorce](https://wedding.allwomenstalk.com/celeb-brides-youd-love-to-see-walk-down-the-aisle/)
+- [celebrity holiday cards](https://allwomenstalk.com/celebrity-holiday-cards-pick-your-favorite/)
 - [funny quotes celebrities](https://celebs.allwomenstalk.com/stupidest-quotes-celebrities-have-blurted-out/)
 - [embarrassing moments celebrities](https://celebs.allwomenstalk.com/most-embarrassing-celeb-moments-youve-got-to-hear-about/)
-- [what celebrity named their kid pillow](https://celebs.allwomenstalk.com/off-the-wall-celebrity-baby-names/)
-- [celebrity holiday cards](https://allwomenstalk.com/celebrity-holiday-cards-pick-your-favorite/)
-- [omar epps skirt](https://celebs.allwomenstalk.com/adorable-celebs-that-should-be-together/)
-- [7 Sexy Leading Men from Britain ...](https://movies.allwomenstalk.com/sexy-leading-men-from-britain/)
 - [is nick cage a good actor](https://movies.allwomenstalk.com/worst-actors-of-our-time/)
+- [what celebrity named their kid pillow](https://celebs.allwomenstalk.com/off-the-wall-celebrity-baby-names/)
 - [good hearted celebrities](https://celebs.allwomenstalk.com/nicest-celebrities-who-have-a-heart-of-gold/)
+- [best mugshots ever](https://celebs.allwomenstalk.com/top-celebrity-mug-shots/)
+- [7 Sexy Leading Men from Britain ...](https://movies.allwomenstalk.com/sexy-leading-men-from-britain/)
 - [More on Celebs & Their Weight ...](https://allwomenstalk.com/more-on-celebs-their-weight/)
 - [Oh That Cellulite of the Stars ...](https://allwomenstalk.com/oh-that-cellulite-of-the-stars/)
 

@@ -3,7 +3,7 @@ title: "8 Shocking Celeb Stories from 2012 ..."
 description: "Chris Brown and Drake's Bar Brawl; Mary-Kate Dates Who?; RIP TomKat; Kristen Stewart Cheating Scandal; Ryan Reynolds & Blake Lively... Married?; More ..."
 url: "https://celebs.allwomenstalk.com/shocking-celeb-stories-from/"
 category: "celebs"
-last_updated: "2026-06-07"
+last_updated: "2026-06-11"
 ---
 
 # 8 Shocking Celeb Stories from 2012 ...
@@ -46,15 +46,15 @@ These were only 8 celeb stories that I found shocking, however it was hard to ch
 
 ## Related Posts
 
-- [10 Hottest Looking Celebrities on the Red Carpet ....](https://celebs.allwomenstalk.com/hottest-looking-celebrities-on-the-red-carpet/)
 - [riche le stylo always pearly](https://celebs.allwomenstalk.com/celebrities-who-may-have-had-plastic-surgery/)
-- [8 Shocking Celebrity Scandals from the past Year ....](https://celebs.allwomenstalk.com/shocking-celebrity-scandals-from-the-past-year/)
-- [9 Stylish Celebrity Couples ...](https://celebs.allwomenstalk.com/stylish-celebrity-couples/)
-- [7 Love Lessons We Can Learn from Celebrities ...](https://7fun.net/love-lessons-we-can-learn-from-celebrities/)
-- [top celebrity chefs](https://movies.allwomenstalk.com/top-celebrity-chefs-i-cant-get-enough-of/)
-- [riche le stylo emerald](https://movies.allwomenstalk.com/celebrities-created-by-reality-shows/)
-- [9 Most Successful Youtube Personalities That We Lo...](https://celebs.allwomenstalk.com/most-successful-youtube-personalities-that-we-love/)
+- [10 Hottest Looking Celebrities on the Red Carpet ....](https://celebs.allwomenstalk.com/hottest-looking-celebrities-on-the-red-carpet/)
 - [don draper vs harvey specter](https://movies.allwomenstalk.com/tv-characters-id-love-to-date/)
+- [9 Most Successful Youtube Personalities That We Lo...](https://celebs.allwomenstalk.com/most-successful-youtube-personalities-that-we-love/)
+- [7 Love Lessons We Can Learn from Celebrities ...](https://7fun.net/love-lessons-we-can-learn-from-celebrities/)
+- [8 Shocking Celebrity Scandals from the past Year ....](https://celebs.allwomenstalk.com/shocking-celebrity-scandals-from-the-past-year/)
+- [riche le stylo emerald](https://movies.allwomenstalk.com/celebrities-created-by-reality-shows/)
+- [top celebrity chefs](https://movies.allwomenstalk.com/top-celebrity-chefs-i-cant-get-enough-of/)
+- [9 Stylish Celebrity Couples ...](https://celebs.allwomenstalk.com/stylish-celebrity-couples/)
 - [7 Movie Stars That Started on TV ...](https://movies.allwomenstalk.com/movie-stars-that-started-on-tv/)
 - [7 Inspiring Celebrities of 2011 ...](https://celebs.allwomenstalk.com/inspiring-celebrities-of/)
 - [10 Big Celebrity News of 2011 ...](https://celebs.allwomenstalk.com/big-celebrity-news-of/)

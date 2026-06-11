@@ -3,7 +3,7 @@ title: "Rihanna Proves She's a Huge \"Scandal\" Fan with These D.C. Pics ..."
 description: "Waiting for Cyrus; Oh, Mr. President; Press Secretary; Olivia Pope & Associates; More ..."
 url: "https://celebs.allwomenstalk.com/rihanna-proves-shes-a-huge-scandal-fan-with-these-d-c-pics/"
 category: "celebs"
-last_updated: "2026-06-07"
+last_updated: "2026-06-11"
 ---
 
 # Rihanna Proves She's a Huge "Scandal" Fan with These D.C. Pics ...
@@ -38,16 +38,16 @@ She's clearly a "Scandal" mega-fan! Where can we start a petition to get her a g
 
 ## Related Posts
 
-- [pitch perfect 2 trailer](https://movies.allwomenstalk.com/the-barden-bellas-return-in-new-aca-amazing-pitch-perfect-trailer/)
-- [dominique battiste](https://music.allwomenstalk.com/dance-class-does-a-better-anaconda-dance-than-nicki-minaj-herself-video/)
-- [aniston cake](https://movies.allwomenstalk.com/jennifer-aniston-sparks-oscar-buzz-in-new-cake-trailer/)
-- [jennifer lawrence house](https://lifestyle.allwomenstalk.com/home-tour-inside-jennifer-lawrences-7-mil-beverly-hills-home/)
-- [hey arnold characters in real life](https://movies.allwomenstalk.com/hey-arnold-characters-all-grown-up-who-had-the-biggest-transformation/)
-- [shake it and it will be better](https://music.allwomenstalk.com/11-year-old-dance-star-proves-she-can-shake-it-off-way-better-than-i-ever-could/)
 - [pretty girls 11 year olds](https://beauty.allwomenstalk.com/this-9-year-old-model-is-being-called-the-most-beautiful-girl-in-the-world/)
-- [amy jo johnson body](https://celebs.allwomenstalk.com/original-pink-power-ranger-amy-jo-johnson-suited-up-for-a-street-performance/)
-- [dior spokesmodel](https://celebs.allwomenstalk.com/jennifer-lawrence-stuns-in-new-dior-campaign/)
+- [hey arnold characters in real life](https://movies.allwomenstalk.com/hey-arnold-characters-all-grown-up-who-had-the-biggest-transformation/)
 - [solange photoshoot](https://wedding.allwomenstalk.com/take-a-look-at-solange-knowles-sweet-honeymoon-photos/)
+- [jennifer lawrence house](https://lifestyle.allwomenstalk.com/home-tour-inside-jennifer-lawrences-7-mil-beverly-hills-home/)
+- [pitch perfect 2 trailer](https://movies.allwomenstalk.com/the-barden-bellas-return-in-new-aca-amazing-pitch-perfect-trailer/)
+- [dior spokesmodel](https://celebs.allwomenstalk.com/jennifer-lawrence-stuns-in-new-dior-campaign/)
+- [dominique battiste](https://music.allwomenstalk.com/dance-class-does-a-better-anaconda-dance-than-nicki-minaj-herself-video/)
+- [shake it and it will be better](https://music.allwomenstalk.com/11-year-old-dance-star-proves-she-can-shake-it-off-way-better-than-i-ever-could/)
+- [amy jo johnson body](https://celebs.allwomenstalk.com/original-pink-power-ranger-amy-jo-johnson-suited-up-for-a-street-performance/)
+- [aniston cake](https://movies.allwomenstalk.com/jennifer-aniston-sparks-oscar-buzz-in-new-cake-trailer/)
 - [6 Photos of Rihanna's Boobs and Barnet ...](https://celebs.allwomenstalk.com/rihannas-boobs-and-barnet/)
 - [Racy Snaps Were Meant for Christina's Stylist ...](https://celebs.allwomenstalk.com/racy-snaps-were-meant-for-christinas-stylist/)
 

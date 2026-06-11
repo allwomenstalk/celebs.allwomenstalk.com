@@ -3,7 +3,7 @@ title: "8 Celebrities Who Blew It and How Not to Repeat Their Mistakes ..."
 description: "Mel Gibson – Learn from past Mistakes; John Terry – Respect is Never Guaranteed; Hitler – Retreat when Necessary; OJ Simpson – Keep Your Nose Clean; Chris Brown – Leave the past in the past; More ..."
 url: "https://celebs.allwomenstalk.com/celebrities-who-blew-it-and-how-not-to-repeat-their-mistakes/"
 category: "celebs"
-last_updated: "2026-06-07"
+last_updated: "2026-06-11"
 ---
 
 # 8 Celebrities Who Blew It and How Not to Repeat Their Mistakes ...
@@ -46,16 +46,16 @@ It seems celebrities find it easier to get second chances than the rest of us, b
 
 ## Related Posts
 
-- [hot irish actor](https://celebs.allwomenstalk.com/most-talented-irish-actors/)
 - [worst relationship advice](https://celebs.allwomenstalk.com/celebrities-whod-give-you-the-worst-relationship-advice-ever/)
+- [engaged celebrities](https://wedding.allwomenstalk.com/recently-engaged-celebrities/)
 - [who looks like cillian murphy](https://lifestyle.allwomenstalk.com/famous-introverts/)
-- [girl celeb crushes](https://movies.allwomenstalk.com/celebrity-girl-crushes-on-tv/)
+- [teen role model](https://celebs.allwomenstalk.com/good-celebrity-teen-role-models/)
 - [celebrity overexposure](https://celebs.allwomenstalk.com/overexposed-celebrities-im-sick-of/)
 - [famous tv show families](https://movies.allwomenstalk.com/famous-tv-families/)
-- [teen role model](https://celebs.allwomenstalk.com/good-celebrity-teen-role-models/)
-- [famous couples in tv](https://movies.allwomenstalk.com/of-the-best-tv-couples/)
 - [role models for teenagers](https://celebs.allwomenstalk.com/best-tv-teen-role-models/)
-- [engaged celebrities](https://wedding.allwomenstalk.com/recently-engaged-celebrities/)
+- [hot irish actor](https://celebs.allwomenstalk.com/most-talented-irish-actors/)
+- [girl celeb crushes](https://movies.allwomenstalk.com/celebrity-girl-crushes-on-tv/)
+- [famous couples in tv](https://movies.allwomenstalk.com/of-the-best-tv-couples/)
 - [8 Ways to Avoid Financial Scams and Fraud ...](https://money.allwomenstalk.com/ways-to-avoid-financial-scams-and-fraud/)
 - [8 Beginner Bloopers in Gardening ...](https://gardening.allwomenstalk.com/8-beginner-bloopers-in-gardening-2/)
 

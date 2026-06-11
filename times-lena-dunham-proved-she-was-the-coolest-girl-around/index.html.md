@@ -3,7 +3,7 @@ title: "7 Times Lena Dunham Proved She Was the Coolest Girl around ..."
 description: "Hosting Snl; Winning Two Golden Globes; Labeled an Icon; Defending All Body Types; \"women of the Year\" Awards; More ..."
 url: "https://celebs.allwomenstalk.com/times-lena-dunham-proved-she-was-the-coolest-girl-around/"
 category: "celebs"
-last_updated: "2026-06-07"
+last_updated: "2026-06-11"
 ---
 
 # 7 Times Lena Dunham Proved She Was the Coolest Girl around ...
@@ -50,16 +50,16 @@ Well, there you have it! Lena is constantly proving that she's the coolest girl 
 
 ## Related Posts
 
-- [Emily Osment is Back and on Our Radar ...](https://celebs.allwomenstalk.com/awesome-reasons-to-get-emily-osment-back-on-your-radar/)
-- [Nick Jonas Reveals New Album Title ...](https://celebs.allwomenstalk.com/nick-jonas-reveals-new-album-title/)
-- [You Can Now Live in the 'Breakfast at Tiffany's' T...](https://lifestyle.allwomenstalk.com/you-can-now-live-in-the-breakfast-at-tiffanys-townhouse/)
-- [joseph gordon-levitt net worth](https://celebs.allwomenstalk.com/joseph-gordon-levitt-calls-himself-male-feminist/)
 - [vanessa dunham](https://celebs.allwomenstalk.com/new-girls-trailer-will-make-miss-having-lena-dunham-on-your-tv/)
+- [Emily Osment is Back and on Our Radar ...](https://celebs.allwomenstalk.com/awesome-reasons-to-get-emily-osment-back-on-your-radar/)
 - [Demi Lovato: Best Tour Photos ...](https://celebs.allwomenstalk.com/demi-lovato-best-tour-photos/)
+- [Nick Jonas Reveals New Album Title ...](https://celebs.allwomenstalk.com/nick-jonas-reveals-new-album-title/)
+- [joseph gordon-levitt net worth](https://celebs.allwomenstalk.com/joseph-gordon-levitt-calls-himself-male-feminist/)
 - [Jennifer Lawrence's Empowering Response to Her Lea...](https://celebs.allwomenstalk.com/jennifer-lawrences-empowering-response-to-her-leaked-photos/)
-- [The Bump Don't Lie: Shakira's Expecting Another Ba...](https://celebs.allwomenstalk.com/the-bump-dont-lie-shakiras-expecting-another-baby/)
 - [Zoe Saldana Announces Pregnancy While Supporting A...](https://celebs.allwomenstalk.com/zoe-saldana-announces-pregnancy-while-supporting-als/)
+- [You Can Now Live in the 'Breakfast at Tiffany's' T...](https://lifestyle.allwomenstalk.com/you-can-now-live-in-the-breakfast-at-tiffanys-townhouse/)
 - [#AlexFromTarget Makes His Way to the Ellen DeGener...](https://teen.allwomenstalk.com/alexfromtarget-makes-his-way-to-the-ellen-degeneres-show/)
+- [The Bump Don't Lie: Shakira's Expecting Another Ba...](https://celebs.allwomenstalk.com/the-bump-dont-lie-shakiras-expecting-another-baby/)
 - [7 of Lauren Conrad's Best Looks That We Love ...](https://fashion.allwomenstalk.com/of-lauren-conrads-best-looks-that-we-love/)
 - [7 of Hollywood's Newest Fashion Icons ...](https://celebs.allwomenstalk.com/of-hollywoods-newest-fashion-icons/)
 

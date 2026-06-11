@@ -3,7 +3,7 @@ title: "Katy Perry's Glittery Super Bowl Plans Have Got Me Hyped for Halftime ..
 description: "Stay ahead, stay chic. Trusted guides on beauty, wellness, fashion, and everything that defines today's empowered woman."
 url: "https://celebs.allwomenstalk.com/katy-perrys-glittery-super-bowl-plans-have-got-me-hyped-for-halftime/"
 category: "celebs"
-last_updated: "2026-06-07"
+last_updated: "2026-06-11"
 ---
 
 # Katy Perry's Glittery Super Bowl Plans Have Got Me Hyped for Halftime ...
@@ -15,16 +15,16 @@ Are you hyped for halftime?
 
 ## Related Posts
 
-- [victoria secret private jet](https://celebs.allwomenstalk.com/yup-this-is-how-the-victorias-secret-angels-fly-international/)
 - [orange is the new black christmas song](https://music.allwomenstalk.com/orange-is-the-new-blacks-cast-gets-in-the-holiday-spirit-with-new-christmas-song/)
-- [Beyoncé Reflects on Fame & Feminism in "yours and ...](https://celebs.allwomenstalk.com/beyonce-reflects-on-fame-feminism-in-yours-and-mine-short-film/)
 - [carrie underwood clothing](https://fashion.allwomenstalk.com/carrie-underwoods-launching-a-fitness-clothing-line-heres-your-first-look/)
-- [You Won't Stop Laughing at This Woman's Impression...](https://funny.allwomenstalk.com/you-wont-stop-laughing-at-this-womans-impressions-of-celebs-stuck-in-traffic/)
-- [Lifetime's Whitney Houston Biopic Gets an Emotiona...](https://movies.allwomenstalk.com/lifetimes-whitney-houston-biopic-gets-an-emotional-first-trailer/)
-- [Madonna Stuns in Interview Spread ...](https://celebs.allwomenstalk.com/madonna-stuns-in-interview-spread/)
-- [Let's Have Some Love for Renée Zellweger ...](https://celebs.allwomenstalk.com/reasons-to-love-renee-zellweger/)
+- [Beyoncé Reflects on Fame & Feminism in "yours and ...](https://celebs.allwomenstalk.com/beyonce-reflects-on-fame-feminism-in-yours-and-mine-short-film/)
 - [This Dad Was Challenged to a Hip-hop Dance Battle ...](https://funny.allwomenstalk.com/this-dad-was-challenged-to-a-hip-hop-dance-battle-by-his-daughter-who-won/)
+- [You Won't Stop Laughing at This Woman's Impression...](https://funny.allwomenstalk.com/you-wont-stop-laughing-at-this-womans-impressions-of-celebs-stuck-in-traffic/)
+- [Madonna Stuns in Interview Spread ...](https://celebs.allwomenstalk.com/madonna-stuns-in-interview-spread/)
 - [Pregnant Kourtney Kardashian Bares It All for Dujo...](https://celebs.allwomenstalk.com/pregnant-kourtney-kardashian-bares-it-all-for-dujour/)
+- [victoria secret private jet](https://celebs.allwomenstalk.com/yup-this-is-how-the-victorias-secret-angels-fly-international/)
+- [Lifetime's Whitney Houston Biopic Gets an Emotiona...](https://movies.allwomenstalk.com/lifetimes-whitney-houston-biopic-gets-an-emotional-first-trailer/)
+- [Let's Have Some Love for Renée Zellweger ...](https://celebs.allwomenstalk.com/reasons-to-love-renee-zellweger/)
 - [Lady Gaga Goes Country…](https://celebs.allwomenstalk.com/lady-gaga-goes-country/)
 - [Katy Perry Channels the Roaring 20's for Ghd ...](https://celebs.allwomenstalk.com/katy-perry-channels-the-roaring-20s-for-ghd/)
 

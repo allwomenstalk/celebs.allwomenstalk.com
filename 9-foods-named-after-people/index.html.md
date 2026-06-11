@@ -3,7 +3,7 @@ title: "9 Foods Named after People ..."
 description: "Grannie Smith; Crêpes Suzette; Sandwich; Cobb Salad; Fettuccine Alfredo; More ..."
 url: "https://celebs.allwomenstalk.com/9-foods-named-after-people/"
 category: "celebs"
-last_updated: "2026-06-07"
+last_updated: "2026-06-11"
 ---
 
 # 9 Foods Named after People ...
@@ -56,16 +56,16 @@ Top Photo Credit: [larryjh1234](https://www.flickr.com/photos/dinesarasota/)
 
 ## Related Posts
 
-- [7 Healthy Snacks to Have before Dinner ...](https://diet.allwomenstalk.com/healthy-snacks-to-have-before-dinner/)
-- [Top 9 Health Foods of 2012 ...](https://diet.allwomenstalk.com/top-health-foods-of/)
-- [9 Absolutely Mouthwatering Mood Foods to Drive Awa...](https://food.allwomenstalk.com/absolutely-mouthwatering-mood-foods-to-drive-away-those-blues/)
-- [lightest cheese](https://food.allwomenstalk.com/unbelievably-light-and-scrumptiously-healthy-types-of-cheese/)
-- [healthy fast food dinner choices](https://diet.allwomenstalk.com/healthy-fast-foods-to-opt-for/)
 - [yummy frozen food](https://food.allwomenstalk.com/amazingly-yummy-and-healthy-frozen-foods/)
-- [12 Iconic Foods ...](https://cooking.allwomenstalk.com/12-iconic-foods/)
-- [things that go together like peanut butter and jel...](https://cooking.allwomenstalk.com/7-foods-that-you-didnt-realize-go-together/)
+- [9 Absolutely Mouthwatering Mood Foods to Drive Awa...](https://food.allwomenstalk.com/absolutely-mouthwatering-mood-foods-to-drive-away-those-blues/)
 - [7 Quick but Nutritious Breakfast Ideas ...](https://diet.allwomenstalk.com/quick-but-nutritious-breakfast-ideas/)
+- [healthy fast food dinner choices](https://diet.allwomenstalk.com/healthy-fast-foods-to-opt-for/)
+- [lightest cheese](https://food.allwomenstalk.com/unbelievably-light-and-scrumptiously-healthy-types-of-cheese/)
+- [things that go together like peanut butter and jel...](https://cooking.allwomenstalk.com/7-foods-that-you-didnt-realize-go-together/)
+- [12 Iconic Foods ...](https://cooking.allwomenstalk.com/12-iconic-foods/)
+- [Top 9 Health Foods of 2012 ...](https://diet.allwomenstalk.com/top-health-foods-of/)
 - [7 Foods I Didn't Think I'd like but do ...](https://cooking.allwomenstalk.com/7-foods-i-didnt-think-id-like-but-do/)
+- [7 Healthy Snacks to Have before Dinner ...](https://diet.allwomenstalk.com/healthy-snacks-to-have-before-dinner/)
 - [10 Famous People Who Were Adopted ...](https://celebs.allwomenstalk.com/10-famous-people-who-were-adopted/)
 - [10 Famous Princesses Throughout History ...](https://celebs.allwomenstalk.com/famous-princesses-throughout-history/)
 
