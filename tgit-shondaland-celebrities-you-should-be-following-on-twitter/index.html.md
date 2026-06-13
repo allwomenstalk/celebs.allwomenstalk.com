@@ -3,7 +3,7 @@ title: "#TGIT: ShondaLand Celebrities You Should Be following on Twitter ..."
 description: "Ellen Pompeo & Patrick Dempsey; Camilla Luddington & Kevin Mckidd; Jesse Williams & Sarah Drew; Jessica Capshaw & Sara Ramirez; Kerry Washington & Scott Foley; More ..."
 url: "https://celebs.allwomenstalk.com/tgit-shondaland-celebrities-you-should-be-following-on-twitter/"
 category: "celebs"
-last_updated: "2026-06-11"
+last_updated: "2026-06-13"
 ---
 
 # \#TGIT: ShondaLand Celebrities You Should Be following on Twitter ...
@@ -69,16 +69,16 @@ Well, there you have it. ShondaLand has completely taken over Thursday nights on
 
 ## Related Posts
 
-- [celebrities giving back](https://inspiration.allwomenstalk.com/these-charitable-celebrity-couples-are-all-about-giving-back/)
-- [most influential teenagers](https://celebs.allwomenstalk.com/in-case-you-missed-it-these-are-times-most-influential-teens/)
+- [strange facts about celebrities](https://celebs.allwomenstalk.com/little-known-facts-about-your-favorite-celebrities/)
 - [famous actors with parkinson's](https://celebs.allwomenstalk.com/celebrities-with-parkinsons-disease/)
 - [bromances](https://celebs.allwomenstalk.com/of-the-cutest-celebrity-bromances-of-all-time/)
-- [strange facts about celebrities](https://celebs.allwomenstalk.com/little-known-facts-about-your-favorite-celebrities/)
 - [cameron diaz snoop high school](https://celebs.allwomenstalk.com/celebrities-who-went-to-high-school-together/)
-- [julianna hough plastic surgery](https://celebs.allwomenstalk.com/whoa-celebrity-doppelgangers-from-different-generations/)
-- [celebrities with weird kid names](https://celebs.allwomenstalk.com/celebrities-explain-their-reasoning-behind-their-strange-baby-names/)
-- [pregnant celebrities on red carpet](https://fashion.allwomenstalk.com/celebrities-that-made-red-carpet-baby-bumps-look-amazing/)
+- [celebrities giving back](https://inspiration.allwomenstalk.com/these-charitable-celebrity-couples-are-all-about-giving-back/)
 - [celebrities photobombing](https://celebs.allwomenstalk.com/celebrity-photobombs-thatll-make-you-lol/)
+- [celebrities with weird kid names](https://celebs.allwomenstalk.com/celebrities-explain-their-reasoning-behind-their-strange-baby-names/)
+- [most influential teenagers](https://celebs.allwomenstalk.com/in-case-you-missed-it-these-are-times-most-influential-teens/)
+- [pregnant celebrities on red carpet](https://fashion.allwomenstalk.com/celebrities-that-made-red-carpet-baby-bumps-look-amazing/)
+- [julianna hough plastic surgery](https://celebs.allwomenstalk.com/whoa-celebrity-doppelgangers-from-different-generations/)
 - [Top Celebrity Philantrophists ...](https://celebs.allwomenstalk.com/top-celebrity-philantrophists/)
 - [OMG It's Celebrity Gossip Overload - Sound the Ala...](https://allwomenstalk.com/omg-its-celebrity-gossip-overload-sound-the-alarm/)
 

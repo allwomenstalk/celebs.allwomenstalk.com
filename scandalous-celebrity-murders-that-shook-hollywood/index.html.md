@@ -3,7 +3,7 @@ title: "11 Scandalous Celebrity Murders That Shook Hollywood ..."
 description: "Elizabeth Short: the Black Dahlia; Sharon Tate; Phil Hartman; Natalie Wood; Dorothy Stratten; More ..."
 url: "https://celebs.allwomenstalk.com/scandalous-celebrity-murders-that-shook-hollywood/"
 category: "celebs"
-last_updated: "2026-06-11"
+last_updated: "2026-06-13"
 ---
 
 # 11 Scandalous Celebrity Murders That Shook Hollywood ...
@@ -60,16 +60,16 @@ Maybe it makes me morbid and macabre, too, but I have a long habit of looking be
 
 ## Related Posts
 
-- [real life tv couples](https://movies.allwomenstalk.com/adorable-tv-couples-you-wish-were-dating-in-real-life/)
-- [pink celebrities](https://fashion.allwomenstalk.com/celebrities-totally-rocking-the-hot-pink-trend/)
-- [was zachary gordon actually singing](https://celebs.allwomenstalk.com/talented-celebs-you-didnt-know-could-sing/)
-- [celebrity couples who met on set](https://celebs.allwomenstalk.com/celebrity-couples-who-met-on-a-movie-set/)
-- [polydactyly celebrities](https://celebs.allwomenstalk.com/celebrities-with-body-deformities-that-will-shock-you/)
-- [what celebrities changed their names](https://celebs.allwomenstalk.com/celebrities-who-changed-their-name-for-fame/)
 - [lucy pinder toppless](https://celebs.allwomenstalk.com/good-hearted-celebrities-who-took-adopted-children-under-their-wings/)
-- [celebrities on dancing with the stars](https://celebs.allwomenstalk.com/celebrities-who-should-be-on-dancing-with-the-stars/)
+- [polydactyly celebrities](https://celebs.allwomenstalk.com/celebrities-with-body-deformities-that-will-shock-you/)
+- [pink celebrities](https://fashion.allwomenstalk.com/celebrities-totally-rocking-the-hot-pink-trend/)
 - [famous singers from american idol](https://music.allwomenstalk.com/very-successful-artists-that-came-from-american-idol/)
 - [strange looking celebrities](https://celebs.allwomenstalk.com/strange-celebrity-looks-that-shouldnt-work-but-kind-of-did/)
+- [celebrity couples who met on set](https://celebs.allwomenstalk.com/celebrity-couples-who-met-on-a-movie-set/)
+- [was zachary gordon actually singing](https://celebs.allwomenstalk.com/talented-celebs-you-didnt-know-could-sing/)
+- [what celebrities changed their names](https://celebs.allwomenstalk.com/celebrities-who-changed-their-name-for-fame/)
+- [real life tv couples](https://movies.allwomenstalk.com/adorable-tv-couples-you-wish-were-dating-in-real-life/)
+- [celebrities on dancing with the stars](https://celebs.allwomenstalk.com/celebrities-who-should-be-on-dancing-with-the-stars/)
 - [Top 10 Sexy Women in Hollywood ...](https://movies.allwomenstalk.com/top-10-sexy-women-in-hollywood/)
 - [10 Ludicrous and Funny Horror Movies ...](https://7fun.net/ludicrous-and-funny-horror-movies/)
 

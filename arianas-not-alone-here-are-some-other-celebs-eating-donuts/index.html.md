@@ -3,7 +3,7 @@ title: "Ariana's Not Alone! Here Are Some Other Celebs Eating Donuts ..."
 description: "Gisele Bundchen; Annalynn McCord; Beyonce; Ashley Madekwe; Pete Wentz; More ..."
 url: "https://celebs.allwomenstalk.com/arianas-not-alone-here-are-some-other-celebs-eating-donuts/"
 category: "celebs"
-last_updated: "2026-06-11"
+last_updated: "2026-06-13"
 ---
 
 # Ariana's Not Alone! Here Are Some Other Celebs Eating Donuts ...
@@ -94,14 +94,14 @@ See? She has a healthy relationship with donuts.
 
 - [affleck and garner having a cozy moment](https://celebs.allwomenstalk.com/ben-affleck-and-jennifer-garners-cutest-moments/)
 - [cute celebrity couples](https://celebs.allwomenstalk.com/the-cutest-new-celebrity-couples-of/)
-- [sensational beginnings](https://movies.allwomenstalk.com/actors-with-terrible-tv-beginnings/)
+- [middle aged male actors](https://movies.allwomenstalk.com/these-hot-british-actors-will-get-your-pulse-racing/)
+- [ariana grande workout clothes](https://fitness.allwomenstalk.com/sweat-in-style-check-out-these-celebs-in-workout-gear/)
 - [how old is gabby union](https://movies.allwomenstalk.com/adult-actors-who-have-played-teenagers/)
-- [whoopi goldberg avpd](https://celebs.allwomenstalk.com/successful-stars-with-mental-disorders/)
 - [celebs in open marriages](https://celebs.allwomenstalk.com/inspiring-celeb-marriages-that-are-actually-long-lasting/)
 - [david beckham swag](https://celebs.allwomenstalk.com/times-david-beckham-proved-hes-hot-hot-hot/)
-- [ariana grande workout clothes](https://fitness.allwomenstalk.com/sweat-in-style-check-out-these-celebs-in-workout-gear/)
+- [whoopi goldberg avpd](https://celebs.allwomenstalk.com/successful-stars-with-mental-disorders/)
+- [sensational beginnings](https://movies.allwomenstalk.com/actors-with-terrible-tv-beginnings/)
 - [riche le stylo glistening](https://hair.allwomenstalk.com/check-out-these-gorg-celebs-whove-rocked-rainbow-hair/)
-- [middle aged male actors](https://movies.allwomenstalk.com/these-hot-british-actors-will-get-your-pulse-racing/)
 - [Amy Winehouse Takes NYC by Storm!](https://allwomenstalk.com/amy-winehouse-takes-nyc-by-storm/)
 - [Pop Nosh: the Anna Nicole Smith Edition ...](https://allwomenstalk.com/pop-nosh-the-anna-nicole-smith-edition/)
 

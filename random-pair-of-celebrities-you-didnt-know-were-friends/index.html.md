@@ -3,7 +3,7 @@ title: "7 Random Pairs of Celebrities You Didn't Know Were Friends ..."
 description: "Jim Parsons & Rihanna; Beyonce, Jay-z, & Jake Gyllenhaal; 50 Cent & Bette Midler; Elton John & Eminem; Jennifer Lawrence & Drew Barrymore; More ..."
 url: "https://celebs.allwomenstalk.com/random-pair-of-celebrities-you-didnt-know-were-friends/"
 category: "celebs"
-last_updated: "2026-06-11"
+last_updated: "2026-06-13"
 ---
 
 # 7 Random Pairs of Celebrities You Didn't Know Were Friends ...
@@ -56,16 +56,16 @@ Well, there you have it. How random are these pairs of celebrity friends?! Can y
 
 ## Related Posts
 
-- [famous ryans in hollywood](https://funny.allwomenstalk.com/watch-ryan-cabrera-rank-other-famous-ryans-including-gosling-and-reynolds/)
+- [tahlia hoskins](https://celebs.allwomenstalk.com/celebrities-we-said-a-sad-goodbye-to-in/)
+- [actor that sings](https://celebs.allwomenstalk.com/celebs-who-went-from-singing-to-acting/)
 - [corey fogelmanis twitter](https://celebs.allwomenstalk.com/girl-meets-world-celebs-to-follow-on-twitter/)
-- [sara ramirez on law and order svu](https://celebs.allwomenstalk.com/celebrities-who-guest-starred-on-law-order/)
 - [paleo celebrities](https://celebs.allwomenstalk.com/celebs-that-follow-the-paleo-diet/)
+- [celebrities who love animals](https://celebs.allwomenstalk.com/celebrities-who-love-and-advocate-for-animals/)
+- [celebrity favorite holiday](https://celebs.allwomenstalk.com/see-how-your-favorite-celebs-spent-the-holidays-in-our-christmas-re-cap/)
+- [sara ramirez on law and order svu](https://celebs.allwomenstalk.com/celebrities-who-guest-starred-on-law-order/)
+- [famous ryans in hollywood](https://funny.allwomenstalk.com/watch-ryan-cabrera-rank-other-famous-ryans-including-gosling-and-reynolds/)
 - [celebrities who hid their pregnancies while filmin...](https://celebs.allwomenstalk.com/celebrities-who-hid-their-baby-bumps-while-filming/)
 - [kate upton movie with adam sandler](https://celebs.allwomenstalk.com/celebrities-who-went-from-modeling-to-acting/)
-- [celebrity favorite holiday](https://celebs.allwomenstalk.com/see-how-your-favorite-celebs-spent-the-holidays-in-our-christmas-re-cap/)
-- [tahlia hoskins](https://celebs.allwomenstalk.com/celebrities-we-said-a-sad-goodbye-to-in/)
-- [celebrities who love animals](https://celebs.allwomenstalk.com/celebrities-who-love-and-advocate-for-animals/)
-- [actor that sings](https://celebs.allwomenstalk.com/celebs-who-went-from-singing-to-acting/)
 - [5 Blogs by Celebrities You'd Love to Get to Know ....](https://allwomenstalk.com/5-blogs-by-celebrities-youd-love-to-get-to-know/)
 - [7 Very Strange Celebrity Couples ...](https://allwomenstalk.com/7-very-strange-celebrity-couples/)
 

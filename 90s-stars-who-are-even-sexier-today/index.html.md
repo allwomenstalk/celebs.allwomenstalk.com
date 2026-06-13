@@ -3,7 +3,7 @@ title: "17 '90s Stars Who Are Even Sexier Today ..."
 description: "Jennifer Love Hewitt; Danielle Fishel; Tina Majorino; John Stamos; Alicia Silverstone; More ..."
 url: "https://celebs.allwomenstalk.com/90s-stars-who-are-even-sexier-today/"
 category: "celebs"
-last_updated: "2026-06-11"
+last_updated: "2026-06-13"
 ---
 
 # 17 '90s Stars Who Are Even Sexier Today ...
@@ -116,16 +116,16 @@ Tell me, stalkers, who are your picks? Do you love any celebs who look better no
 
 ## Related Posts
 
-- [how to snap celebrities](https://celebs.allwomenstalk.com/the-hottest-celebs-to-follow-on-snapchat/)
+- [celebrity face swap](https://celebs.allwomenstalk.com/these-are-the-best-face-swaps-celebs-have-ever-posted/)
 - [best celebrity workouts](https://fitness.allwomenstalk.com/celeb-workouts-for-women-who-want-to-look-like-stars/)
 - [20 under 20](https://teen.allwomenstalk.com/most-influential-people-under-20/)
-- [full frontal movie stars](https://celebs.allwomenstalk.com/hot-actors-whove-gone-full-frontal-on-screen/)
-- [harry potter cast oliver wood](https://celebs.allwomenstalk.com/where-the-supporting-harry-potter-cast-is-now/)
-- [social media food trends](https://food.allwomenstalk.com/foods-that-broke-the-internet-as-much-as-kim/)
-- [most awkward interviews](https://celebs.allwomenstalk.com/youll-cringe-at-these-unbelievably-awkward-celeb-interviews/)
 - [celebrities](https://celebs.allwomenstalk.com/be-inspired-by-celebrities-who-have-branched-out-to-try-new-things/)
+- [how to snap celebrities](https://celebs.allwomenstalk.com/the-hottest-celebs-to-follow-on-snapchat/)
 - [halle berry sarah palin](https://celebs.allwomenstalk.com/did-you-know-these-celebs-were-beauty-queens-before-they-became-stars/)
-- [celebrity face swap](https://celebs.allwomenstalk.com/these-are-the-best-face-swaps-celebs-have-ever-posted/)
+- [full frontal movie stars](https://celebs.allwomenstalk.com/hot-actors-whove-gone-full-frontal-on-screen/)
+- [social media food trends](https://food.allwomenstalk.com/foods-that-broke-the-internet-as-much-as-kim/)
+- [harry potter cast oliver wood](https://celebs.allwomenstalk.com/where-the-supporting-harry-potter-cast-is-now/)
+- [most awkward interviews](https://celebs.allwomenstalk.com/youll-cringe-at-these-unbelievably-awkward-celeb-interviews/)
 - [40 and Fabulous: 7 Female Celebrities That Look Be...](https://celebs.allwomenstalk.com/and-fabulous-7-female-celebrities-that-look-better-than-ever/)
 - [99 Most Wanted Women of 2007 ...](https://allwomenstalk.com/most-wanted-women-of/)
 

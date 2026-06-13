@@ -3,7 +3,7 @@ title: "Get a Little Fashion Inspo from Mindy Kaling's Lookbook ..."
 description: "Strapless Sparkle & Shine; Glitter Glam & Biker Jacket; Green Dress; Orange & Pink; Ravishing Ruffles; More ..."
 url: "https://celebs.allwomenstalk.com/get-a-little-fashion-inspo-from-mindy-kalings-lookbook/"
 category: "celebs"
-last_updated: "2026-06-11"
+last_updated: "2026-06-13"
 ---
 
 # Get a Little Fashion Inspo from Mindy Kaling's Lookbook ...
@@ -119,14 +119,14 @@ Source: [Mindy Kaling](https://www.popsugar.com/fashion/photo-gallery/34150665/i
 
 - [celebs in leggings](https://celebs.allwomenstalk.com/pins-on-parade-celebs-giving-lessons-in-leggings/)
 - [victoria justice](https://celebs.allwomenstalk.com/steal-the-style-of-victoria-justice/)
-- [elizabeth and james kohl's discontinued](https://fashion.allwomenstalk.com/the-best-celebrity-fashion-lines-out-there/)
-- [afropunk makeup](https://beauty.allwomenstalk.com/the-best-in-hair-and-beauty-at-afropunk-fest-ny/)
-- [paris stylo smoky icon](https://fashion.allwomenstalk.com/which-of-these-fashion-icons-are-you/)
-- [do women like jewelry on men](https://jewelry.allwomenstalk.com/its-sexy-to-see-men-wearing-these-pieces-of-jewelry/)
 - [dstyle models](https://streetstyle.allwomenstalk.com/these-models-have-the-best-street-style/)
-- [most prestigious job](https://money.allwomenstalk.com/these-are-the-hottest-careers-for-women-in-fashion-which-one-is-right-for-you/)
-- [is gabby douglas married](https://fitness.allwomenstalk.com/this-is-why-gabby-douglas-is-my-fitness-and-fashion-hero/)
+- [afropunk makeup](https://beauty.allwomenstalk.com/the-best-in-hair-and-beauty-at-afropunk-fest-ny/)
+- [elizabeth and james kohl's discontinued](https://fashion.allwomenstalk.com/the-best-celebrity-fashion-lines-out-there/)
+- [paris stylo smoky icon](https://fashion.allwomenstalk.com/which-of-these-fashion-icons-are-you/)
 - [khloe summer](https://celebs.allwomenstalk.com/get-some-style-inspiration-with-khloe-kardashians-best-looks-so-far/)
+- [do women like jewelry on men](https://jewelry.allwomenstalk.com/its-sexy-to-see-men-wearing-these-pieces-of-jewelry/)
+- [is gabby douglas married](https://fitness.allwomenstalk.com/this-is-why-gabby-douglas-is-my-fitness-and-fashion-hero/)
+- [most prestigious job](https://money.allwomenstalk.com/these-are-the-hottest-careers-for-women-in-fashion-which-one-is-right-for-you/)
 - [Outfit Inspiration for the Perfect Office Looks .....](https://fashion.allwomenstalk.com/outfit-inspiration-for-the-perfect-office-looks/)
 - [Audrey Hepburn's Greatest Looks to Give You Some F...](https://fashion.allwomenstalk.com/audrey-hepburns-greatest-looks-to-give-you-some-fashion-inspiration/)
 

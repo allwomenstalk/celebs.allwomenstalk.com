@@ -3,7 +3,7 @@ title: "Hunk Alert : 4 Little-Known Facts about Actor Jamie Dornan ..."
 description: "Jamie Was in a Folk Band; Jamie Has a ‘not-so-secret’ Love for Romantic Comedies; Jamie Doesn’t like His Body; Jamie Has the Strangest Insecurity; More ..."
 url: "https://celebs.allwomenstalk.com/little-known-facts-about-jamie-dornan/"
 category: "celebs"
-last_updated: "2026-06-11"
+last_updated: "2026-06-13"
 ---
 
 # Hunk Alert : 4 Little\-Known Facts about Actor Jamie Dornan ...
@@ -32,16 +32,16 @@ His dance instructor suggested that he should focus on a heel-to-toe movement. T
 
 ## Related Posts
 
-- [best housewives of all time](https://movies.allwomenstalk.com/the-best-real-housewives-of-beverly-hills/)
-- [designer valentines day gifts](https://celebs.allwomenstalk.com/most-expensive-valentines-gifts-given-by-celebrities/)
-- [celebs born in 1976](https://celebs.allwomenstalk.com/celebrities-born-in-february/)
 - [2018 coachella headliners](https://music.allwomenstalk.com/coachella-headliners/)
+- [best housewives of all time](https://movies.allwomenstalk.com/the-best-real-housewives-of-beverly-hills/)
 - [wokest celebrities](https://celebs.allwomenstalk.com/who-are-the-most-charitable-celebrities/)
-- [celebrities born february 18](https://celebs.allwomenstalk.com/celebrities-born-in-february-3/)
-- [lake como celebrities](https://travel.allwomenstalk.com/where-celebrities-go-on-vacation/)
 - [celebrities born on february 4th](https://celebs.allwomenstalk.com/celebrities-born-in-february-4/)
-- [celebrities born on february 2](https://celebs.allwomenstalk.com/celebrities-born-in-february-2/)
 - [90s heartthrobs actors](https://celebs.allwomenstalk.com/heartthrobs-of-the-1990s/)
+- [celebs born in 1976](https://celebs.allwomenstalk.com/celebrities-born-in-february/)
+- [celebrities born february 18](https://celebs.allwomenstalk.com/celebrities-born-in-february-3/)
+- [designer valentines day gifts](https://celebs.allwomenstalk.com/most-expensive-valentines-gifts-given-by-celebrities/)
+- [lake como celebrities](https://travel.allwomenstalk.com/where-celebrities-go-on-vacation/)
+- [celebrities born on february 2](https://celebs.allwomenstalk.com/celebrities-born-in-february-2/)
 - [5 Hot Vampire Guys from the Twilight Series ...](https://twilight.allwomenstalk.com/5-hot-vampire-guys-from-the-twilight-series/)
 - [5 Facts on Robert Pattinson ...](https://twilight.allwomenstalk.com/5-facts-on-robert-pattinson/)
 

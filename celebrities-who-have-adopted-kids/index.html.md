@@ -3,7 +3,7 @@ title: "9 Celebrities Who Have Adopted Kids ..."
 description: "Hugh Jackman; Kristin Davis; Jillian Michaels; Katherine Heigl; Viola Davis; More ..."
 url: "https://celebs.allwomenstalk.com/celebrities-who-have-adopted-kids/"
 category: "celebs"
-last_updated: "2026-06-11"
+last_updated: "2026-06-13"
 ---
 
 # 9 Celebrities Who Have Adopted Kids ...
@@ -68,16 +68,16 @@ Some of these celebrity adoptions are really well known, but I never knew that H
 
 ## Related Posts
 
-- [who is ariana grande husband?](https://celebs.allwomenstalk.com/celebs-who-have-praised-ariana-grandes-talent/)
-- [celebs in nashville](https://movies.allwomenstalk.com/celebs-from-nashville-who-love-to-live-tweet-during-the-show/)
-- [andy samberg plastic surgery](https://celebs.allwomenstalk.com/celebs-who-are-obsessed-with-true-detective/)
-- [pics of celebs](https://funny.allwomenstalk.com/adorably-funny-pictures-of-celebs-with-their-kids/)
-- [the prettiest hair in the world](https://hair.allwomenstalk.com/male-celebrities-with-great-hair/)
-- [how did tori kelly get famous](https://celebs.allwomenstalk.com/celebrities-who-have-praised-tori-kellys-talents/)
 - [jim carrey hairstyles](https://movies.allwomenstalk.com/roles-that-would-have-gone-to-other-actors/)
 - [obsession idris elba](https://celebs.allwomenstalk.com/celebs-who-are-obsessed-with-hbos-girls/)
+- [andy samberg plastic surgery](https://celebs.allwomenstalk.com/celebs-who-are-obsessed-with-true-detective/)
+- [who is ariana grande husband?](https://celebs.allwomenstalk.com/celebs-who-have-praised-ariana-grandes-talent/)
 - [types of celebrities jobs](https://celebs.allwomenstalk.com/celebrities-who-had-interesting-careers-before-they-became-famous/)
+- [celebs in nashville](https://movies.allwomenstalk.com/celebs-from-nashville-who-love-to-live-tweet-during-the-show/)
 - [louise lasser banned from snl](https://celebs.allwomenstalk.com/stars-banned-from-saturday-night-live/)
+- [pics of celebs](https://funny.allwomenstalk.com/adorably-funny-pictures-of-celebs-with-their-kids/)
+- [how did tori kelly get famous](https://celebs.allwomenstalk.com/celebrities-who-have-praised-tori-kellys-talents/)
+- [the prettiest hair in the world](https://hair.allwomenstalk.com/male-celebrities-with-great-hair/)
 - [19 Adorable Celebrity Moms ...](https://allwomenstalk.com/19-adorable-celebrity-moms/)
 - [9 Amazing Celebrity Families ...](https://allwomenstalk.com/9-amazing-celebrity-families/)
 

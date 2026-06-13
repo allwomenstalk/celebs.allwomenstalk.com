@@ -3,7 +3,7 @@ title: "7 Stars Banned from Saturday Night Live ..."
 description: "Chevy Chase; Sinead O’Connor; The Replacements; Louise Lasser; Andy Kaufman; More ..."
 url: "https://celebs.allwomenstalk.com/stars-banned-from-saturday-night-live/"
 category: "celebs"
-last_updated: "2026-06-11"
+last_updated: "2026-06-13"
 ---
 
 # 7 Stars Banned from Saturday Night Live ...
@@ -56,16 +56,16 @@ Whether it was due to offensive remarks or an inability to get along with the ca
 
 ## Related Posts
 
-- [riche le stylo eye shadow glistening garnet](https://celebs.allwomenstalk.com/celebrities-and-their-godparents/)
-- [pics of celebs](https://funny.allwomenstalk.com/adorably-funny-pictures-of-celebs-with-their-kids/)
-- [smile book characters](https://celebs.allwomenstalk.com/of-the-best-female-celebrity-smiles/)
-- [toby regbo shirtless](https://celebs.allwomenstalk.com/teen-celebrities-worth-fangirling-over/)
-- [sean faris and robbie amell](https://celebs.allwomenstalk.com/celebs-from-cws-arrow-that-are-social-on-twitter/)
-- [andy samberg plastic surgery](https://celebs.allwomenstalk.com/celebs-who-are-obsessed-with-true-detective/)
 - [does will smith have dyslexia](https://celebs.allwomenstalk.com/famous-people-with-dyslexia/)
 - [jim carrey hairstyles](https://movies.allwomenstalk.com/roles-that-would-have-gone-to-other-actors/)
+- [andy samberg plastic surgery](https://celebs.allwomenstalk.com/celebs-who-are-obsessed-with-true-detective/)
+- [pics of celebs](https://funny.allwomenstalk.com/adorably-funny-pictures-of-celebs-with-their-kids/)
 - [ezra fitz shirtless](https://movies.allwomenstalk.com/celebs-from-pretty-little-liars-who-love-to-live-tweet-during-the-show/)
 - [cloris leachman boy meets world](https://celebs.allwomenstalk.com/celebrities-who-will-be-guest-starring-on-girl-meets-world/)
+- [smile book characters](https://celebs.allwomenstalk.com/of-the-best-female-celebrity-smiles/)
+- [sean faris and robbie amell](https://celebs.allwomenstalk.com/celebs-from-cws-arrow-that-are-social-on-twitter/)
+- [toby regbo shirtless](https://celebs.allwomenstalk.com/teen-celebrities-worth-fangirling-over/)
+- [riche le stylo eye shadow glistening garnet](https://celebs.allwomenstalk.com/celebrities-and-their-godparents/)
 - [7 Worst Awards-Show Hosts ...](https://movies.allwomenstalk.com/7-worst-awards-show-hosts/)
 - [7 Bits of Spring Celebrity Gossip ...](https://allwomenstalk.com/7-bits-of-spring-celebrity-gossip/)
 

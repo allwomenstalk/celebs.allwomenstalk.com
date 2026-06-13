@@ -3,7 +3,7 @@ title: "Courteney Proud of David for Checking into Rehab..."
 description: "Stay ahead, stay chic. Trusted guides on beauty, wellness, fashion, and everything that defines today's empowered woman."
 url: "https://celebs.allwomenstalk.com/courteney-proud-of-david-for-checking-into-rehab/"
 category: "celebs"
-last_updated: "2026-06-11"
+last_updated: "2026-06-13"
 ---
 
 # Courteney Proud of David for Checking into Rehab...
@@ -22,16 +22,16 @@ I just hope these two can sort their mess out and work things out. For some reas
 
 ## Related Posts
 
+- [Johnny Never to Marry Vanessa ...](https://celebs.allwomenstalk.com/johnny-never-to-marry-vanessa/)
 - [Kyle Richards Not Sure about Being a Housewife…](https://celebs.allwomenstalk.com/kyle-richards-not-sure-about-being-a-housewife/)
+- [Michael Moore Plays Hero to WikiLeaks Cofounder...](https://celebs.allwomenstalk.com/michael-moore-plays-hero-to-wikileaks-cofounder/)
 - [take a risk chris brown](https://celebs.allwomenstalk.com/chris-brown-to-collaborate-with-justin-bieber/)
-- [Howard K Stern Freed by the Law ...](https://celebs.allwomenstalk.com/howard-k-stern-freed-by-the-law/)
 - [Britney Tweets about Jason's Beatings ...](https://celebs.allwomenstalk.com/britney-tweets-about-jasons-beatings/)
+- [wedding lauren miller rogen](https://celebs.allwomenstalk.com/seth-rogen-bares-his-soul-to-stern/)
+- [twitter leann rimes](https://celebs.allwomenstalk.com/leann-rimes-cibrian-tweets-her-happiness/)
 - [LeAnn & Eddie Not Allowed to Party....](https://celebs.allwomenstalk.com/leann-eddie-not-allowed-to-party/)
 - [Elton John Surprised by His Royal Invite…](https://celebs.allwomenstalk.com/elton-john-surprised-by-his-royal-invite/)
-- [twitter leann rimes](https://celebs.allwomenstalk.com/leann-rimes-cibrian-tweets-her-happiness/)
-- [wedding lauren miller rogen](https://celebs.allwomenstalk.com/seth-rogen-bares-his-soul-to-stern/)
-- [Michael Moore Plays Hero to WikiLeaks Cofounder...](https://celebs.allwomenstalk.com/michael-moore-plays-hero-to-wikileaks-cofounder/)
-- [Johnny Never to Marry Vanessa ...](https://celebs.allwomenstalk.com/johnny-never-to-marry-vanessa/)
+- [Howard K Stern Freed by the Law ...](https://celebs.allwomenstalk.com/howard-k-stern-freed-by-the-law/)
 - [Tawny Kitean Enters Drug Rehab Program](https://allwomenstalk.com/tawny-kitean-enters-drug-rehab-program/)
 - [Who'll Be Forced into Rehab Next?!?](https://allwomenstalk.com/wholl-be-forced-into-rehab-next/)
 

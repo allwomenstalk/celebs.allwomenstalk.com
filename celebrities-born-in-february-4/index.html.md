@@ -3,7 +3,7 @@ title: "Celebrities ⭐️ Born in February (Part 4 of 4) ..."
 description: "Drew Barrymore (Feb. 22); Emily Blunt (Feb. 23); Billy Zane (Feb. 24); Sean Astin (Feb. 25); James Wan (Feb. 26); More ..."
 url: "https://celebs.allwomenstalk.com/celebrities-born-in-february-4/"
 category: "celebs"
-last_updated: "2026-06-11"
+last_updated: "2026-06-13"
 ---
 
 # Celebrities ⭐️ Born in February \(Part 4 of 4\) ...
@@ -56,16 +56,16 @@ Who do you share a birthday with? Please leave in comments and stay tuned for ce
 
 ## Related Posts
 
-- [robert downey jr oscar winner](https://movies.allwomenstalk.com/incredible-actors-who-are-yet-to-win-an-oscar/)
-- [gal gadot brother](https://celebs.allwomenstalk.com/yaron-versano/)
-- [celebrities born on february 2](https://celebs.allwomenstalk.com/celebrities-born-in-february-2/)
 - [lake como celebrities](https://travel.allwomenstalk.com/where-celebrities-go-on-vacation/)
-- [what toothpaste do celebrities use](https://beauty.allwomenstalk.com/perfect-ways-to-get-a-celebrity-smile/)
-- [wokest celebrities](https://celebs.allwomenstalk.com/who-are-the-most-charitable-celebrities/)
-- [90s heartthrobs actors](https://celebs.allwomenstalk.com/heartthrobs-of-the-1990s/)
-- [brazilian asian baby](https://celebs.allwomenstalk.com/dont-hate-me-cause-im-cute-adorable-celeb-kids-we-love/)
-- [laurence fishburne ex-wife](https://celebs.allwomenstalk.com/celebrity-couples-who-split-in-2018/)
+- [robert downey jr oscar winner](https://movies.allwomenstalk.com/incredible-actors-who-are-yet-to-win-an-oscar/)
+- [celebrities born on february 2](https://celebs.allwomenstalk.com/celebrities-born-in-february-2/)
 - [celebrities born february 18](https://celebs.allwomenstalk.com/celebrities-born-in-february-3/)
+- [brazilian asian baby](https://celebs.allwomenstalk.com/dont-hate-me-cause-im-cute-adorable-celeb-kids-we-love/)
+- [gal gadot brother](https://celebs.allwomenstalk.com/yaron-versano/)
+- [wokest celebrities](https://celebs.allwomenstalk.com/who-are-the-most-charitable-celebrities/)
+- [what toothpaste do celebrities use](https://beauty.allwomenstalk.com/perfect-ways-to-get-a-celebrity-smile/)
+- [90s heartthrobs actors](https://celebs.allwomenstalk.com/heartthrobs-of-the-1990s/)
+- [laurence fishburne ex-wife](https://celebs.allwomenstalk.com/celebrity-couples-who-split-in-2018/)
 - [7 Inspiring Celebrities of 2011 ...](https://celebs.allwomenstalk.com/inspiring-celebrities-of/)
 - [10 Gorgeous Full-Figured Celebrities ...](https://celebs.allwomenstalk.com/gorgeous-full-figured-celebrities/)
 

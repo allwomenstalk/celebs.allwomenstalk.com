@@ -3,7 +3,7 @@ title: "7 Celebrities Who Have Had near Death Experiences ..."
 description: "Elizabeth Taylor; Tony Bennett; Jane Seymour; Ozzy Osbourne; Donald Sutherland; More ..."
 url: "https://celebs.allwomenstalk.com/celebrities-who-have-had-near-death-experiences/"
 category: "celebs"
-last_updated: "2026-06-11"
+last_updated: "2026-06-13"
 ---
 
 # 7 Celebrities Who Have Had near Death Experiences ...
@@ -58,16 +58,16 @@ We will never know what the afterlife truly looks like since no person's NDE is 
 
 ## Related Posts
 
-- [who lives in the same neighborhood as oprah?](https://celebs.allwomenstalk.com/celebrities-who-are-neighbors-in-real-life/)
 - [celebrities that were born rich](https://celebs.allwomenstalk.com/celebrities-who-were-born-rich/)
-- [female tv cops](https://celebs.allwomenstalk.com/brilliant-actors-actresses-who-have-played-cops-on-tv/)
-- [left at the altar](https://celebs.allwomenstalk.com/celebrities-who-were-left-at-the-altar/)
-- [celebrities with criminal records](https://celebs.allwomenstalk.com/celebrities-with-unexpected-criminal-records/)
-- [cameron diaz armpit](https://celebs.allwomenstalk.com/celebrities-who-supposedly-have-bad-hygiene/)
-- [extras celebrities](https://celebs.allwomenstalk.com/celebrities-who-started-out-as-extras/)
 - [7 Hollywood Same-Sex Couples We Love ...](https://celebs.allwomenstalk.com/hollywood-same-sex-couples-we-love/)
-- [famous career changes](https://celebs.allwomenstalk.com/of-the-best-career-changes-in-hollywood/)
+- [cameron diaz armpit](https://celebs.allwomenstalk.com/celebrities-who-supposedly-have-bad-hygiene/)
+- [who lives in the same neighborhood as oprah?](https://celebs.allwomenstalk.com/celebrities-who-are-neighbors-in-real-life/)
 - [who's a in pretty little liars season 1](https://celebs.allwomenstalk.com/pretty-little-liars-cast-members-who-also-dabble-in-music/)
+- [celebrities with criminal records](https://celebs.allwomenstalk.com/celebrities-with-unexpected-criminal-records/)
+- [left at the altar](https://celebs.allwomenstalk.com/celebrities-who-were-left-at-the-altar/)
+- [famous career changes](https://celebs.allwomenstalk.com/of-the-best-career-changes-in-hollywood/)
+- [extras celebrities](https://celebs.allwomenstalk.com/celebrities-who-started-out-as-extras/)
+- [female tv cops](https://celebs.allwomenstalk.com/brilliant-actors-actresses-who-have-played-cops-on-tv/)
 - [7 Celebrities with Addictions ...](https://celebs.allwomenstalk.com/celebrities-with-addictions/)
 - [7 Wonderfully Remarkable Celebrity Cancer Survivor...](https://celebs.allwomenstalk.com/wonderfully-remarkable-celebrity-cancer-survivor-stories/)
 

@@ -3,7 +3,7 @@ title: "15 Last Words from Famous People ..."
 description: "Bob Marley; John Lennon; J. M. Barrie; Thomas Edison; George Harrison; More ..."
 url: "https://celebs.allwomenstalk.com/last-words-from-famous-people/"
 category: "celebs"
-last_updated: "2026-06-11"
+last_updated: "2026-06-13"
 ---
 
 # 15 Last Words from Famous People ...
@@ -104,16 +104,16 @@ These famous people’s last words are interesting and I hope you’ve enjoyed r
 
 ## Related Posts
 
-- [words for meditate](https://inspiration.allwomenstalk.com/single-inspirational-words-to-meditate-on/)
 - [anger buddha](https://inspiration.allwomenstalk.com/enlightening-words-of-wisdom-from-buddha/)
-- [7 Inspirational People Who Will Change Your Outloo...](https://inspiration.allwomenstalk.com/inspirational-people-who-will-change-your-outlook/)
-- [great life lessons quotes](https://celebs.allwomenstalk.com/quotes-by-hilary-duff-that-teach-great-life-lessons/)
-- [famous quotes on time management](https://inspiration.allwomenstalk.com/inspirational-time-management-quotes-that-will-help-you-stay-focused/)
-- [when you feel humiliated](https://inspiration.allwomenstalk.com/fantastic-quotes-from-diane-von-furstenberg/)
-- [inspirational broken heart quotes](https://love.allwomenstalk.com/inspirational-quotes-for-the-broken-hearted/)
-- [orange is the new black quotes](https://funny.allwomenstalk.com/funny-quotes-from-orange-is-the-new-black/)
-- [end of school year quotes](https://teen.allwomenstalk.com/inspirational-quotes-to-help-you-finish-the-school-year/)
 - [ayn rand atlas shrugged quotes](https://inspiration.allwomenstalk.com/ayn-rand-quotes-to-inspire-your-inner-objectivist/)
+- [inspirational broken heart quotes](https://love.allwomenstalk.com/inspirational-quotes-for-the-broken-hearted/)
+- [7 Inspirational People Who Will Change Your Outloo...](https://inspiration.allwomenstalk.com/inspirational-people-who-will-change-your-outlook/)
+- [words for meditate](https://inspiration.allwomenstalk.com/single-inspirational-words-to-meditate-on/)
+- [when you feel humiliated](https://inspiration.allwomenstalk.com/fantastic-quotes-from-diane-von-furstenberg/)
+- [great life lessons quotes](https://celebs.allwomenstalk.com/quotes-by-hilary-duff-that-teach-great-life-lessons/)
+- [end of school year quotes](https://teen.allwomenstalk.com/inspirational-quotes-to-help-you-finish-the-school-year/)
+- [orange is the new black quotes](https://funny.allwomenstalk.com/funny-quotes-from-orange-is-the-new-black/)
+- [famous quotes on time management](https://inspiration.allwomenstalk.com/inspirational-time-management-quotes-that-will-help-you-stay-focused/)
 - [5 Cool Quotes from Twilight ...](https://twilight.allwomenstalk.com/5-cool-quotes-from-twilight/)
 - [8 Celebrity Smoking Quotes ...](https://celebs.allwomenstalk.com/celebrity-smoking-quotes/)
 

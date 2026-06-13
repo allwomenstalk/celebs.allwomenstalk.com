@@ -3,7 +3,7 @@ title: "13 Brunette Actresses with the Best Sense of Humor ..."
 description: "Tina Fey; Kristen Wiig; Mindy Kaling; Sarah Silverman; Melissa McCarthy; More ..."
 url: "https://celebs.allwomenstalk.com/funniest-female-actresses-in-hollywood/"
 category: "celebs"
-last_updated: "2026-06-11"
+last_updated: "2026-06-13"
 ---
 
 # 13 Brunette Actresses with the Best Sense of Humor ...
@@ -94,16 +94,16 @@ These actresses sure know how to serve up the laughs as well as light up the sil
 
 ## Related Posts
 
+- [lucy pinder toppless](https://celebs.allwomenstalk.com/good-hearted-celebrities-who-took-adopted-children-under-their-wings/)
+- [polydactyly celebrities](https://celebs.allwomenstalk.com/celebrities-with-body-deformities-that-will-shock-you/)
+- [jamie lynn weight gain](https://celebs.allwomenstalk.com/dramatic-celebrity-weight-loss-stories/)
+- [late bloomer celebrities](https://celebs.allwomenstalk.com/celebrities-who-found-success-later-in-life/)
 - [real life tv couples](https://movies.allwomenstalk.com/adorable-tv-couples-you-wish-were-dating-in-real-life/)
+- [pink celebrities](https://fashion.allwomenstalk.com/celebrities-totally-rocking-the-hot-pink-trend/)
+- [celebrity bffs](https://celebs.allwomenstalk.com/celebrity-bffs-who-are-the-real-deal/)
 - [twins who are both actors](https://celebs.allwomenstalk.com/celebrities-you-didnt-know-were-twins-thatll-surprise-you/)
 - [celebrity couples who met on set](https://celebs.allwomenstalk.com/celebrity-couples-who-met-on-a-movie-set/)
-- [jamie lynn weight gain](https://celebs.allwomenstalk.com/dramatic-celebrity-weight-loss-stories/)
-- [polydactyly celebrities](https://celebs.allwomenstalk.com/celebrities-with-body-deformities-that-will-shock-you/)
 - [most scandalous celebrities](https://celebs.allwomenstalk.com/scandalous-celebrity-murders-that-shook-hollywood/)
-- [lucy pinder toppless](https://celebs.allwomenstalk.com/good-hearted-celebrities-who-took-adopted-children-under-their-wings/)
-- [pink celebrities](https://fashion.allwomenstalk.com/celebrities-totally-rocking-the-hot-pink-trend/)
-- [late bloomer celebrities](https://celebs.allwomenstalk.com/celebrities-who-found-success-later-in-life/)
-- [celebrity bffs](https://celebs.allwomenstalk.com/celebrity-bffs-who-are-the-real-deal/)
 - [10 Stunning Leading Ladies ...](https://movies.allwomenstalk.com/stunning-leading-ladies/)
 - [18 Blonde Actresses We All Know and Love ...](https://celebs.allwomenstalk.com/25-hottest-blonde-celebrities/)
 

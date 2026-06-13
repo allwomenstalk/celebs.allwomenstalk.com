@@ -3,7 +3,7 @@ title: "8 Hot Hollywood Stars with Troubled Pasts ..."
 description: "Drew Barrymore; Tyler Perry; Charlize Theron; Britney Spears; Johnny Depp; More ..."
 url: "https://celebs.allwomenstalk.com/hot-hollywood-stars-with-troubled-pasts/"
 category: "celebs"
-last_updated: "2026-06-11"
+last_updated: "2026-06-13"
 ---
 
 # 8 Hot Hollywood Stars with Troubled Pasts ...
@@ -64,16 +64,16 @@ Top Image Source: [weheartit.com](https://weheartit.com/entry/21165120)
 
 ## Related Posts
 
-- [dilf celebs](https://celebs.allwomenstalk.com/gorgeous-celebrities-both-men-and-women-drool-over/)
-- [celebrity girl crush list](https://celebs.allwomenstalk.com/fabulous-celebrities-its-okay-to-have-a-girl-crush-on/)
-- [celebs with rosacea](https://skincare.allwomenstalk.com/hot-celebs-with-skincare-issues/)
-- [stephenie meyer twilight cameo](https://movies.allwomenstalk.com/writers-who-made-a-cameo-appearance/)
 - [celebrities in trouble with the law](https://celebs.allwomenstalk.com/celebrities-who-have-been-in-trouble-with-the-law/)
 - [edward cullen sixpack](https://celebs.allwomenstalk.com/top-hot-actors-who-should-play-christian-grey/)
-- [sexiest comedian](https://celebs.allwomenstalk.com/hottest-comedians/)
-- [best front men](https://celebs.allwomenstalk.com/hottest-band-front-men/)
 - [is natalie portman smart](https://celebs.allwomenstalk.com/super-smart-celebrities/)
+- [dilf celebs](https://celebs.allwomenstalk.com/gorgeous-celebrities-both-men-and-women-drool-over/)
+- [celebrity girl crush list](https://celebs.allwomenstalk.com/fabulous-celebrities-its-okay-to-have-a-girl-crush-on/)
+- [stephenie meyer twilight cameo](https://movies.allwomenstalk.com/writers-who-made-a-cameo-appearance/)
+- [sexiest comedian](https://celebs.allwomenstalk.com/hottest-comedians/)
 - [glitter bodysuits](https://celebs.allwomenstalk.com/best-sparkly-bodysuits-on-celebrities/)
+- [celebs with rosacea](https://skincare.allwomenstalk.com/hot-celebs-with-skincare-issues/)
+- [best front men](https://celebs.allwomenstalk.com/hottest-band-front-men/)
 - [7 Celebrities with Addictions ...](https://celebs.allwomenstalk.com/celebrities-with-addictions/)
 - [8 Famous Hollywood Divorces ...](https://celebs.allwomenstalk.com/famous-hollywood-divorces/)
 

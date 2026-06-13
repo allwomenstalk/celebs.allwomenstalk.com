@@ -3,7 +3,7 @@ title: "17 Brilliant Actors & Actresses Who Have Played Cops on TV ..."
 description: "Angie Dickinson – Police Woman; Peter Falk - Columbo; Don Johnson – Miami Vice; Robert Urich – Spenser: for Hire; Bruce Willis – Moonlighting; More ..."
 url: "https://celebs.allwomenstalk.com/brilliant-actors-actresses-who-have-played-cops-on-tv/"
 category: "celebs"
-last_updated: "2026-06-11"
+last_updated: "2026-06-13"
 ---
 
 # 17 Brilliant Actors & Actresses Who Have Played Cops on TV ...
@@ -116,15 +116,15 @@ It’s fun to watch these again. I get no less than three stations that air reru
 
 ## Related Posts
 
-- [celebrities that were born rich](https://celebs.allwomenstalk.com/celebrities-who-were-born-rich/)
-- [famous career changes](https://celebs.allwomenstalk.com/of-the-best-career-changes-in-hollywood/)
+- [cameron diaz armpit](https://celebs.allwomenstalk.com/celebrities-who-supposedly-have-bad-hygiene/)
+- [celebrities with criminal records](https://celebs.allwomenstalk.com/celebrities-with-unexpected-criminal-records/)
 - [river phoenix and anna nicole smith](https://celebs.allwomenstalk.com/amazing-actors-who-died-before-their-time/)
 - [tyler posey and miley cyrus](https://celebs.allwomenstalk.com/celebrity-couples-that-you-probably-forgot-about/)
+- [famous career changes](https://celebs.allwomenstalk.com/of-the-best-career-changes-in-hollywood/)
 - [who lives in the same neighborhood as oprah?](https://celebs.allwomenstalk.com/celebrities-who-are-neighbors-in-real-life/)
+- [celebrities that were born rich](https://celebs.allwomenstalk.com/celebrities-who-were-born-rich/)
 - [celebrities with same name](https://celebs.allwomenstalk.com/celebrities-who-changed-their-names-when-they-attained-stardom/)
-- [celebrities with criminal records](https://celebs.allwomenstalk.com/celebrities-with-unexpected-criminal-records/)
 - [7 Hollywood Same-Sex Couples We Love ...](https://celebs.allwomenstalk.com/hollywood-same-sex-couples-we-love/)
-- [cameron diaz armpit](https://celebs.allwomenstalk.com/celebrities-who-supposedly-have-bad-hygiene/)
 - [extras celebrities](https://celebs.allwomenstalk.com/celebrities-who-started-out-as-extras/)
 - [7 Iconic Movies Roles That Were Almost Played by O...](https://movies.allwomenstalk.com/7-iconic-movies-roles-that-were-almost-played-by-other-actors/)
 - [7 Best Cop Movies You Can't Resist ...](https://movies.allwomenstalk.com/best-cop-movies-you-cant-resist/)

@@ -3,7 +3,7 @@ title: "7 Barbie Dolls of Celebrity Singers That You've Got to See to Believe ..
 description: "Katy Perry; Frank Sinatra; One Direction; Tim McGraw and Faith Hill; Taylor Swift; More ..."
 url: "https://celebs.allwomenstalk.com/barbie-dolls-of-celebrity-singers-that-youve-got-to-see-to-believe/"
 category: "celebs"
-last_updated: "2026-06-11"
+last_updated: "2026-06-13"
 ---
 
 # 7 Barbie Dolls of Celebrity Singers That You've Got to See to Believe ...
@@ -56,16 +56,16 @@ If you’re a super fan of any of these artists, why not buy their doll? You can
 
 ## Related Posts
 
-- [celebrities who beat breast cancer](https://celebs.allwomenstalk.com/celebrities-who-have-beaten-breast-cancer-to-be-inspired-by/)
-- [talented celebrities](https://celebs.allwomenstalk.com/talented-celebrities-you-didnt-know-could-sing-really-well/)
-- [tv man hot](https://movies.allwomenstalk.com/sexiest-men-on-tv-right-now-that-we-cant-stop-drooling-over/)
 - [scarlett johansson jennifer aniston emma watson mi...](https://celebs.allwomenstalk.com/celebs-with-fantastic-hair-i-wish-i-had/)
-- [celebrities with very fine hair](https://hair.allwomenstalk.com/fabulous-celebrity-hair-crushes-we-absolutely-adore/)
+- [talented celebrities](https://celebs.allwomenstalk.com/talented-celebrities-you-didnt-know-could-sing-really-well/)
+- [celebrity long hair](https://celebs.allwomenstalk.com/drastic-celebrity-hair-cuts-that-caused-a-stir/)
 - [what is the most expensive body part](https://celebs.allwomenstalk.com/most-expensive-celebrity-insurance-policies/)
 - [the actress with the eyebrows](https://celebs.allwomenstalk.com/beautiful-celebrities-with-gorgeous-eyebrows-to-die-for/)
-- [celebrities shop too](https://celebs.allwomenstalk.com/wealthy-celebrities-who-thrift-shop-and-are-proud-of-it/)
-- [celebrity long hair](https://celebs.allwomenstalk.com/drastic-celebrity-hair-cuts-that-caused-a-stir/)
+- [celebrities with very fine hair](https://hair.allwomenstalk.com/fabulous-celebrity-hair-crushes-we-absolutely-adore/)
+- [tv man hot](https://movies.allwomenstalk.com/sexiest-men-on-tv-right-now-that-we-cant-stop-drooling-over/)
 - [famous people who are hated](https://celebs.allwomenstalk.com/celebrities-people-love-to-hate/)
+- [celebrities who beat breast cancer](https://celebs.allwomenstalk.com/celebrities-who-have-beaten-breast-cancer-to-be-inspired-by/)
+- [celebrities shop too](https://celebs.allwomenstalk.com/wealthy-celebrities-who-thrift-shop-and-are-proud-of-it/)
 - [8 Surprising Music Video Stars ...](https://celebs.allwomenstalk.com/surprising-music-video-stars/)
 - [10 Gorgeous Full-Figured Celebrities ...](https://celebs.allwomenstalk.com/gorgeous-full-figured-celebrities/)
 

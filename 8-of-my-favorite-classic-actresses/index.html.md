@@ -3,7 +3,7 @@ title: "8 of My Favorite Classic Actresses ..."
 description: "Rita Hayworth; Natalie Wood; Mae West; Greta Garbo; Bette Davis; More ..."
 url: "https://celebs.allwomenstalk.com/8-of-my-favorite-classic-actresses/"
 category: "celebs"
-last_updated: "2026-06-11"
+last_updated: "2026-06-13"
 ---
 
 # 8 of My Favorite Classic Actresses ...
@@ -62,16 +62,16 @@ Out of this list of 8 of my favorite classic actresses, which one do you think s
 
 ## Related Posts
 
-- [what did marion donovan invent](https://lifestyle.allwomenstalk.com/things-women-invented-first/)
-- [notorious women](https://celebs.allwomenstalk.com/8-notorious-women/)
-- [debbi fields bikini](https://lifestyle.allwomenstalk.com/brilliant-female-entrepreneurs/)
 - [most beautiful royal princess](https://celebs.allwomenstalk.com/famous-princesses-throughout-history/)
+- [color riche stylo eye emerald conquest](https://allwomenstalk.com/cmon-ladiesbe-pigs/)
 - [good shows for girls](https://lifestyle.allwomenstalk.com/great-tv-shows-for-women/)
-- [most notable women in history](https://lifestyle.allwomenstalk.com/influential-women-throughout-history/)
+- [debbi fields bikini](https://lifestyle.allwomenstalk.com/brilliant-female-entrepreneurs/)
 - [well known black actresses](https://celebs.allwomenstalk.com/7-wonderful-black-actresses/)
 - [7 Most Influential Women of the Last Decade ...](https://celebs.allwomenstalk.com/7-most-influential-women-of-the-last-decade/)
+- [notorious women](https://celebs.allwomenstalk.com/8-notorious-women/)
+- [most notable women in history](https://lifestyle.allwomenstalk.com/influential-women-throughout-history/)
 - [7 Best Multivitamins for Women ...](https://health.allwomenstalk.com/best-multivitamins-for-women/)
-- [color riche stylo eye emerald conquest](https://allwomenstalk.com/cmon-ladiesbe-pigs/)
+- [what did marion donovan invent](https://lifestyle.allwomenstalk.com/things-women-invented-first/)
 - [8 of My Favourite Movie Characters ...](https://movies.allwomenstalk.com/8-of-my-favourite-movie-characters/)
 - [8 Most Memorable Silent Movie Stars ...](https://movies.allwomenstalk.com/8-most-memorable-silent-movie-stars/)
 

@@ -3,7 +3,7 @@ title: "These Are the Amazing People Who Got Presidential Medal of Freedom This 
 description: "Ellen DeGeneres; Tom Hanks; Michael Jordan; Robert De Niro; Bruce Springsteen; More ..."
 url: "https://celebs.allwomenstalk.com/these-are-the-amazing-people-who-got-presidential-medal-of-freedom-this-year/"
 category: "celebs"
-last_updated: "2026-06-11"
+last_updated: "2026-06-13"
 ---
 
 # These Are the Amazing People Who Got Presidential Medal of Freedom This Year ...
@@ -140,16 +140,16 @@ Which of these awesome award-winners is your favorite, and how do they inspire y
 
 ## Related Posts
 
-- [Full List of Leonardo DiCaprio’s Serious Girlfrien...](https://celebs.allwomenstalk.com/leonardo-dicaprio-girlfriends-list/)
-- [Celebrities Top Choice in 2019: Bum Lift ...](https://fitene.com/celebrities-top-choice-in-bum-lift/)
-- [My Friends with Benefits Experience Part 1: the Ac...](https://love.allwomenstalk.com/friends-with-benefits-experience/)
 - [Why Are There No Huge Celebrities Anymore?](https://celebs.allwomenstalk.com/why-are-there-no-huge-celebrities-anymore/)
-- [teenage celeberties](https://allwomenstalk.com/15-hottest-teen-celebrities/)
-- [15 Iconic New York City Socialites of the 20th Cen...](https://celebs.allwomenstalk.com/famous-new-york-city-socialites/)
-- [7 Hottest Hunks on the US Olympic Team 🥇 ...](https://celebs.allwomenstalk.com/hottest-athletes-on-the-us-winter-olympics-team/)
+- [Full List of Leonardo DiCaprio’s Serious Girlfrien...](https://celebs.allwomenstalk.com/leonardo-dicaprio-girlfriends-list/)
 - [celebs who have cheated](https://celebs.allwomenstalk.com/celebs-who-have-cheated/)
+- [Celebrities Top Choice in 2019: Bum Lift ...](https://fitene.com/celebrities-top-choice-in-bum-lift/)
 - [20 Most Popular Ariana Grande Songs That Shaped He...](https://music.allwomenstalk.com/ariana-grande-most-popular-songs/)
+- [7 Hottest Hunks on the US Olympic Team 🥇 ...](https://celebs.allwomenstalk.com/hottest-athletes-on-the-us-winter-olympics-team/)
+- [15 Iconic New York City Socialites of the 20th Cen...](https://celebs.allwomenstalk.com/famous-new-york-city-socialites/)
 - [10 LGBTQ+ Icons Everyone Should Be Aware of ...](https://celebs.allwomenstalk.com/lgbt-icons-everyone-should-be-aware-of/)
+- [My Friends with Benefits Experience Part 1: the Ac...](https://love.allwomenstalk.com/friends-with-benefits-experience/)
+- [teenage celeberties](https://allwomenstalk.com/15-hottest-teen-celebrities/)
 - [Top Celebrity Philantrophists ...](https://celebs.allwomenstalk.com/top-celebrity-philantrophists/)
 - [Golden Globe 2011 Nominations ...](https://celebs.allwomenstalk.com/golden-globe-nominations/)
 

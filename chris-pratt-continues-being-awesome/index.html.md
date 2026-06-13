@@ -3,7 +3,7 @@ title: "Chris Pratt Continues Being Awesome ..."
 description: "Stay ahead, stay chic. Trusted guides on beauty, wellness, fashion, and everything that defines today's empowered woman."
 url: "https://celebs.allwomenstalk.com/chris-pratt-continues-being-awesome/"
 category: "celebs"
-last_updated: "2026-06-11"
+last_updated: "2026-06-13"
 ---
 
 # Chris Pratt Continues Being Awesome ...
@@ -20,16 +20,16 @@ Don't you love it when people give back like this?
 
 ## Related Posts
 
-- [TBT Wrap up: 10 Celeb Posts You Need to See ...](https://celebs.allwomenstalk.com/tbt-wrap-up-celeb-posts-you-need-to-see/)
-- [Today's Wrap up: What Celebrities Posted on Instag...](https://celebs.allwomenstalk.com/todays-wrap-up-what-celebrities-posted-on-instagram/)
 - [#TBT Wrap-up: What Celebrities Posted This Week!](https://celebs.allwomenstalk.com/tbt-wrap-up-what-celebrities-posted-this-week/)
-- [These Popular Celebrities Are Also Best Selling Au...](https://celebs.allwomenstalk.com/celebrities-who-are-best-selling-authors/)
-- [Weekend Wrap up: What Celebs Posted This Weekend ....](https://celebs.allwomenstalk.com/weekend-wrap-up-what-celebs-posted-this-weekend-2/)
-- [27 celebrities that everyone agrees are impossible...](https://celebs.allwomenstalk.com/these-celebs-are-just-impossible-to-hate/)
-- [Fan-girling Mania: Celebrities do It Too!](https://celebs.allwomenstalk.com/fan-girling-mania-celebrities-do-it-too/)
-- [Today's Roundup: What Celebrities Posted on Instag...](https://celebs.allwomenstalk.com/todays-roundup-what-celebrities-posted-on-instagram/)
-- [Happy Tuesday! Here's What Celebs Posted Today!](https://celebs.allwomenstalk.com/happy-tuesday-heres-what-celebs-posted-today/)
 - [Weekend Wrap up: What Celebs Posted at the Weekend...](https://celebs.allwomenstalk.com/weekend-wrap-up-what-celebs-posted-this-weekend/)
+- [These Popular Celebrities Are Also Best Selling Au...](https://celebs.allwomenstalk.com/celebrities-who-are-best-selling-authors/)
+- [27 celebrities that everyone agrees are impossible...](https://celebs.allwomenstalk.com/these-celebs-are-just-impossible-to-hate/)
+- [TBT Wrap up: 10 Celeb Posts You Need to See ...](https://celebs.allwomenstalk.com/tbt-wrap-up-celeb-posts-you-need-to-see/)
+- [Today's Roundup: What Celebrities Posted on Instag...](https://celebs.allwomenstalk.com/todays-roundup-what-celebrities-posted-on-instagram/)
+- [Today's Wrap up: What Celebrities Posted on Instag...](https://celebs.allwomenstalk.com/todays-wrap-up-what-celebrities-posted-on-instagram/)
+- [Weekend Wrap up: What Celebs Posted This Weekend ....](https://celebs.allwomenstalk.com/weekend-wrap-up-what-celebs-posted-this-weekend-2/)
+- [Fan-girling Mania: Celebrities do It Too!](https://celebs.allwomenstalk.com/fan-girling-mania-celebrities-do-it-too/)
+- [Happy Tuesday! Here's What Celebs Posted Today!](https://celebs.allwomenstalk.com/happy-tuesday-heres-what-celebs-posted-today/)
 - [A Biography on Robert Pattinson ...](https://twilight.allwomenstalk.com/a-biography-on-robert-pattinson/)
 - [The Hobbit Shooting in Jeopardy Once Again...](https://celebs.allwomenstalk.com/the-hobbit-shooting-in-jeopardy-once-again/)
 

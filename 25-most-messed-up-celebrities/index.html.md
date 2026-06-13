@@ -3,7 +3,7 @@ title: "25 Most Messed up Celebrities ..."
 description: "Katie Price a.k.a Jordan; Sienna Miller; Courtney Love; Lauryn Hill; Jonathan Rhys Meyers; More ..."
 url: "https://celebs.allwomenstalk.com/25-most-messed-up-celebrities/"
 category: "celebs"
-last_updated: "2026-06-11"
+last_updated: "2026-06-13"
 ---
 
 # 25 Most Messed up Celebrities ...
@@ -171,16 +171,16 @@ So these were my 25 super messed up celebrities of all time!! Be it horrendous p
 
 ## Related Posts
 
-- [celebrities to follow on twitter](https://celebs.allwomenstalk.com/celebs-to-follow-on-twitter/)
-- [fashionable celebrities](https://celebs.allwomenstalk.com/fashionable-celebrities-to-watch-in/)
-- [older actress blonde hair](https://celebs.allwomenstalk.com/25-hottest-blonde-celebrities/)
 - [7 Recent Celebrity Breakups ...](https://celebs.allwomenstalk.com/recent-celebrity-breakups/)
+- [fashionable celebrities](https://celebs.allwomenstalk.com/fashionable-celebrities-to-watch-in/)
+- [celebrities to follow on twitter](https://celebs.allwomenstalk.com/celebs-to-follow-on-twitter/)
+- [female celebrities with dimples](https://celebs.allwomenstalk.com/cool-celebrities-with-dimples/)
 - [celebs who live in nyc](https://celebs.allwomenstalk.com/celebrities-who-live-in-nyc/)
 - [hot supermodels](https://celebs.allwomenstalk.com/25-hottest-supermodels/)
-- [adopted people](https://celebs.allwomenstalk.com/10-famous-people-who-were-adopted/)
-- [female celebrities with dimples](https://celebs.allwomenstalk.com/cool-celebrities-with-dimples/)
-- [child stars who aged badly](https://celebs.allwomenstalk.com/celebrities-that-look-older-than-their-true-age/)
 - [bubbly personality celebrities](https://celebs.allwomenstalk.com/7-of-my-favorite-celebrities/)
+- [child stars who aged badly](https://celebs.allwomenstalk.com/celebrities-that-look-older-than-their-true-age/)
+- [older actress blonde hair](https://celebs.allwomenstalk.com/25-hottest-blonde-celebrities/)
+- [adopted people](https://celebs.allwomenstalk.com/10-famous-people-who-were-adopted/)
 - [25 Hottest Celebrity Moms ...](https://celebs.allwomenstalk.com/25-hottest-celebrity-moms/)
 - [25 Smartest Celebrities ...](https://celebs.allwomenstalk.com/25-smartest-celebrities/)
 

@@ -3,7 +3,7 @@ title: "Inspirational Dolls That Beat Barbies ..."
 description: "ROBERTA BONDAR; JANE GOODALL; WARIS DIRIE; J.K. ROWLING; MALALA YOUSAFZAI; More ..."
 url: "https://celebs.allwomenstalk.com/inspirational-dolls-that-beat-barbies/"
 category: "celebs"
-last_updated: "2026-06-11"
+last_updated: "2026-06-13"
 ---
 
 # Inspirational Dolls That Beat Barbies ...
@@ -44,16 +44,16 @@ Which famous woman would you love to be seen made into a doll?
 
 ## Related Posts
 
-- [regina george drag](https://beauty.allwomenstalk.com/drag-queens-who-are-slaying-the-game/)
 - [gender revals](https://parenting.allwomenstalk.com/awesome-gender-reveals/)
 - [what does nicole riot face tattoo say](https://beauty.allwomenstalk.com/these-feminist-tattoos-will-make-you-proud-to-be-a-woman/)
-- [sarah scribbles boyfriend](https://funny.allwomenstalk.com/what-its-like-to-be-a-woman-in-the-modern-world-in-comics/)
 - [disney gifs funny](https://funny.allwomenstalk.com/disney-gifs-that-pretty-much-sum-up-every-womans-life/)
-- [best female sitcom characters](https://movies.allwomenstalk.com/the-best-female-buddy-sitcoms-that-make-you-appreciate-your-bff/)
-- [site:allwomenstalk.com](https://love.allwomenstalk.com/ridiculous-myths-about-bisexual-women/)
 - [rainbow face freckles](https://beauty.allwomenstalk.com/women-are-now-wearing-rainbow-freckles-on-their-faces/)
+- [site:allwomenstalk.com](https://love.allwomenstalk.com/ridiculous-myths-about-bisexual-women/)
+- [best female sitcom characters](https://movies.allwomenstalk.com/the-best-female-buddy-sitcoms-that-make-you-appreciate-your-bff/)
+- [sarah scribbles boyfriend](https://funny.allwomenstalk.com/what-its-like-to-be-a-woman-in-the-modern-world-in-comics/)
 - [barby beauty](https://beauty.allwomenstalk.com/these-new-barbies-are-changing-beauty-standards/)
 - [infographic essay writing](https://books.allwomenstalk.com/infographics-for-women-who-write/)
+- [regina george drag](https://beauty.allwomenstalk.com/drag-queens-who-are-slaying-the-game/)
 - [The Best Gifts for Girls That Can Touch Their Soul...](https://allwomenstalk.com/best-gifts-for-girls/)
 - [Women Who Inspire ...](https://allwomenstalk.com/women-who-inspire/)
 

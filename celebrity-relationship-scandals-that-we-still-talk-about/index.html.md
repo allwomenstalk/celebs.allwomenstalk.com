@@ -3,7 +3,7 @@ title: "9 Celebrity Relationship Scandals That We Still Talk about ..."
 description: "Mia Farrow and Woody Allen; Jennifer Aniston and Brad Pitt; Robyn Moore and Mel Gibson; Kelly Preston and John Travolta; Hillary and Bill Clinton; More ..."
 url: "https://celebs.allwomenstalk.com/celebrity-relationship-scandals-that-we-still-talk-about/"
 category: "celebs"
-last_updated: "2026-06-11"
+last_updated: "2026-06-13"
 ---
 
 # 9 Celebrity Relationship Scandals That We Still Talk about ...
@@ -69,15 +69,15 @@ It's interesting that so many celebrities play the love game so badly. I've alwa
 ## Related Posts
 
 - [7 Heartbreaking Celebrity Splits That We Still Can...](https://celebs.allwomenstalk.com/heartbreaking-celebrity-splits-that-we-still-cant-get-over/)
+- [7 Tenacious Rumors about the Kardashians ...](https://celebs.allwomenstalk.com/tenacious-rumors-about-the-kardashians/)
+- [7 Breakout Actors to Watch out for in 2014 ...](https://celebs.allwomenstalk.com/breakout-actors-to-watch-out-for-in/)
+- [9 down to Earth Celebs Who Would Make Great BFFs ....](https://celebs.allwomenstalk.com/down-to-earth-celebs-who-would-make-great-bffs/)
+- [celebrity body transformations](https://celebs.allwomenstalk.com/celebrity-body-transformations-that-are-truly-amazing/)
 - [11 Super Sweet Celebrity Couples in 2014 ...](https://celebs.allwomenstalk.com/super-sweet-celebrity-couples-in/)
 - [7 Celebrities Who Were Fired from Their Own Shows ...](https://celebs.allwomenstalk.com/celebrities-who-were-fired-from-their-own-shows/)
-- [9 down to Earth Celebs Who Would Make Great BFFs ....](https://celebs.allwomenstalk.com/down-to-earth-celebs-who-would-make-great-bffs/)
 - [9 Amazing Athletes That People Love and Hate Equal...](https://celebs.allwomenstalk.com/amazing-athletes-that-people-love-and-hate-equally/)
 - [7 Celebrity Feuds That Just Wont Stop ...](https://celebs.allwomenstalk.com/celebrity-feuds-that-just-wont-stop/)
 - [7 Amusing Internet Personalities We Love to Hate ....](https://funny.allwomenstalk.com/internet-personalities-we-love-to-hate/)
-- [7 Tenacious Rumors about the Kardashians ...](https://celebs.allwomenstalk.com/tenacious-rumors-about-the-kardashians/)
-- [celebrity body transformations](https://celebs.allwomenstalk.com/celebrity-body-transformations-that-are-truly-amazing/)
-- [7 Breakout Actors to Watch out for in 2014 ...](https://celebs.allwomenstalk.com/breakout-actors-to-watch-out-for-in/)
 - [Cheaters Anonymous No More! the 5 Most Scandalous ...](https://allwomenstalk.com/cheaters-5-most-scandalous-affairs-in-the-us/)
 - [10 Celebrities We Love to Hate ...](https://allwomenstalk.com/top-8-most-loved-celebrities/)
 

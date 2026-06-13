@@ -3,7 +3,7 @@ title: "10 Ugliest Celebrity Fashion Faux Pas of 2011 ..."
 description: "Katy Perry's Smurf Dress; Emma Stone's Hot Pink Disaster; Ginnifer Goodwin's Yellow Celebrity Fashion Faux Pas; Melissa George's Night Gown; Oliva Munn's Dotty Dress; More ..."
 url: "https://celebs.allwomenstalk.com/ugliest-celebrity-fashion-faux-pas-of/"
 category: "celebs"
-last_updated: "2026-06-11"
+last_updated: "2026-06-13"
 ---
 
 # 10 Ugliest Celebrity Fashion Faux Pas of 2011 ...
@@ -76,16 +76,16 @@ Top Image Source: [weheartit.com](https://weheartit.com/entry/12496968)
 
 ## Related Posts
 
-- [emma watson harry potter premiere outfits](https://celebs.allwomenstalk.com/emma-watsons-red-carpet-looks-for-harry-potter/)
-- [iconic red carpet outfits](https://celebs.allwomenstalk.com/iconic-red-carpet-celebrity-looks/)
-- [25 Oscar Nominees Who Should Win This Year ...](https://bilbr.com/25-oscar-nominees-who-should-win-this-year/)
-- [vanity fair best dressed](https://celebs.allwomenstalk.com/people-who-made-it-on-vanity-fairs-best-dressed-list/)
-- [Grammy 2011 Nominations: Eminem's Leads the Way .....](https://celebs.allwomenstalk.com/grammy-nominations-eminems-leads-the-way/)
-- [golden globes 2011](https://celebs.allwomenstalk.com/golden-globe-nominations/)
-- [nf face makeup](https://celebs.allwomenstalk.com/celebrity-fashion-face-off-pick-your-winners/)
-- [The King's Speech Leads the SAG Nominations...](https://celebs.allwomenstalk.com/the-kings-speech-leads-the-sag-nominations/)
-- [The Oscar Race is on...](https://celebs.allwomenstalk.com/the-oscar-race-is-on/)
 - [most stylish actresses](https://celebs.allwomenstalk.com/most-stylish-female-celebrities-of/)
+- [golden globes 2011](https://celebs.allwomenstalk.com/golden-globe-nominations/)
+- [iconic red carpet outfits](https://celebs.allwomenstalk.com/iconic-red-carpet-celebrity-looks/)
+- [nf face makeup](https://celebs.allwomenstalk.com/celebrity-fashion-face-off-pick-your-winners/)
+- [vanity fair best dressed](https://celebs.allwomenstalk.com/people-who-made-it-on-vanity-fairs-best-dressed-list/)
+- [emma watson harry potter premiere outfits](https://celebs.allwomenstalk.com/emma-watsons-red-carpet-looks-for-harry-potter/)
+- [25 Oscar Nominees Who Should Win This Year ...](https://bilbr.com/25-oscar-nominees-who-should-win-this-year/)
+- [The King's Speech Leads the SAG Nominations...](https://celebs.allwomenstalk.com/the-kings-speech-leads-the-sag-nominations/)
+- [Grammy 2011 Nominations: Eminem's Leads the Way .....](https://celebs.allwomenstalk.com/grammy-nominations-eminems-leads-the-way/)
+- [The Oscar Race is on...](https://celebs.allwomenstalk.com/the-oscar-race-is-on/)
 - [Pick Worst Dressed at the Chanel Fall/Winter 2010-...](https://celebs.allwomenstalk.com/chanel-fallwinter/)
 - [The Best Dressed Women of 2010 ...](https://celebs.allwomenstalk.com/the-best-dressed-women-of/)
 

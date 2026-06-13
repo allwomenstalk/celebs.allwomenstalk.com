@@ -3,7 +3,7 @@ title: "11 Intelligent Celebrities with Ivy League Diplomas ..."
 description: "Mindy Kaling; Emma Watson; Rashida Jones; Natalie Portman; John Krasinski; More ..."
 url: "https://celebs.allwomenstalk.com/intelligent-celebrities-with-ivy-league-diplomas/"
 category: "celebs"
-last_updated: "2026-06-11"
+last_updated: "2026-06-13"
 ---
 
 # 11 Intelligent Celebrities with Ivy League Diplomas ...
@@ -80,16 +80,16 @@ Well, there you have it. These are just 11 out of so many awesome and intelligen
 
 ## Related Posts
 
+- [sara ramirez on law and order svu](https://celebs.allwomenstalk.com/celebrities-who-guest-starred-on-law-order/)
+- [sabrina carpenter boots](https://celebs.allwomenstalk.com/co-stars-who-are-also-best-friends-in-real-life/)
+- [courtside celebrities](https://celebs.allwomenstalk.com/celebs-cant-get-enough-of-basketball-sightings-of-courtside-celebs/)
 - [independence day alicia casse](https://celebs.allwomenstalk.com/child-stars-who-quit-acting/)
+- [famous ryans in hollywood](https://funny.allwomenstalk.com/watch-ryan-cabrera-rank-other-famous-ryans-including-gosling-and-reynolds/)
+- [jim carrey depression quote](https://celebs.allwomenstalk.com/celebrities-on-dealing-with-depression-and-mental-disorders/)
+- [taylor swift favorite candle](https://music.allwomenstalk.com/celebrities-who-have-praised-taylor-swifts-new-album/)
 - [celebrities who love animals](https://celebs.allwomenstalk.com/celebrities-who-love-and-advocate-for-animals/)
 - [best of mean tweets](https://funny.allwomenstalk.com/this-video-of-celebs-reacting-to-mean-tweets-is-the-funniest-thing-youll-see-today/)
-- [courtside celebrities](https://celebs.allwomenstalk.com/celebs-cant-get-enough-of-basketball-sightings-of-courtside-celebs/)
-- [famous ryans in hollywood](https://funny.allwomenstalk.com/watch-ryan-cabrera-rank-other-famous-ryans-including-gosling-and-reynolds/)
-- [sabrina carpenter boots](https://celebs.allwomenstalk.com/co-stars-who-are-also-best-friends-in-real-life/)
-- [taylor swift favorite candle](https://music.allwomenstalk.com/celebrities-who-have-praised-taylor-swifts-new-album/)
-- [jim carrey depression quote](https://celebs.allwomenstalk.com/celebrities-on-dealing-with-depression-and-mental-disorders/)
 - [jim parson and rihanna](https://celebs.allwomenstalk.com/random-pair-of-celebrities-you-didnt-know-were-friends/)
-- [sara ramirez on law and order svu](https://celebs.allwomenstalk.com/celebrities-who-guest-starred-on-law-order/)
 - [25 Smartest Celebrities ...](https://celebs.allwomenstalk.com/25-smartest-celebrities/)
 - [7 Cool Celebrities with Dimples ...](https://celebs.allwomenstalk.com/cool-celebrities-with-dimples/)
 

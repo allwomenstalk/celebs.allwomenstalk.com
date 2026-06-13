@@ -3,7 +3,7 @@ title: "7 Controversial Queens We Still Talk about Today ..."
 description: "Margaret of Anjou; Elizabeth Woodville; Isabella of Castille; Anne Boleyn; Elizabeth I; More ..."
 url: "https://celebs.allwomenstalk.com/controversial-queens-we-still-talk-about-today/"
 category: "celebs"
-last_updated: "2026-06-11"
+last_updated: "2026-06-13"
 ---
 
 # 7 Controversial Queens We Still Talk about Today ...
@@ -56,16 +56,16 @@ To me, these queens are such an ongoing source of fascination, because we are un
 
 ## Related Posts
 
-- [vera farmiga sister actress](https://celebs.allwomenstalk.com/underrated-actresses-who-deserve-more-attention/)
-- [supermodels on trampoline](https://celebs.allwomenstalk.com/amazing-supermodels-i-want-to-be-friends-with/)
-- [tv shows with strong female leads](https://movies.allwomenstalk.com/strong-female-characters-on-tv-who-are-truly-inspiring/)
-- [is geena davis nice?](https://celebs.allwomenstalk.com/actresses-that-speak-their-minds/)
-- [most beautiful actresses under 25](https://celebs.allwomenstalk.com/wonderful-actresses-under-25-to-look-up-to/)
 - [princess movie characters](https://movies.allwomenstalk.com/unofficial-disney-princesses-that-you-might-not-know-about/)
-- [glamorous jobs that pay well](https://lifestyle.allwomenstalk.com/glamorous-careers-wed-all-kill-to-have/)
-- [50s models](https://celebs.allwomenstalk.com/most-beautiful-and-inspiring-over-50s-models/)
 - [best tv moms of all time](https://movies.allwomenstalk.com/of-the-best-tv-moms-that-you-wish-were-yours/)
 - [on wednesdays we wear pink date](https://teen.allwomenstalk.com/mean-girls-references-you-need-to-be-aware-of-for-any-conversation/)
+- [supermodels on trampoline](https://celebs.allwomenstalk.com/amazing-supermodels-i-want-to-be-friends-with/)
+- [most beautiful actresses under 25](https://celebs.allwomenstalk.com/wonderful-actresses-under-25-to-look-up-to/)
+- [tv shows with strong female leads](https://movies.allwomenstalk.com/strong-female-characters-on-tv-who-are-truly-inspiring/)
+- [glamorous jobs that pay well](https://lifestyle.allwomenstalk.com/glamorous-careers-wed-all-kill-to-have/)
+- [is geena davis nice?](https://celebs.allwomenstalk.com/actresses-that-speak-their-minds/)
+- [50s models](https://celebs.allwomenstalk.com/most-beautiful-and-inspiring-over-50s-models/)
+- [vera farmiga sister actress](https://celebs.allwomenstalk.com/underrated-actresses-who-deserve-more-attention/)
 - [7 Most Influential Women of the Last Decade ...](https://celebs.allwomenstalk.com/7-most-influential-women-of-the-last-decade/)
 - [8 Notorious Women ...](https://celebs.allwomenstalk.com/8-notorious-women/)
 

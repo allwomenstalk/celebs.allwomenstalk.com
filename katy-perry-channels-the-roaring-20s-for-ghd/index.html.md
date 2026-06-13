@@ -3,7 +3,7 @@ title: "Katy Perry Channels the Roaring 20's for Ghd ..."
 description: "Stay ahead, stay chic. Trusted guides on beauty, wellness, fashion, and everything that defines today's empowered woman."
 url: "https://celebs.allwomenstalk.com/katy-perry-channels-the-roaring-20s-for-ghd/"
 category: "celebs"
-last_updated: "2026-06-11"
+last_updated: "2026-06-13"
 ---
 
 # Katy Perry Channels the Roaring 20's for Ghd ...
@@ -22,16 +22,16 @@ I love Katy, I love the New York backdrop and of course, I love the hair! ghd's 
 
 ## Related Posts
 
-- [vanessadoes](https://celebs.allwomenstalk.com/vanessa-does-sexy/)
+- [Justin the New Man in Olivia’s Life…](https://celebs.allwomenstalk.com/justin-the-new-man-in-olivias-life/)
+- [Victoria Beckham: Thank God David Looks like Crap....](https://celebs.allwomenstalk.com/victoria-beckham-thank-god-david-looks-like-crap/)
 - [justin holding selena's hand](https://celebs.allwomenstalk.com/selena-justin-hold-hands-almost/)
+- [kate winslet und liz taylor](https://celebs.allwomenstalk.com/kate-winslet-channels-elizabeth-taylor-for-v-magazine/)
+- [vanessadoes](https://celebs.allwomenstalk.com/vanessa-does-sexy/)
+- [Angelina Reveals Her Latest Talent…](https://celebs.allwomenstalk.com/angelina-reveals-her-latest-talent/)
 - [kristen stewart](https://celebs.allwomenstalk.com/kristen-stewart-gets-edgy-for-vogue-italia/)
 - [Adame Levine and Anne V for Vogue Russia: Hot or a...](https://celebs.allwomenstalk.com/adame-levine-and-anne-v-for-vogue-russia-hot-or-a-bit-much/)
-- [Victoria Beckham: Thank God David Looks like Crap....](https://celebs.allwomenstalk.com/victoria-beckham-thank-god-david-looks-like-crap/)
 - [marisa nsfw](https://celebs.allwomenstalk.com/marisa-miller-lets-them-loose-for-a-cause-nsfw/)
-- [Angelina Reveals Her Latest Talent…](https://celebs.allwomenstalk.com/angelina-reveals-her-latest-talent/)
-- [Justin the New Man in Olivia’s Life…](https://celebs.allwomenstalk.com/justin-the-new-man-in-olivias-life/)
 - [ed o'neill photo fan](https://celebs.allwomenstalk.com/ed-oneill-is-janes-biggest-fan/)
-- [kate winslet und liz taylor](https://celebs.allwomenstalk.com/kate-winslet-channels-elizabeth-taylor-for-v-magazine/)
 - [20 Fabulous Celebrity Hair Cuts ...](https://hair.allwomenstalk.com/fabulous-celebrity-hair-cuts/)
 - [Ginger Spice Wants to Go Posh ...](https://allwomenstalk.com/ginger-spice-wants-to-go-posh/)
 

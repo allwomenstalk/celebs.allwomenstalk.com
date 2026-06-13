@@ -3,7 +3,7 @@ title: "7 Important Life Lessons to Learn from Joan Collins ..."
 description: "Don't Give a Damn What People Think; Age is Irrelevant; Reinvent Yourself; Bounce Back from Adversity; Make the Best of Yourself; More ..."
 url: "https://celebs.allwomenstalk.com/important-life-lessons-to-learn-from-joan-collins/"
 category: "celebs"
-last_updated: "2026-06-11"
+last_updated: "2026-06-13"
 ---
 
 # 7 Important Life Lessons to Learn from Joan Collins ...
@@ -42,16 +42,16 @@ Joan is a marvellous role model for women of all ages. She just doesn't let anyt
 
 ## Related Posts
 
-- [ben franklin almanac quotes](https://lifestyle.allwomenstalk.com/lessons-from-benjamin-franklin-that-are-still-relevant-today/)
-- [moms teachus](https://parenting.allwomenstalk.com/valuable-life-lessons-my-mother-taught-me/)
-- [what would i tell my 15 years old self](https://teen.allwomenstalk.com/things-i-wish-i-could-tell-my-15-year-old-self/)
-- [good things to be addicted to](https://lifestyle.allwomenstalk.com/everyday-things-people-become-addicted-to-easily/)
-- [you don't have to be ashamed](https://lifestyle.allwomenstalk.com/things-you-should-not-be-ashamed-of/)
-- [i have the following realities in life](https://lifestyle.allwomenstalk.com/harsh-realities-of-life-that-you-have-to-come-to-terms-with/)
-- [kelly and jane mcgonigal](https://lifestyle.allwomenstalk.com/ted-talks-you-should-definitely-check-out/)
-- [principles of kwanzaa](https://lifestyle.allwomenstalk.com/essential-principles-of-kwanzaa-that-you-should-know-about/)
-- [how to join the real world](https://lifestyle.allwomenstalk.com/important-things-that-you-only-learn-in-the-real-world/)
 - [people with glasses on](https://lifestyle.allwomenstalk.com/things-only-people-with-glasses-can-relate-to/)
+- [kelly and jane mcgonigal](https://lifestyle.allwomenstalk.com/ted-talks-you-should-definitely-check-out/)
+- [moms teachus](https://parenting.allwomenstalk.com/valuable-life-lessons-my-mother-taught-me/)
+- [principles of kwanzaa](https://lifestyle.allwomenstalk.com/essential-principles-of-kwanzaa-that-you-should-know-about/)
+- [what would i tell my 15 years old self](https://teen.allwomenstalk.com/things-i-wish-i-could-tell-my-15-year-old-self/)
+- [i have the following realities in life](https://lifestyle.allwomenstalk.com/harsh-realities-of-life-that-you-have-to-come-to-terms-with/)
+- [good things to be addicted to](https://lifestyle.allwomenstalk.com/everyday-things-people-become-addicted-to-easily/)
+- [ben franklin almanac quotes](https://lifestyle.allwomenstalk.com/lessons-from-benjamin-franklin-that-are-still-relevant-today/)
+- [you don't have to be ashamed](https://lifestyle.allwomenstalk.com/things-you-should-not-be-ashamed-of/)
+- [how to join the real world](https://lifestyle.allwomenstalk.com/important-things-that-you-only-learn-in-the-real-world/)
 - [5 Important Life Lessons to Think about...](https://allwomenstalk.com/5-important-life-lessons-to-think-about/)
 - [7 Things to Learn from Divorce ...](https://allwomenstalk.com/7-things-to-learn-from-divorce/)
 

@@ -3,7 +3,7 @@ title: "10 Best Dressed Celebrities of 2012 ..."
 description: "Diane Kruger; Kate Bosworth; Taylor Swift; Alexa Chung; Miranda Kerr; More ..."
 url: "https://celebs.allwomenstalk.com/best-dressed-celebrities-of-2012/"
 category: "celebs"
-last_updated: "2026-06-11"
+last_updated: "2026-06-13"
 ---
 
 # 10 Best Dressed Celebrities of 2012 ...
@@ -74,16 +74,16 @@ These are just a few celebrities to make my best dressed list for the year. Of c
 
 ## Related Posts
 
-- [9 Best Dressed Celebs at the SAG Awards ...](https://celebs.allwomenstalk.com/best-dressed-celebs-at-the-sag-awards/)
 - [9 More Best Dressed Celebs at the Golden Globes .....](https://celebs.allwomenstalk.com/more-best-dressed-celebs-at-the-golden-globes/)
-- [7 Best Dressed Celebrities of 2012 ...](https://celebs.allwomenstalk.com/best-dressed-celebrities-of-2012-2/)
-- [8 of the Best Celebrity Makeovers in 2012 ...](https://celebs.allwomenstalk.com/of-the-best-celebrity-makeovers-in/)
-- [celebrities doing the splits](https://celebs.allwomenstalk.com/celebrities-rocking-thigh-high-splits-who-wore-it-best/)
-- [10 2013 Oscar Winners ...](https://bilbr.com/oscar-winners/)
-- [7 Best Looking Actresses at the Golden Globes 2014...](https://celebs.allwomenstalk.com/best-looking-actresses-at-the-golden-globes/)
 - [10 Award Season Red Carpet Trends ...](https://fashion.allwomenstalk.com/award-season-red-carpet-trends/)
+- [8 of the Best Celebrity Makeovers in 2012 ...](https://celebs.allwomenstalk.com/of-the-best-celebrity-makeovers-in/)
+- [7 Best Looking Actresses at the Golden Globes 2014...](https://celebs.allwomenstalk.com/best-looking-actresses-at-the-golden-globes/)
+- [celebrities doing the splits](https://celebs.allwomenstalk.com/celebrities-rocking-thigh-high-splits-who-wore-it-best/)
 - [10 Daring Predictions for the 2013 Oscars ...](https://movies.allwomenstalk.com/daring-predictions-for-the-oscars/)
+- [9 Best Dressed Celebs at the SAG Awards ...](https://celebs.allwomenstalk.com/best-dressed-celebs-at-the-sag-awards/)
+- [7 Best Dressed Celebrities of 2012 ...](https://celebs.allwomenstalk.com/best-dressed-celebrities-of-2012-2/)
 - [7 Great Celebrity Outfits from Comic Con 2013 ...](https://celebs.allwomenstalk.com/great-celebrity-outfits-from-comic-con/)
+- [10 2013 Oscar Winners ...](https://bilbr.com/oscar-winners/)
 - [The Best Dressed Women of 2010 ...](https://celebs.allwomenstalk.com/the-best-dressed-women-of/)
 - [8 Most Stylish Female Celebrities of 2011 ...](https://celebs.allwomenstalk.com/most-stylish-female-celebrities-of/)
 
