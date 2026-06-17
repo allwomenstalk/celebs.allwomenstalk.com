@@ -3,7 +3,7 @@ title: "7 Sexiest Athletes of 2011 ..."
 description: "Johnny Weir; Anna Kournikova; Marlon Stockinger; Rachel Unitt; Vera Zvonareva; More ..."
 url: "https://celebs.allwomenstalk.com/sexiest-athletes-of/"
 category: "celebs"
-last_updated: "2026-06-13"
+last_updated: "2026-06-17"
 ---
 
 # 7 Sexiest Athletes of 2011 ...
@@ -56,16 +56,16 @@ Top Photo Credit: lh4.ggpht.com_
 
 ## Related Posts
 
-- [down to earth actresses](https://celebs.allwomenstalk.com/most-down-to-earth-celebrities/)
 - [celebrity marriage proposals](https://celebs.allwomenstalk.com/inspiring-and-sweet-celebrity-marriage-proposals/)
-- [men who look better with age](https://celebs.allwomenstalk.com/celebrity-men-that-look-better-with-age/)
 - [philantrophists](https://celebs.allwomenstalk.com/top-celebrity-philantrophists/)
-- [female celebrity smokers uk](https://celebs.allwomenstalk.com/women-celebrities-who-smoke/)
 - [8 Celebrity Pictures to Enjoy Today ...](https://celebs.allwomenstalk.com/celebrity-pictures-to-enjoy-today/)
 - [celebrity wedding favors](https://celebs.allwomenstalk.com/celebrity-weddings-to-watch-for-in/)
+- [female celebrity smokers uk](https://celebs.allwomenstalk.com/women-celebrities-who-smoke/)
+- [down to earth actresses](https://celebs.allwomenstalk.com/most-down-to-earth-celebrities/)
 - [best celebrity diets](https://celebs.allwomenstalk.com/top-bizarre-celebrity-diets/)
-- [famous people who smoke weed](https://celebs.allwomenstalk.com/celebrities-who-smoke-weed/)
 - [7 Celebrities I Would like to Hang with ...](https://celebs.allwomenstalk.com/7-celebrities-i-would-like-to-hang-with/)
+- [famous people who smoke weed](https://celebs.allwomenstalk.com/celebrities-who-smoke-weed/)
+- [men who look better with age](https://celebs.allwomenstalk.com/celebrity-men-that-look-better-with-age/)
 - [7 Inspiring Celebrities of 2011 ...](https://celebs.allwomenstalk.com/inspiring-celebrities-of/)
 - [7 Fashionable Celebrities to Watch in 2012 ...](https://celebs.allwomenstalk.com/fashionable-celebrities-to-watch-in/)
 

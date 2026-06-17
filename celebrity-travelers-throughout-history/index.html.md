@@ -3,7 +3,7 @@ title: "8 Celebrity Travelers Throughout History ..."
 description: "Thomas Cook; Marco Polo; Michael Palin; Freya Stark; Bill Bryson; More ..."
 url: "https://celebs.allwomenstalk.com/celebrity-travelers-throughout-history/"
 category: "celebs"
-last_updated: "2026-06-13"
+last_updated: "2026-06-17"
 ---
 
 # 8 Celebrity Travelers Throughout History ...
@@ -48,16 +48,16 @@ Top Image Source: _forums.thefashionspot.com_
 
 ## Related Posts
 
-- [8 Shocking Celeb Stories from 2012 ...](https://celebs.allwomenstalk.com/shocking-celeb-stories-from/)
-- [riche le stylo smoky blue spark](https://celebs.allwomenstalk.com/really-good-celebrity-moms/)
-- [16 Celeb Hookups from 2012 ...](https://celebs.allwomenstalk.com/celeb-hookups-from/)
-- [7 Celebs Who Are Vegan ...](https://celebs.allwomenstalk.com/celebs-who-are-vegan/)
-- [7 Celebrities with a Disorder ...](https://celebs.allwomenstalk.com/celebrities-with-a-disorder/)
 - [7 Things Celebs Buy That You Can Buy Too ...](https://celebs.allwomenstalk.com/things-celebs-buy-that-you-can-buy-too/)
-- [9 Stylish Celebrity Couples ...](https://celebs.allwomenstalk.com/stylish-celebrity-couples/)
-- [loreal paris color stylo smoky eye shadow blue spa...](https://beauty.allwomenstalk.com/hot-celebrity-beauty-lines-to-check-out/)
-- [top celebrity chefs](https://movies.allwomenstalk.com/top-celebrity-chefs-i-cant-get-enough-of/)
+- [riche le stylo smoky blue spark](https://celebs.allwomenstalk.com/really-good-celebrity-moms/)
+- [7 Celebs Who Are Vegan ...](https://celebs.allwomenstalk.com/celebs-who-are-vegan/)
 - [don draper vs harvey specter](https://movies.allwomenstalk.com/tv-characters-id-love-to-date/)
+- [7 Celebrities with a Disorder ...](https://celebs.allwomenstalk.com/celebrities-with-a-disorder/)
+- [top celebrity chefs](https://movies.allwomenstalk.com/top-celebrity-chefs-i-cant-get-enough-of/)
+- [loreal paris color stylo smoky eye shadow blue spa...](https://beauty.allwomenstalk.com/hot-celebrity-beauty-lines-to-check-out/)
+- [16 Celeb Hookups from 2012 ...](https://celebs.allwomenstalk.com/celeb-hookups-from/)
+- [9 Stylish Celebrity Couples ...](https://celebs.allwomenstalk.com/stylish-celebrity-couples/)
+- [8 Shocking Celeb Stories from 2012 ...](https://celebs.allwomenstalk.com/shocking-celeb-stories-from/)
 - [8 Great Road Trip Destinations ...](https://travel.allwomenstalk.com/8-great-road-trip-destinations/)
 - [7 European Travel Destinations ...](https://travel.allwomenstalk.com/european-travel-destinations/)
 

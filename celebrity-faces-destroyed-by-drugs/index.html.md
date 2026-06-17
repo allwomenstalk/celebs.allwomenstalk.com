@@ -3,7 +3,7 @@ title: "7 Celebrity Faces Destroyed by Drugs ..."
 description: "Courtney Love; Macaulay Culkin; Lindsay Lohan; Mischa Barton; Whitney Houston; More ..."
 url: "https://celebs.allwomenstalk.com/celebrity-faces-destroyed-by-drugs/"
 category: "celebs"
-last_updated: "2026-06-13"
+last_updated: "2026-06-17"
 ---
 
 # 7 Celebrity Faces Destroyed by Drugs ...
@@ -56,16 +56,16 @@ It is sad that not only are celebrity faces destroyed by drugs but sometimes the
 
 ## Related Posts
 
-- [fit blonde actresses](https://celebs.allwomenstalk.com/hottest-blonde-celebrities-from-yesterday-and-today/)
 - [james blunt net worth](https://celebs.allwomenstalk.com/celebrities-who-have-praised-ed-sheerans-new-album/)
-- [famous celebrities as kids](https://celebs.allwomenstalk.com/child-celebrities-who-are-no-longer-famous/)
-- [all blonde dreads](https://celebs.allwomenstalk.com/fierce-celebrities-with-dreadlocks-who-rocked-that-look/)
-- [miley cyrus scandal video](https://celebs.allwomenstalk.com/of-the-biggest-miley-cyrus-scandals/)
 - [fit celeb](https://celebs.allwomenstalk.com/fit-celebrities-wholl-inspire-you-this-summer/)
 - [why should celebrities be role models](https://celebs.allwomenstalk.com/reasons-why-some-celebrities-are-bad-role-models/)
-- [pale skin women](https://celebs.allwomenstalk.com/beautiful-pale-skinned-celebrities-who-embrace-their-look/)
-- [pauly d child](https://celebs.allwomenstalk.com/celebrity-babies-who-seem-more-famous-than-their-parents/)
 - [hollywood homewreckers](https://celebs.allwomenstalk.com/most-notorious-home-wreckers-in-hollywood/)
+- [all blonde dreads](https://celebs.allwomenstalk.com/fierce-celebrities-with-dreadlocks-who-rocked-that-look/)
+- [pauly d child](https://celebs.allwomenstalk.com/celebrity-babies-who-seem-more-famous-than-their-parents/)
+- [fit blonde actresses](https://celebs.allwomenstalk.com/hottest-blonde-celebrities-from-yesterday-and-today/)
+- [miley cyrus scandal video](https://celebs.allwomenstalk.com/of-the-biggest-miley-cyrus-scandals/)
+- [pale skin women](https://celebs.allwomenstalk.com/beautiful-pale-skinned-celebrities-who-embrace-their-look/)
+- [famous celebrities as kids](https://celebs.allwomenstalk.com/child-celebrities-who-are-no-longer-famous/)
 - [7 Recent Celebrity Breakups ...](https://celebs.allwomenstalk.com/recent-celebrity-breakups/)
 - [7 Women Celebrities Who Smoke ...](https://celebs.allwomenstalk.com/women-celebrities-who-smoke/)
 

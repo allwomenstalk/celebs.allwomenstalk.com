@@ -3,7 +3,7 @@ title: "What do These Celebrities Look like without Makeup?"
 description: "Emma Watson; Iggy Azalea; Olivia Wilde; Jennifer Lopez; Jada Pinkett Smith; More ..."
 url: "https://celebs.allwomenstalk.com/what-do-these-celebrities-look-like-without-makeup/"
 category: "celebs"
-last_updated: "2026-06-13"
+last_updated: "2026-06-17"
 ---
 
 # What do These Celebrities Look like without Makeup?
@@ -56,16 +56,16 @@ Do you go makeup-free every now and then?
 
 ## Related Posts
 
+- [florence welch natural hair color](https://hair.allwomenstalk.com/these-fiery-celeb-redheads-will-finally-convince-you-to-take-the-plunge/)
 - [celebrities with cat](https://celebs.allwomenstalk.com/celebrities-who-are-major-cat-ladies/)
 - [what would you do if you meet your favourite celeb...](https://celebs.allwomenstalk.com/tricks-that-might-help-you-meet-your-favorite-celebrity/)
-- [most freckles in the world](https://celebs.allwomenstalk.com/celebrities-with-freckles-thatll-make-you-embrace-your-own/)
-- [celebrities just like us](https://celebs.allwomenstalk.com/just-like-us-celebrity-couples-who-love-a-little-pda/)
 - [rumer willis wardrobe](https://celebs.allwomenstalk.com/yikes-celebs-their-wardrobe-malfunctions/)
-- [barrie james o'neill height](https://celebs.allwomenstalk.com/celebrity-couples-who-split-in/)
+- [most freckles in the world](https://celebs.allwomenstalk.com/celebrities-with-freckles-thatll-make-you-embrace-your-own/)
 - [shakira guinness world records](https://celebs.allwomenstalk.com/celebrities-with-guinness-world-records/)
+- [barrie james o'neill height](https://celebs.allwomenstalk.com/celebrity-couples-who-split-in/)
 - [ian somerhalder niece](https://celebs.allwomenstalk.com/celebrity-posts-you-mightve-missed-this-weekend-3/)
+- [celebrities just like us](https://celebs.allwomenstalk.com/just-like-us-celebrity-couples-who-love-a-little-pda/)
 - [la maximalist eyeshadow primped previous](https://celebs.allwomenstalk.com/whoa-who-knew-these-celebs-are-the-same-age/)
-- [florence welch natural hair color](https://hair.allwomenstalk.com/these-fiery-celeb-redheads-will-finally-convince-you-to-take-the-plunge/)
 - [4 Celebs That Shot to Fame after Cosmetic Surgery....](https://celebs.allwomenstalk.com/celebs-that-shot-to-fame-after-cosmetic-surgery/)
 - [Smile like a Celebrity!](https://allwomenstalk.com/smile-like-a-celebrity/)
 

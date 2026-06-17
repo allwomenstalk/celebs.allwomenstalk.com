@@ -3,7 +3,7 @@ title: "9 Famous Vegetarians That Made Worldwide History ..."
 description: "Plato; Albert Einstein; Gandhi; Benjamin Franklin; Leonardo Da Vinci; More ..."
 url: "https://celebs.allwomenstalk.com/famous-vegetarians-that-made-worldwide-history/"
 category: "celebs"
-last_updated: "2026-06-13"
+last_updated: "2026-06-17"
 ---
 
 # 9 Famous Vegetarians That Made Worldwide History ...
@@ -52,16 +52,16 @@ Though I believe everyone is entitled to their own choice of what they eat, I al
 
 ## Related Posts
 
-- [uses of coconut milk](https://food.allwomenstalk.com/foods-that-could-cause-digestion-problems/)
 - [cost of fruits and veggies vitamins](https://food.allwomenstalk.com/superfoods-that-cost-less-than-1-to-add-to-your-diet/)
-- [what food has the most energy](https://food.allwomenstalk.com/scary-ingredients-found-in-most-energy-bars/)
+- [foods to try in germany](https://food.allwomenstalk.com/foods-you-should-try-while-in-germany/)
 - [does cottage cheese help acid reflux](https://health.allwomenstalk.com/foods-to-eat-to-help-with-acid-reflux/)
+- [sides for sliders](https://food.allwomenstalk.com/healthy-fast-food-sides-that-you-can-feel-good-about-eating/)
+- [what food has the most energy](https://food.allwomenstalk.com/scary-ingredients-found-in-most-energy-bars/)
+- [rush breakfast](https://food.allwomenstalk.com/breakfast-foods-you-should-be-eating-when-you-are-in-a-rush/)
+- [can coconut increase weight](https://food.allwomenstalk.com/fattening-foods-that-you-should-eat-to-stay-slim-and-healthy-for-life/)
+- [uses of coconut milk](https://food.allwomenstalk.com/foods-that-could-cause-digestion-problems/)
 - [pre workout vegan](https://fitness.allwomenstalk.com/vegan-pre-workout-snacks-that-will-fuel-your-workout-and-increase-endurance/)
 - [trader joe's spices](https://health.allwomenstalk.com/herbs-and-spices-to-help-curb-a-sweet-tooth/)
-- [foods to try in germany](https://food.allwomenstalk.com/foods-you-should-try-while-in-germany/)
-- [can coconut increase weight](https://food.allwomenstalk.com/fattening-foods-that-you-should-eat-to-stay-slim-and-healthy-for-life/)
-- [rush breakfast](https://food.allwomenstalk.com/breakfast-foods-you-should-be-eating-when-you-are-in-a-rush/)
-- [sides for sliders](https://food.allwomenstalk.com/healthy-fast-food-sides-that-you-can-feel-good-about-eating/)
 - [10 Famous People Who Were Adopted ...](https://celebs.allwomenstalk.com/10-famous-people-who-were-adopted/)
 - [10 Insane Celebrity Fad Diets ...](https://celebs.allwomenstalk.com/insane-celebrity-fad-diets/)
 

@@ -3,7 +3,7 @@ title: "7 People Who Shouldn't Have Been Assassinated ..."
 description: "Mahatma Gandhi; John F. Kennedy; Anwar Sadat; Leon Trotsky; Martin Luther King; More ..."
 url: "https://celebs.allwomenstalk.com/7-people-who-shouldnt-have-been-assassinated/"
 category: "celebs"
-last_updated: "2026-06-13"
+last_updated: "2026-06-17"
 ---
 
 # 7 People Who Shouldn't Have Been Assassinated ...
@@ -46,16 +46,16 @@ Top Photo Credit: [cliff1066™](https://www.flickr.com/photos/nostri-imago/3085
 
 ## Related Posts
 
-- [Larry King Live Ends after 25 Years ...](https://celebs.allwomenstalk.com/larry-king-live-ends-after-25-years/)
 - [awesome birds](https://gardening.allwomenstalk.com/5-awesome-birds/)
-- [Fat: a Love Story ...](https://health.allwomenstalk.com/fat-a-love-story/)
-- [charlie lifestyle](https://celebs.allwomenstalk.com/this-is-charlies-lifestyle-and-it-is-what-it-is/)
-- [7 Interesting YouTube Channels ...](https://7fun.net/interesting-youtube-channels/)
-- [rare and unusual types of phobias](https://health.allwomenstalk.com/extraordinary-rare-phobias-and-their-meaning/)
 - [amazing butterflies](https://gardening.allwomenstalk.com/5-amazing-butterflies/)
+- [Larry King Live Ends after 25 Years ...](https://celebs.allwomenstalk.com/larry-king-live-ends-after-25-years/)
 - [bangles definition](https://jewelry.allwomenstalk.com/8-statement-bangles/)
-- [7 Predictions That Might Come True ...](https://lifestyle.allwomenstalk.com/predictions-that-might-come-true/)
+- [charlie lifestyle](https://celebs.allwomenstalk.com/this-is-charlies-lifestyle-and-it-is-what-it-is/)
+- [rare and unusual types of phobias](https://health.allwomenstalk.com/extraordinary-rare-phobias-and-their-meaning/)
+- [Fat: a Love Story ...](https://health.allwomenstalk.com/fat-a-love-story/)
 - [weird implants](https://lifestyle.allwomenstalk.com/8-most-bizarre-body-implants/)
+- [7 Interesting YouTube Channels ...](https://7fun.net/interesting-youtube-channels/)
+- [7 Predictions That Might Come True ...](https://lifestyle.allwomenstalk.com/predictions-that-might-come-true/)
 - [Top 7 Actors That Should Get More Work ...](https://movies.allwomenstalk.com/top-7-actors-that-should-get-more-work/)
 - [7 Movies That Shouldn't Be Remade ...](https://movies.allwomenstalk.com/movies-that-shouldnt-be-remade/)
 

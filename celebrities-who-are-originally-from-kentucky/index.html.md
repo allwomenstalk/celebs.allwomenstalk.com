@@ -3,7 +3,7 @@ title: "7 Celebrities Who Are Originally from Kentucky ..."
 description: "George Clooney; Jennifer Lawrence; Abraham Lincoln; Johnny Depp; Muhammad Ali; More ..."
 url: "https://celebs.allwomenstalk.com/celebrities-who-are-originally-from-kentucky/"
 category: "celebs"
-last_updated: "2026-06-13"
+last_updated: "2026-06-17"
 ---
 
 # 7 Celebrities Who Are Originally from Kentucky ...
@@ -56,16 +56,16 @@ I'm glad that I've been able to share some of the celebrities who are from Kentu
 
 ## Related Posts
 
-- [celebrities with binge eating](https://celebs.allwomenstalk.com/celebrities-who-have-battled-eating-disorders/)
-- [josh peck aging](https://celebs.allwomenstalk.com/hysterical-nickelodeon-actors-who-grew-up-to-be-hot/)
-- [roman josi hair](https://celebs.allwomenstalk.com/gorgeous-athletes-to-watch-for-at-the-olympics/)
-- [people that look like disney characters](https://celebs.allwomenstalk.com/celebrities-who-look-like-disney-characters-from-animated-movies/)
 - [why did danny leave the mindy project](https://hair.allwomenstalk.com/celebrities-who-tried-a-pixie-cut/)
+- [people that look like disney characters](https://celebs.allwomenstalk.com/celebrities-who-look-like-disney-characters-from-animated-movies/)
+- [roman josi hair](https://celebs.allwomenstalk.com/gorgeous-athletes-to-watch-for-at-the-olympics/)
 - [most famous redheads](https://celebs.allwomenstalk.com/famous-redheads-and-their-amazing-careers/)
-- [celebrities that own companies](https://celebs.allwomenstalk.com/celebrities-who-started-their-own-companies/)
-- [who is a triple threat](https://celebs.allwomenstalk.com/of-the-biggest-triple-threats-in-hollywood/)
 - [celebrities then and now how they've changed](https://celebs.allwomenstalk.com/celebrities-who-changed-their-lives-drastically/)
+- [josh peck aging](https://celebs.allwomenstalk.com/hysterical-nickelodeon-actors-who-grew-up-to-be-hot/)
+- [who is a triple threat](https://celebs.allwomenstalk.com/of-the-biggest-triple-threats-in-hollywood/)
 - [celebrities downfall](https://celebs.allwomenstalk.com/things-we-can-learn-from-the-downfall-of-celebrities/)
+- [celebrities that own companies](https://celebs.allwomenstalk.com/celebrities-who-started-their-own-companies/)
+- [celebrities with binge eating](https://celebs.allwomenstalk.com/celebrities-who-have-battled-eating-disorders/)
 - [7 of My Favorite Celebrities ...](https://celebs.allwomenstalk.com/7-of-my-favorite-celebrities/)
 - [7 Women Celebrities Who Smoke ...](https://celebs.allwomenstalk.com/women-celebrities-who-smoke/)
 

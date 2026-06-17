@@ -3,7 +3,7 @@ title: "7 Celebrities Who Are Major Bookworms ..."
 description: "Emma Roberts; James Franco; Camila Cabello; Isabelle Fuhrman; Joanna \"jojo\" Levesque; More ..."
 url: "https://celebs.allwomenstalk.com/celebrities-who-are-major-bookworms/"
 category: "celebs"
-last_updated: "2026-06-13"
+last_updated: "2026-06-17"
 ---
 
 # 7 Celebrities Who Are Major Bookworms ...
@@ -56,16 +56,16 @@ Well, there you have it! These are just seven out of many awesome celebrities wh
 
 ## Related Posts
 
-- [lovley books](https://books.allwomenstalk.com/lovely-books-about-love/)
-- [alex cross series list](https://books.allwomenstalk.com/james-patterson-novels-to-add-to-your-book-list/)
-- [the storyteller's daughter](https://books.allwomenstalk.com/reasons-why-you-should-read-the-storytellers-daughter/)
-- [best sharpe book](https://books.allwomenstalk.com/tom-sharpe-novels-that-will-put-a-smile-on-your-face/)
-- [famous writers of european literature](https://books.allwomenstalk.com/great-names-in-classic-european-literature/)
-- [poems about ocd](https://books.allwomenstalk.com/poems-by-maggie-royer-that-you-have-to-read/)
-- [other authors like james patterson](https://books.allwomenstalk.com/authors-with-breathtaking-mysteries-youve-got-to-try/)
-- [to catch a pirate jade parker](https://books.allwomenstalk.com/underrated-books-with-interesting-plots/)
-- [young king of the black isles](https://books.allwomenstalk.com/wonderous-stories-from-nights/)
 - [qhere the heart is](https://books.allwomenstalk.com/reasons-you-should-read-billie-letts-where-the-heart-is/)
+- [famous writers of european literature](https://books.allwomenstalk.com/great-names-in-classic-european-literature/)
+- [other authors like james patterson](https://books.allwomenstalk.com/authors-with-breathtaking-mysteries-youve-got-to-try/)
+- [best sharpe book](https://books.allwomenstalk.com/tom-sharpe-novels-that-will-put-a-smile-on-your-face/)
+- [lovley books](https://books.allwomenstalk.com/lovely-books-about-love/)
+- [the storyteller's daughter](https://books.allwomenstalk.com/reasons-why-you-should-read-the-storytellers-daughter/)
+- [alex cross series list](https://books.allwomenstalk.com/james-patterson-novels-to-add-to-your-book-list/)
+- [young king of the black isles](https://books.allwomenstalk.com/wonderous-stories-from-nights/)
+- [to catch a pirate jade parker](https://books.allwomenstalk.com/underrated-books-with-interesting-plots/)
+- [poems about ocd](https://books.allwomenstalk.com/poems-by-maggie-royer-that-you-have-to-read/)
 - [7 of My Favorite Celebrities ...](https://celebs.allwomenstalk.com/7-of-my-favorite-celebrities/)
 - [7 Women Celebrities Who Smoke ...](https://celebs.allwomenstalk.com/women-celebrities-who-smoke/)
 

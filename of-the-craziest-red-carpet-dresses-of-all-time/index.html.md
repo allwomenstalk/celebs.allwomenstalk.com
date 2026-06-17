@@ -3,7 +3,7 @@ title: "10 of the Craziest Red Carpet Dresses of All Time ..."
 description: "Lady Gaga’s Meat Dress; Bjork’s Swan Dress; Lizzy Gardiner’s Credit Card Dress; Uma Thurman’s Pirate Dress; Kim Basinger’s Half Jacket Dress; More ..."
 url: "https://celebs.allwomenstalk.com/of-the-craziest-red-carpet-dresses-of-all-time/"
 category: "celebs"
-last_updated: "2026-06-13"
+last_updated: "2026-06-17"
 ---
 
 # 10 of the Craziest Red Carpet Dresses of All Time ...
@@ -74,16 +74,16 @@ Many of the fashion choices that these celebrities have made have left us scratc
 
 ## Related Posts
 
-- [celebrities 5'4](https://celebs.allwomenstalk.com/celebrities-wearing-striped-dresses-who-wore-it-best/)
+- [celebrities in polka dot dress](https://celebs.allwomenstalk.com/celebrities-wearing-polka-dots-who-wore-it-best/)
+- [celebrities suit](https://celebs.allwomenstalk.com/celebrities-rocking-the-power-suit-who-wore-it-best/)
 - [celebrity silver dress](https://celebs.allwomenstalk.com/celebrities-in-metallic-clothes-who-wore-it-best/)
 - [crop top actress](https://celebs.allwomenstalk.com/celebrities-in-crop-tops-who-wore-it-best/)
-- [desperate housewives gabrielle solis outfits](https://fashion.allwomenstalk.com/most-stylish-tv-characters/)
-- [jordana brewster](https://celebs.allwomenstalk.com/celebrities-wearing-printed-pants-who-wore-it-best/)
 - [orange theme party outfit](https://celebs.allwomenstalk.com/celebrities-in-little-orange-dresses-who-wore-it-best/)
-- [celebrities suit](https://celebs.allwomenstalk.com/celebrities-rocking-the-power-suit-who-wore-it-best/)
+- [desperate housewives gabrielle solis outfits](https://fashion.allwomenstalk.com/most-stylish-tv-characters/)
 - [female celebrities wearing leather jackets](https://celebs.allwomenstalk.com/celebrities-wearing-leather-pants-who-wore-it-best/)
 - [celebrities with overalls](https://celebs.allwomenstalk.com/celebrities-wearing-dungarees-who-wore-it-best/)
-- [celebrities in polka dot dress](https://celebs.allwomenstalk.com/celebrities-wearing-polka-dots-who-wore-it-best/)
+- [jordana brewster](https://celebs.allwomenstalk.com/celebrities-wearing-printed-pants-who-wore-it-best/)
+- [celebrities 5'4](https://celebs.allwomenstalk.com/celebrities-wearing-striped-dresses-who-wore-it-best/)
 - [The Best Dressed Women of 2010 ...](https://celebs.allwomenstalk.com/the-best-dressed-women-of/)
 - [9 Amazing Celebrity Wedding Dresses ...](https://celebs.allwomenstalk.com/amazing-celebrity-wedding-dresses/)
 

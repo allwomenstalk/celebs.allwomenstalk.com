@@ -3,7 +3,7 @@ title: "11 of the Most Sudden Celebrity Deaths ..."
 description: "Paul Walker; Cory Monteith; Amy Winehouse; Heath Ledger; Brittany Murphy; More ..."
 url: "https://celebs.allwomenstalk.com/of-the-most-sudden-celebrity-deaths/"
 category: "celebs"
-last_updated: "2026-06-13"
+last_updated: "2026-06-17"
 ---
 
 # 11 of the Most Sudden Celebrity Deaths ...
@@ -82,16 +82,16 @@ This article was written in collaboration with editor Lydia Sheehan.
 
 ## Related Posts
 
-- [coolest celebrity tattoos](https://celebs.allwomenstalk.com/best-celebrity-tattoos-that-youre-sure-to-love/)
+- [bikram yoga celebrities](https://celebs.allwomenstalk.com/celebrities-who-love-yoga/)
+- [celebs with big hair](https://celebs.allwomenstalk.com/celebrities-who-cut-their-long-hair-short/)
 - [rainforest cate](https://celebs.allwomenstalk.com/celebrities-who-support-the-rainforest/)
-- [people who died too soon](https://celebs.allwomenstalk.com/talented-people-who-died-too-soon-in-the-last-decade/)
 - [beyonce reaction](https://celebs.allwomenstalk.com/celeb-reactions-to-beyonces-new-album/)
 - [disney stars grown up](https://celebs.allwomenstalk.com/child-celebs-who-grew-up-to-be-great-role-models/)
-- [celebs with big hair](https://celebs.allwomenstalk.com/celebrities-who-cut-their-long-hair-short/)
 - [neon blue hair](https://celebs.allwomenstalk.com/fabulous-celebrities-with-neon-colored-hair/)
-- [most successful child actor](https://celebs.allwomenstalk.com/most-successful-child-stars-that-we-cant-get-enough-of/)
-- [bikram yoga celebrities](https://celebs.allwomenstalk.com/celebrities-who-love-yoga/)
+- [coolest celebrity tattoos](https://celebs.allwomenstalk.com/best-celebrity-tattoos-that-youre-sure-to-love/)
 - [jesse johnson shirtless](https://celebs.allwomenstalk.com/hottest-sons-of-celebrities-that-you-need-to-know-about/)
+- [most successful child actor](https://celebs.allwomenstalk.com/most-successful-child-stars-that-we-cant-get-enough-of/)
+- [people who died too soon](https://celebs.allwomenstalk.com/talented-people-who-died-too-soon-in-the-last-decade/)
 - [7 Recent Celebrity Breakups ...](https://celebs.allwomenstalk.com/recent-celebrity-breakups/)
 - [7 Greatly Astonishing Celebrity Scandals ...](https://celebs.allwomenstalk.com/greatly-astonishing-celebrity-scandals/)
 

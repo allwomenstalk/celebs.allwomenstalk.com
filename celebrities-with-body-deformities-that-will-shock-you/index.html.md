@@ -3,7 +3,7 @@ title: "13 Celebrities with Body Deformities That Will Shock You ..."
 description: "Lily Allen; Gemma Arterton; Megan Fox; Kate Bosworth; Karolina Kurkova; More ..."
 url: "https://celebs.allwomenstalk.com/celebrities-with-body-deformities-that-will-shock-you/"
 category: "celebs"
-last_updated: "2026-06-13"
+last_updated: "2026-06-17"
 ---
 
 # 13 Celebrities with Body Deformities That Will Shock You ...
@@ -94,16 +94,16 @@ This article written in collaboration with editor, Eliza Martinez
 
 ## Related Posts
 
-- [celebrity beach wedding](https://wedding.allwomenstalk.com/beautiful-celebrity-weddings-of/)
-- [what celebrities changed their names](https://celebs.allwomenstalk.com/celebrities-who-changed-their-name-for-fame/)
-- [strange looking celebrities](https://celebs.allwomenstalk.com/strange-celebrity-looks-that-shouldnt-work-but-kind-of-did/)
 - [real life tv couples](https://movies.allwomenstalk.com/adorable-tv-couples-you-wish-were-dating-in-real-life/)
-- [famous singers from american idol](https://music.allwomenstalk.com/very-successful-artists-that-came-from-american-idol/)
-- [celebrity couples who met on set](https://celebs.allwomenstalk.com/celebrity-couples-who-met-on-a-movie-set/)
-- [was zachary gordon actually singing](https://celebs.allwomenstalk.com/talented-celebs-you-didnt-know-could-sing/)
+- [strange looking celebrities](https://celebs.allwomenstalk.com/strange-celebrity-looks-that-shouldnt-work-but-kind-of-did/)
 - [lucy pinder toppless](https://celebs.allwomenstalk.com/good-hearted-celebrities-who-took-adopted-children-under-their-wings/)
-- [pink celebrities](https://fashion.allwomenstalk.com/celebrities-totally-rocking-the-hot-pink-trend/)
 - [celebrities on dancing with the stars](https://celebs.allwomenstalk.com/celebrities-who-should-be-on-dancing-with-the-stars/)
+- [celebrity couples who met on set](https://celebs.allwomenstalk.com/celebrity-couples-who-met-on-a-movie-set/)
+- [celebrity beach wedding](https://wedding.allwomenstalk.com/beautiful-celebrity-weddings-of/)
+- [pink celebrities](https://fashion.allwomenstalk.com/celebrities-totally-rocking-the-hot-pink-trend/)
+- [was zachary gordon actually singing](https://celebs.allwomenstalk.com/talented-celebs-you-didnt-know-could-sing/)
+- [what celebrities changed their names](https://celebs.allwomenstalk.com/celebrities-who-changed-their-name-for-fame/)
+- [famous singers from american idol](https://music.allwomenstalk.com/very-successful-artists-that-came-from-american-idol/)
 - [4 Celebs That Shot to Fame after Cosmetic Surgery....](https://celebs.allwomenstalk.com/celebs-that-shot-to-fame-after-cosmetic-surgery/)
 - [10 Gorgeous Full-Figured Celebrities ...](https://celebs.allwomenstalk.com/gorgeous-full-figured-celebrities/)
 

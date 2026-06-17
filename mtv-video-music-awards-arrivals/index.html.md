@@ -3,7 +3,7 @@ title: "96 Photos of 2010 MTV Video Music Awards - Arrivals ..."
 description: "Stay ahead, stay chic. Trusted guides on beauty, wellness, fashion, and everything that defines today's empowered woman."
 url: "https://celebs.allwomenstalk.com/mtv-video-music-awards-arrivals/"
 category: "celebs"
-last_updated: "2026-06-13"
+last_updated: "2026-06-17"
 ---
 
 # 96 Photos of 2010 MTV Video Music Awards \- Arrivals ...
@@ -249,16 +249,16 @@ Hayley Williams looked cute in this black Miu Miu dress with floral appliqués. 
 
 ## Related Posts
 
-- [vail bloom feet](https://celebs.allwomenstalk.com/easy-a-premiere/)
-- [A Wide Ranging Soul Train Awards ...](https://celebs.allwomenstalk.com/a-wide-ranging-soul-train-awards/)
-- [celebrity fashion mistakes](https://celebs.allwomenstalk.com/biggest-celebrity-fashion-faux-pas-of/)
-- [who wore it better celebrities](https://celebs.allwomenstalk.com/same-celebrity-outfits-who-wore-it-better/)
 - [celebrities who turned down knighthood](https://celebs.allwomenstalk.com/7-people-who-have-refused-a-major-award/)
-- [The Best Dressed Women of 2010 ...](https://celebs.allwomenstalk.com/the-best-dressed-women-of/)
-- [2010 Hollywood Style Awards ...](https://celebs.allwomenstalk.com/hollywood-style-awards/)
-- [vma celebrities](https://celebs.allwomenstalk.com/best-dressed-celebrities-at-the-mtv-video-music-awards/)
-- [nf face makeup](https://celebs.allwomenstalk.com/celebrity-fashion-face-off-pick-your-winners/)
+- [vail bloom feet](https://celebs.allwomenstalk.com/easy-a-premiere/)
 - [katy perry smurfette dress](https://celebs.allwomenstalk.com/ugliest-celebrity-fashion-faux-pas-of/)
+- [nf face makeup](https://celebs.allwomenstalk.com/celebrity-fashion-face-off-pick-your-winners/)
+- [vma celebrities](https://celebs.allwomenstalk.com/best-dressed-celebrities-at-the-mtv-video-music-awards/)
+- [2010 Hollywood Style Awards ...](https://celebs.allwomenstalk.com/hollywood-style-awards/)
+- [celebrity fashion mistakes](https://celebs.allwomenstalk.com/biggest-celebrity-fashion-faux-pas-of/)
+- [A Wide Ranging Soul Train Awards ...](https://celebs.allwomenstalk.com/a-wide-ranging-soul-train-awards/)
+- [The Best Dressed Women of 2010 ...](https://celebs.allwomenstalk.com/the-best-dressed-women-of/)
+- [who wore it better celebrities](https://celebs.allwomenstalk.com/same-celebrity-outfits-who-wore-it-better/)
 - [27 Photos of 21st Annual GLAAD Media Awards ...](https://celebs.allwomenstalk.com/21st-annual-glaad-media-awards/)
 - [59 Photos of 45th Annual Academy of Country Music ...](https://celebs.allwomenstalk.com/45th-annual-academy-of-country-music-awards/)
 

@@ -3,7 +3,7 @@ title: "7 Women Celebrities Who Smoke ..."
 description: "Jennifer Aniston; Scarlett Johansson; Rumer Willis; Lindsay Lohan; Katherine Heigl; More ..."
 url: "https://celebs.allwomenstalk.com/women-celebrities-who-smoke/"
 category: "celebs"
-last_updated: "2026-06-13"
+last_updated: "2026-06-17"
 ---
 
 # 7 Women Celebrities Who Smoke ...
@@ -67,15 +67,15 @@ Top Photo Credit: r9M_
 ## Related Posts
 
 - [7 Celebrities I Would like to Hang with ...](https://celebs.allwomenstalk.com/7-celebrities-i-would-like-to-hang-with/)
-- [is mario lopez still married](https://celebs.allwomenstalk.com/extremely-short-celebrity-marriages/)
-- [famous people who smoke weed](https://celebs.allwomenstalk.com/celebrities-who-smoke-weed/)
-- [down to earth actresses](https://celebs.allwomenstalk.com/most-down-to-earth-celebrities/)
 - [celebrities with body parts insured](https://celebs.allwomenstalk.com/top-celebrity-insured-body-parts/)
+- [men who look better with age](https://celebs.allwomenstalk.com/celebrity-men-that-look-better-with-age/)
+- [series with hot male leads](https://celebs.allwomenstalk.com/hottest-actors-from-tv-shows/)
+- [famous people who smoke weed](https://celebs.allwomenstalk.com/celebrities-who-smoke-weed/)
+- [best celebrity diets](https://celebs.allwomenstalk.com/top-bizarre-celebrity-diets/)
 - [celebrity marriage proposals](https://celebs.allwomenstalk.com/inspiring-and-sweet-celebrity-marriage-proposals/)
 - [8 Celebrity Pictures to Enjoy Today ...](https://celebs.allwomenstalk.com/celebrity-pictures-to-enjoy-today/)
-- [series with hot male leads](https://celebs.allwomenstalk.com/hottest-actors-from-tv-shows/)
-- [men who look better with age](https://celebs.allwomenstalk.com/celebrity-men-that-look-better-with-age/)
-- [best celebrity diets](https://celebs.allwomenstalk.com/top-bizarre-celebrity-diets/)
+- [down to earth actresses](https://celebs.allwomenstalk.com/most-down-to-earth-celebrities/)
+- [is mario lopez still married](https://celebs.allwomenstalk.com/extremely-short-celebrity-marriages/)
 - [7 of My Favorite Celebrities ...](https://celebs.allwomenstalk.com/7-of-my-favorite-celebrities/)
 - [7 Celebrities with Addictions ...](https://celebs.allwomenstalk.com/celebrities-with-addictions/)
 

@@ -3,7 +3,7 @@ title: "7 Hollywood Same-Sex Couples We Love ..."
 description: "Jesse Tyler Ferguson & Justin Mikita; David Furnish & Sir Elton John; Jim Parsons & Todd Spiewak; David Burtka & Neil Patrick-Harris; Ellen DeGeneres & Portia De Rossi; More ..."
 url: "https://celebs.allwomenstalk.com/hollywood-same-sex-couples-we-love/"
 category: "celebs"
-last_updated: "2026-06-13"
+last_updated: "2026-06-17"
 ---
 
 # 7 Hollywood Same\-Sex Couples We Love ...
@@ -56,16 +56,16 @@ It goes without saying that these couples are amazing - I for one hope they neve
 
 ## Related Posts
 
-- [extras celebrities](https://celebs.allwomenstalk.com/celebrities-who-started-out-as-extras/)
-- [celebrities that were born rich](https://celebs.allwomenstalk.com/celebrities-who-were-born-rich/)
+- [river phoenix and anna nicole smith](https://celebs.allwomenstalk.com/amazing-actors-who-died-before-their-time/)
+- [who lives in the same neighborhood as oprah?](https://celebs.allwomenstalk.com/celebrities-who-are-neighbors-in-real-life/)
 - [famous career changes](https://celebs.allwomenstalk.com/of-the-best-career-changes-in-hollywood/)
 - [cameron diaz armpit](https://celebs.allwomenstalk.com/celebrities-who-supposedly-have-bad-hygiene/)
-- [celebrities with criminal records](https://celebs.allwomenstalk.com/celebrities-with-unexpected-criminal-records/)
-- [who lives in the same neighborhood as oprah?](https://celebs.allwomenstalk.com/celebrities-who-are-neighbors-in-real-life/)
-- [tyler posey and miley cyrus](https://celebs.allwomenstalk.com/celebrity-couples-that-you-probably-forgot-about/)
-- [river phoenix and anna nicole smith](https://celebs.allwomenstalk.com/amazing-actors-who-died-before-their-time/)
-- [famous celebrities you didn't know were related](https://celebs.allwomenstalk.com/pairs-of-celebrities-you-didnt-know-were-related/)
+- [celebrities that were born rich](https://celebs.allwomenstalk.com/celebrities-who-were-born-rich/)
 - [celebrities with same name](https://celebs.allwomenstalk.com/celebrities-who-changed-their-names-when-they-attained-stardom/)
+- [extras celebrities](https://celebs.allwomenstalk.com/celebrities-who-started-out-as-extras/)
+- [tyler posey and miley cyrus](https://celebs.allwomenstalk.com/celebrity-couples-that-you-probably-forgot-about/)
+- [famous celebrities you didn't know were related](https://celebs.allwomenstalk.com/pairs-of-celebrities-you-didnt-know-were-related/)
+- [celebrities with criminal records](https://celebs.allwomenstalk.com/celebrities-with-unexpected-criminal-records/)
 - [7 Cameras to Love ...](https://lifestyle.allwomenstalk.com/cameras-to-love/)
 - [7 Celebrity Dream Couples ...](https://allwomenstalk.com/7-celebrity-dream-couples/)
 

@@ -1,37 +1,46 @@
 ---
-title: "Katy Perry Channels the Roaring 20's for Ghd ..."
+title: "Katy Perry Channels the Roaring 20s as Snow White for ghd"
 description: "Stay ahead, stay chic. Trusted guides on beauty, wellness, fashion, and everything that defines today's empowered woman."
 url: "https://celebs.allwomenstalk.com/katy-perry-channels-the-roaring-20s-for-ghd/"
 category: "celebs"
-last_updated: "2026-06-13"
+last_updated: "2026-06-17"
 ---
 
-# Katy Perry Channels the Roaring 20's for Ghd ...
+# Katy Perry Channels the Roaring 20s as Snow White for ghd
 
-Katy Perry belongs to the rare species of women who can play both naughty and nice and if you dare to disagree, check her out portraying both the evil queen and sweet Snow White flawlessly in this new holiday campaign for ghd's Scarlet collection.
+Katy Perry belongs to the rare species of women who can play both naughty and nice. If you dare to disagree, check her out portraying both the evil queen and sweet Snow White flawlessly in this holiday campaign for ghd's Scarlet collection.
 
-![](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/celebs/2011/10/katy-1-438x560_438x560.jpg)
+![Katy Perry as a flapper girl Snow White](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/celebs/2011/10/katy-1-438x560_438x560.jpg)
 
-I LOVE the fact that the photographer David LaChapelle did not taken the traditional Snow White route with the big white puffy dress and other such fluff. Instead, we have a flapper girl Snow White right from the 1920's wearing a gorgeous peach John Galliano dress, a feather boa (fun!), a finger-waved bob and layers of chains. Don't miss the adorable blue songbirds. It's flirty, pretty and very Katy!
+I LOVE the fact that the photographer David LaChapelle did not take the traditional Snow White route with the big white puffy dress and other such fluff. Instead, we have a flapper girl Snow White right from the 1920s wearing a gorgeous peach John Galliano dress, a feather boa (fun!), a finger-waved bob, and layers of chains. Don't miss the adorable blue songbirds. It's flirty, pretty, and very Katy! For more stunning celebrity transformations, check out our guide to [iconic celebrity hairstyles](https://celebs.allwomenstalk.com/celebrity-hairstyles/).
 
-![](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/celebs/2011/10/katy-2-449x560_449x560.jpg)
+![Katy Perry as the Evil Queen](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/celebs/2011/10/katy-2-449x560_449x560.jpg)
 
-And then of course we have Katy Perry as the evil queen in thigh high stockings, fingerless gloves, a sexy-as-hell gown, sinful heels, a sleeker bob and of course the infamous poisoned apple. Now if the real evil queen looked like that, she would never have to worry about Snow White. Again, very Katy!
+And then of course we have Katy Perry as the evil queen in thigh-high stockings, fingerless gloves, a sexy-as-hell gown, sinful heels, a sleeker bob, and of course the infamous poisoned apple. Now if the real evil queen looked like that, she would never have to worry about Snow White. Again, very Katy!
 
-I love Katy, I love the New York backdrop and of course, I love the hair! ghd's Scarlet collection is supposed to art deco inspired and I certainly get that from these pictures. You can now check out the Scarlet collection and buy it at [ghdhair.com](http://www.ghdhair.com?ref=allwomenstalk.com).So, which Katy do you prefer, naughty or nice?
+### Katy's Art Deco Inspiration
+
+I love Katy, I love the New York backdrop, and of course, I love the hair! ghd's Scarlet collection is supposed to be art deco inspired and I certainly get that from these pictures. You can now check out the [Scarlet collection](https://www.ghdhair.com) and buy it at the official ghd website. To get a similar look, you might also want to explore [different ways to style a bob](https://hair.allwomenstalk.com/ways-to-style-a-bob/).
+
+| Character | Style | Key Elements |
+| --- | --- | --- |
+| Snow White | 1920s Flapper | Peach John Galliano dress, feather boa, finger-waved bob |
+| Evil Queen | Modern Noir | Thigh-high stockings, sexy gown, sleek bob, poisoned apple |
+
+So, which Katy do you prefer, naughty or nice? Let us know in the comments!
 
 ## Related Posts
 
 - [Justin the New Man in Olivia’s Life…](https://celebs.allwomenstalk.com/justin-the-new-man-in-olivias-life/)
-- [Victoria Beckham: Thank God David Looks like Crap....](https://celebs.allwomenstalk.com/victoria-beckham-thank-god-david-looks-like-crap/)
-- [justin holding selena's hand](https://celebs.allwomenstalk.com/selena-justin-hold-hands-almost/)
-- [kate winslet und liz taylor](https://celebs.allwomenstalk.com/kate-winslet-channels-elizabeth-taylor-for-v-magazine/)
-- [vanessadoes](https://celebs.allwomenstalk.com/vanessa-does-sexy/)
 - [Angelina Reveals Her Latest Talent…](https://celebs.allwomenstalk.com/angelina-reveals-her-latest-talent/)
-- [kristen stewart](https://celebs.allwomenstalk.com/kristen-stewart-gets-edgy-for-vogue-italia/)
 - [Adame Levine and Anne V for Vogue Russia: Hot or a...](https://celebs.allwomenstalk.com/adame-levine-and-anne-v-for-vogue-russia-hot-or-a-bit-much/)
-- [marisa nsfw](https://celebs.allwomenstalk.com/marisa-miller-lets-them-loose-for-a-cause-nsfw/)
 - [ed o'neill photo fan](https://celebs.allwomenstalk.com/ed-oneill-is-janes-biggest-fan/)
+- [vanessadoes](https://celebs.allwomenstalk.com/vanessa-does-sexy/)
+- [justin holding selena's hand](https://celebs.allwomenstalk.com/selena-justin-hold-hands-almost/)
+- [marisa nsfw](https://celebs.allwomenstalk.com/marisa-miller-lets-them-loose-for-a-cause-nsfw/)
+- [kate winslet und liz taylor](https://celebs.allwomenstalk.com/kate-winslet-channels-elizabeth-taylor-for-v-magazine/)
+- [kristen stewart](https://celebs.allwomenstalk.com/kristen-stewart-gets-edgy-for-vogue-italia/)
+- [Victoria Beckham: Thank God David Looks like Crap....](https://celebs.allwomenstalk.com/victoria-beckham-thank-god-david-looks-like-crap/)
 - [20 Fabulous Celebrity Hair Cuts ...](https://hair.allwomenstalk.com/fabulous-celebrity-hair-cuts/)
 - [Ginger Spice Wants to Go Posh ...](https://allwomenstalk.com/ginger-spice-wants-to-go-posh/)
 

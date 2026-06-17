@@ -3,7 +3,7 @@ title: "17 Worst Celebrity Tattoos ..."
 description: "Ke$ha; Rihanna; T-Pain; Bam Margera; Mike Tyson; More ..."
 url: "https://celebs.allwomenstalk.com/worst-celebrity-tattoos/"
 category: "celebs"
-last_updated: "2026-06-13"
+last_updated: "2026-06-17"
 ---
 
 # 17 Worst Celebrity Tattoos ...
@@ -116,15 +116,15 @@ Here’s proof that celebrities have temporary lapses in judgment just like us w
 
 ## Related Posts
 
-- [renee zellweger weight loss diet](https://celebs.allwomenstalk.com/celebs-who-drastically-lost-weight-for-roles/)
-- [teenage celebs](https://celebs.allwomenstalk.com/most-stylish-teen-celebrities-to-watch/)
-- [weddings while pregnant](https://wedding.allwomenstalk.com/gorgeous-pregnant-celebrity-brides/)
-- [rihanna no make up](https://celebs.allwomenstalk.com/no-makeup-celebrities-that-look-great/)
-- [hot hollywood news](https://celebs.allwomenstalk.com/hot-hollywood-stars-with-troubled-pasts/)
 - [stephenie meyer twilight cameo](https://movies.allwomenstalk.com/writers-who-made-a-cameo-appearance/)
 - [edward cullen sixpack](https://celebs.allwomenstalk.com/top-hot-actors-who-should-play-christian-grey/)
-- [is natalie portman smart](https://celebs.allwomenstalk.com/super-smart-celebrities/)
 - [dilf celebs](https://celebs.allwomenstalk.com/gorgeous-celebrities-both-men-and-women-drool-over/)
+- [rihanna no make up](https://celebs.allwomenstalk.com/no-makeup-celebrities-that-look-great/)
+- [renee zellweger weight loss diet](https://celebs.allwomenstalk.com/celebs-who-drastically-lost-weight-for-roles/)
+- [teenage celebs](https://celebs.allwomenstalk.com/most-stylish-teen-celebrities-to-watch/)
+- [hot hollywood news](https://celebs.allwomenstalk.com/hot-hollywood-stars-with-troubled-pasts/)
+- [weddings while pregnant](https://wedding.allwomenstalk.com/gorgeous-pregnant-celebrity-brides/)
+- [is natalie portman smart](https://celebs.allwomenstalk.com/super-smart-celebrities/)
 - [best front men](https://celebs.allwomenstalk.com/hottest-band-front-men/)
 - [7 Biggest Celebrity Weddings ...](https://wedding.allwomenstalk.com/biggest-celebrity-weddings/)
 - [7 Funkiest Celebrity Hairstyles ...](https://celebs.allwomenstalk.com/7-funkiest-celebrity-hairstyles/)

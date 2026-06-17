@@ -3,7 +3,7 @@ title: "15 Long Lasting Celebrity Marriages ..."
 description: "Sarah Jessica Parker and Matthew Broderick; Iman and David Bowie; Kevin Bacon and Kyra Sedgwick; Tom Hanks and Rita Wilson; Gwen Stefani and Gavin Rossdale; More ..."
 url: "https://celebs.allwomenstalk.com/long-lasting-celebrity-marriages/"
 category: "celebs"
-last_updated: "2026-06-13"
+last_updated: "2026-06-17"
 ---
 
 # 15 Long Lasting Celebrity Marriages ...
@@ -105,15 +105,15 @@ Long lasting celebrity marriages may not always make headlines, but whilst other
 ## Related Posts
 
 - [taurus celebrities male rappers](https://movies.allwomenstalk.com/rappers-turned-actors/)
-- [site:fashion.allwomenstalk.com](https://fashion.allwomenstalk.com/unlikely-celebrity-style-icons/)
+- [boys singer](https://celebs.allwomenstalk.com/hottest-male-singers/)
+- [alanis morissette spouse](https://celebs.allwomenstalk.com/celebrity-couples-who-never-made-it-down-the-aisle/)
 - [male british actors in their 40s](https://celebs.allwomenstalk.com/sexiest-male-british-actors/)
+- [amandla stenberg as a kid](https://movies.allwomenstalk.com/up-and-coming-actresses-to-look-out-for/)
 - [trends started by celebrities](https://celebs.allwomenstalk.com/trends-started-by-celebrities/)
 - [gordon rasmsay](https://celebs.allwomenstalk.com/celebs-youre-ashamed-to-admit-you-have-a-crush-on/)
-- [amandla stenberg as a kid](https://movies.allwomenstalk.com/up-and-coming-actresses-to-look-out-for/)
-- [alanis morissette spouse](https://celebs.allwomenstalk.com/celebrity-couples-who-never-made-it-down-the-aisle/)
+- [site:fashion.allwomenstalk.com](https://fashion.allwomenstalk.com/unlikely-celebrity-style-icons/)
 - [sky ferreira michael jackson](https://lifestyle.allwomenstalk.com/music-stars-to-watch-in/)
 - [gamer celebrities](https://lifestyle.allwomenstalk.com/celebrity-girl-gamers/)
-- [boys singer](https://celebs.allwomenstalk.com/hottest-male-singers/)
 - [7 Biggest Celebrity Weddings ...](https://wedding.allwomenstalk.com/biggest-celebrity-weddings/)
 - [25 Most Expensive Celebrity Weddings of All Time ....](https://celebs.allwomenstalk.com/25-most-expensive-celebrity-weddings/)
 

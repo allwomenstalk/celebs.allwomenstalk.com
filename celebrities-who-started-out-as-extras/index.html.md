@@ -3,7 +3,7 @@ title: "7 Celebrities Who Started out as Extras ..."
 description: "Channing Tatum; Bruce Willis; Brad Pitt; Megan Fox; Matt Damon; More ..."
 url: "https://celebs.allwomenstalk.com/celebrities-who-started-out-as-extras/"
 category: "celebs"
-last_updated: "2026-06-13"
+last_updated: "2026-06-17"
 ---
 
 # 7 Celebrities Who Started out as Extras ...
@@ -55,16 +55,16 @@ _elitedaily.com_
 
 ## Related Posts
 
-- [who lives in the same neighborhood as oprah?](https://celebs.allwomenstalk.com/celebrities-who-are-neighbors-in-real-life/)
-- [actors and musicians](https://celebs.allwomenstalk.com/talented-actors-who-are-also-musicians/)
-- [talented famous person](https://celebs.allwomenstalk.com/celebrities-who-are-multi-talented/)
-- [river phoenix and anna nicole smith](https://celebs.allwomenstalk.com/amazing-actors-who-died-before-their-time/)
+- [celebrities with same name](https://celebs.allwomenstalk.com/celebrities-who-changed-their-names-when-they-attained-stardom/)
 - [brian austin green megan fox age](https://celebs.allwomenstalk.com/cute-celebrity-couples-who-eloped/)
 - [tyler posey and miley cyrus](https://celebs.allwomenstalk.com/celebrity-couples-that-you-probably-forgot-about/)
-- [celebrities with same name](https://celebs.allwomenstalk.com/celebrities-who-changed-their-names-when-they-attained-stardom/)
-- [famous celebrities you didn't know were related](https://celebs.allwomenstalk.com/pairs-of-celebrities-you-didnt-know-were-related/)
+- [actors and musicians](https://celebs.allwomenstalk.com/talented-actors-who-are-also-musicians/)
 - [actors who changed their names](https://celebs.allwomenstalk.com/celebrities-who-changed-their-appearance-for-a-role/)
+- [river phoenix and anna nicole smith](https://celebs.allwomenstalk.com/amazing-actors-who-died-before-their-time/)
+- [who lives in the same neighborhood as oprah?](https://celebs.allwomenstalk.com/celebrities-who-are-neighbors-in-real-life/)
+- [famous celebrities you didn't know were related](https://celebs.allwomenstalk.com/pairs-of-celebrities-you-didnt-know-were-related/)
 - [kesha cotton candy](https://celebs.allwomenstalk.com/celebrities-with-cotton-candy-hair/)
+- [talented famous person](https://celebs.allwomenstalk.com/celebrities-who-are-multi-talented/)
 - [7 Superstitious Celebrities ...](https://allwomenstalk.com/7-superstitious-celebrities/)
 - [7 Celebs Who Drastically Lost Weight for Roles ...](https://celebs.allwomenstalk.com/celebs-who-drastically-lost-weight-for-roles/)
 

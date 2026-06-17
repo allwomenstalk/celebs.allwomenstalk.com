@@ -3,7 +3,7 @@ title: "Surprising Celebrity Couples You May Have Forgotten ..."
 description: "Tom Cruise and Cher; Robbie Williams and Cameron Diaz; Justin Timberlake and Fergie; Lance Armstrong and Ashley Olsen; Liam Neeson and Helen Mirren; More ..."
 url: "https://celebs.allwomenstalk.com/celebrity-couples-that-you-never-knew-about/"
 category: "celebs"
-last_updated: "2026-06-13"
+last_updated: "2026-06-17"
 ---
 
 # Surprising Celebrity Couples You May Have Forgotten ...
@@ -54,16 +54,16 @@ I was only reminded of some of these celebrity couples when I was researching th
 
 ## Related Posts
 
-- [celebrities nyc apartments](https://celebs.allwomenstalk.com/amazing-celebrity-apartments-you-need-to-see/)
-- [jessica szohr taylor swift 22](https://celebs.allwomenstalk.com/gossip-girl-celebs-to-follow-on-twitter/)
-- [celebs on off](https://celebs.allwomenstalk.com/celebrity-on-and-off-again-couples/)
-- [ice bucket challenge celebrity](https://celebs.allwomenstalk.com/celebrities-who-have-completed-the-ice-bucket-challenge/)
-- [sophie turner and taylor swift](https://celebs.allwomenstalk.com/celebrities-who-are-great-friends-with-taylor-swift/)
 - [celebrities who abandoned their child](https://celebs.allwomenstalk.com/celebrities-who-abandoned-fame/)
+- [is ricco barrino related to fantasia](https://celebs.allwomenstalk.com/celebrities-who-are-related-to-someone-famous/)
+- [jessica szohr taylor swift 22](https://celebs.allwomenstalk.com/gossip-girl-celebs-to-follow-on-twitter/)
+- [ice bucket challenge celebrity](https://celebs.allwomenstalk.com/celebrities-who-have-completed-the-ice-bucket-challenge/)
 - [njbc gossip girl](https://movies.allwomenstalk.com/most-adorable-on-screen-couples/)
 - [celebrities suffering from anxiety](https://celebs.allwomenstalk.com/celebrities-with-anxiety-disorders/)
+- [celebrities nyc apartments](https://celebs.allwomenstalk.com/amazing-celebrity-apartments-you-need-to-see/)
 - [crazy actor transformations](https://movies.allwomenstalk.com/actors-who-transformed-their-bodies-for-a-movie-role/)
-- [is ricco barrino related to fantasia](https://celebs.allwomenstalk.com/celebrities-who-are-related-to-someone-famous/)
+- [celebs on off](https://celebs.allwomenstalk.com/celebrity-on-and-off-again-couples/)
+- [sophie turner and taylor swift](https://celebs.allwomenstalk.com/celebrities-who-are-great-friends-with-taylor-swift/)
 - [7 Recent Celebrity Breakups ...](https://celebs.allwomenstalk.com/recent-celebrity-breakups/)
 - [5 Celebrity Couples Who Just Tied the Knot ...](https://allwomenstalk.com/5-celebrity-couples-who-just-tied-the-knot/)
 

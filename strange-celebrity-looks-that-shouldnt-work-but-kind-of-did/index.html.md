@@ -3,7 +3,7 @@ title: "7 Strange Celebrity Looks That Shouldn't Work but Kind of Did ..."
 description: "Miley Cyrus and Her Eyebrows; Kelly Osbourne's Lilac Hair; NeNe Leakes' Platinum Evolution; Gordon Ramsay's Botox; Mo'Nique's Hairy Legs; More ..."
 url: "https://celebs.allwomenstalk.com/strange-celebrity-looks-that-shouldnt-work-but-kind-of-did/"
 category: "celebs"
-last_updated: "2026-06-13"
+last_updated: "2026-06-17"
 ---
 
 # 7 Strange Celebrity Looks That Shouldn't Work but Kind of Did ...
@@ -58,14 +58,14 @@ Of course, not everyone will think these looks worked, and that's perfectly okay
 
 - [was zachary gordon actually singing](https://celebs.allwomenstalk.com/talented-celebs-you-didnt-know-could-sing/)
 - [famous singers from american idol](https://music.allwomenstalk.com/very-successful-artists-that-came-from-american-idol/)
-- [what celebrities changed their names](https://celebs.allwomenstalk.com/celebrities-who-changed-their-name-for-fame/)
 - [hard actors to guess](https://movies.allwomenstalk.com/actors-who-turned-down-legendary-roles/)
-- [celebrities that are 15](https://celebs.allwomenstalk.com/celebrities-who-are-a-lot-older-than-you-think/)
+- [what celebrities changed their names](https://celebs.allwomenstalk.com/celebrities-who-changed-their-name-for-fame/)
 - [celebrity beach wedding](https://wedding.allwomenstalk.com/beautiful-celebrity-weddings-of/)
 - [greedy famous person](https://celebs.allwomenstalk.com/celebrities-who-embody-the-7-deadly-sins/)
 - [hottest grey's anatomy characters](https://movies.allwomenstalk.com/hottest-guys-on-greys-anatomy-that-we-cant-help-but-love/)
-- [tina fey daughter alice](https://celebs.allwomenstalk.com/celebrity-kids-who-looks-like-their-parents/)
 - [british actors that do american accents](https://movies.allwomenstalk.com/british-actors-who-can-do-american-accents-perfectly/)
+- [celebrities that are 15](https://celebs.allwomenstalk.com/celebrities-who-are-a-lot-older-than-you-think/)
+- [tina fey daughter alice](https://celebs.allwomenstalk.com/celebrity-kids-who-looks-like-their-parents/)
 - [7 Funkiest Celebrity Hairstyles ...](https://celebs.allwomenstalk.com/7-funkiest-celebrity-hairstyles/)
 - [8 Celebrities That Look Older than Their True Age ...](https://celebs.allwomenstalk.com/celebrities-that-look-older-than-their-true-age/)
 

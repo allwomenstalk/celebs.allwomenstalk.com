@@ -3,7 +3,7 @@ title: "Inspiring Celeb Marriages That Are Actually Long Lasting ..."
 description: "Kevin Bacon & Kyra Sedgwick; John Travolta & Kelly Preston; Tom Hanks & Rita Wilson; Will Smith & Jada Pinkett Smith; Ozzy & Sharon Osbourne; More ..."
 url: "https://celebs.allwomenstalk.com/inspiring-celeb-marriages-that-are-actually-long-lasting/"
 category: "celebs"
-last_updated: "2026-06-13"
+last_updated: "2026-06-17"
 ---
 
 # Inspiring Celeb Marriages That Are Actually Long Lasting ...
@@ -62,16 +62,16 @@ Marriage takes work. And for those couples who are willing to do the work, marri
 
 ## Related Posts
 
-- [whoopi goldberg avpd](https://celebs.allwomenstalk.com/successful-stars-with-mental-disorders/)
-- [sensational beginnings](https://movies.allwomenstalk.com/actors-with-terrible-tv-beginnings/)
-- [how old is gabby union](https://movies.allwomenstalk.com/adult-actors-who-have-played-teenagers/)
+- [david beckham swag](https://celebs.allwomenstalk.com/times-david-beckham-proved-hes-hot-hot-hot/)
 - [gardening celebrities](https://gardening.allwomenstalk.com/celebrity-gardens-you-have-to-see-to-believe/)
 - [ariana grande workout clothes](https://fitness.allwomenstalk.com/sweat-in-style-check-out-these-celebs-in-workout-gear/)
-- [middle aged male actors](https://movies.allwomenstalk.com/these-hot-british-actors-will-get-your-pulse-racing/)
 - [riche le stylo glistening](https://hair.allwomenstalk.com/check-out-these-gorg-celebs-whove-rocked-rainbow-hair/)
-- [harrison ford tom hanks](https://lifestyle.allwomenstalk.com/celebs-that-would-make-a-better-president-than-kanye/)
 - [heidi gum](https://celebs.allwomenstalk.com/celebrity-bubble-gum-girls/)
-- [david beckham swag](https://celebs.allwomenstalk.com/times-david-beckham-proved-hes-hot-hot-hot/)
+- [harrison ford tom hanks](https://lifestyle.allwomenstalk.com/celebs-that-would-make-a-better-president-than-kanye/)
+- [how old is gabby union](https://movies.allwomenstalk.com/adult-actors-who-have-played-teenagers/)
+- [sensational beginnings](https://movies.allwomenstalk.com/actors-with-terrible-tv-beginnings/)
+- [middle aged male actors](https://movies.allwomenstalk.com/these-hot-british-actors-will-get-your-pulse-racing/)
+- [whoopi goldberg avpd](https://celebs.allwomenstalk.com/successful-stars-with-mental-disorders/)
 - [20 Shortest Celebrity Marriages ...](https://allwomenstalk.com/20-shortest-celebrity-marriages/)
 - [12 Celebrity Couples Still Going Strong ...](https://allwomenstalk.com/12-celebrity-couples-still-going-strong/)
 

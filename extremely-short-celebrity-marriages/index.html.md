@@ -3,7 +3,7 @@ title: "10 Extremely Short Celebrity Marriages ..."
 description: "Rudolph Valentino and Jean Acker < 1 Day; Robin Givens and Svetozar Marinkovic: 1 Day; Zsa Zsa Gabor and Felipe De Alba: 1 Day; Britney Spears and Jason Alexander: 55 Hours; Dennis Hopper and Michelle Phillips: 8 Days; More ..."
 url: "https://celebs.allwomenstalk.com/extremely-short-celebrity-marriages/"
 category: "celebs"
-last_updated: "2026-06-13"
+last_updated: "2026-06-17"
 ---
 
 # 10 Extremely Short Celebrity Marriages ...
@@ -56,16 +56,16 @@ Top Image Source: [weheartit.com](https://weheartit.com/entry/15150212)
 
 ## Related Posts
 
+- [alpha male example](https://celebs.allwomenstalk.com/adorable-and-incredibly-gorgeous-alpha-males-in-hollywood/)
 - [25 Most Unique Celebrity Baby Names ...](https://celebs.allwomenstalk.com/25-most-unique-celebrity-baby-names/)
 - [series with hot male leads](https://celebs.allwomenstalk.com/hottest-actors-from-tv-shows/)
-- [alpha male example](https://celebs.allwomenstalk.com/adorable-and-incredibly-gorgeous-alpha-males-in-hollywood/)
-- [sexy men hollywood](https://celebs.allwomenstalk.com/hottest-men-in-hollywood/)
-- [8 Celebrities Who Have Aged Beautifully ...](https://celebs.allwomenstalk.com/celebrities-who-have-aged-beautifully/)
 - [iq actors](https://celebs.allwomenstalk.com/25-smartest-celebrities/)
 - [most scandalous celebrities](https://celebs.allwomenstalk.com/most-scandalous-celebrity-sex-tapes/)
-- [actress like sandra bullock](https://celebs.allwomenstalk.com/and-fabulous-7-female-celebrities-that-look-better-than-ever/)
+- [8 Celebrities Who Have Aged Beautifully ...](https://celebs.allwomenstalk.com/celebrities-who-have-aged-beautifully/)
 - [celebrity sez tapes](https://celebs.allwomenstalk.com/most-infamous-celebrity-sex-tapes/)
+- [sexy men hollywood](https://celebs.allwomenstalk.com/hottest-men-in-hollywood/)
 - [celebritytrends](https://celebs.allwomenstalk.com/awfully-outrageous-celebrity-trends-i-hate/)
+- [actress like sandra bullock](https://celebs.allwomenstalk.com/and-fabulous-7-female-celebrities-that-look-better-than-ever/)
 - [7 Biggest Celebrity Weddings ...](https://wedding.allwomenstalk.com/biggest-celebrity-weddings/)
 - [7 Recent Celebrity Breakups ...](https://celebs.allwomenstalk.com/recent-celebrity-breakups/)
 

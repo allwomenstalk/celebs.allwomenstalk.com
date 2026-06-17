@@ -3,7 +3,7 @@ title: "Kate Bosworth's Skinny Cargo Pants- Hot or Not?"
 description: "Stay ahead, stay chic. Trusted guides on beauty, wellness, fashion, and everything that defines today's empowered woman."
 url: "https://celebs.allwomenstalk.com/kates-skinny-cargo-pants/"
 category: "celebs"
-last_updated: "2026-06-13"
+last_updated: "2026-06-17"
 ---
 
 # Kate Bosworth's Skinny Cargo Pants\- Hot or Not?
@@ -22,14 +22,14 @@ And your verdict ladies?
 
 - [3 Photos of Ripa Works out ...](https://celebs.allwomenstalk.com/ripa-works-out/)
 - [kylie minogue airport](https://celebs.allwomenstalk.com/kylie-lands-in-nice/)
+- [in my sleep 2010](https://celebs.allwomenstalk.com/in-my-sleep-premiere/)
 - [liv tyler tights](https://celebs.allwomenstalk.com/liv-hails-and-waits/)
+- [fox upfronts](https://celebs.allwomenstalk.com/fox-upfronts-in-central-park/)
 - [brooklyn decker just go with it bikini](https://celebs.allwomenstalk.com/brooklyns-bikini-bod/)
 - [antonio banderas photoshoot](https://celebs.allwomenstalk.com/antonios-motorbike-team/)
-- [fox upfronts](https://celebs.allwomenstalk.com/fox-upfronts-in-central-park/)
-- [in my sleep 2010](https://celebs.allwomenstalk.com/in-my-sleep-premiere/)
-- ["rebecca gayheart"](https://celebs.allwomenstalk.com/dane-and-gayheart-pass-through-paris/)
 - [Does Sofia Vergara Look Pretty in Blue?](https://celebs.allwomenstalk.com/vergaras-lunch-date/)
 - [27 Photos of "the a-Team" Premiere ...](https://celebs.allwomenstalk.com/the-a-team-premiere/)
+- ["rebecca gayheart"](https://celebs.allwomenstalk.com/dane-and-gayheart-pass-through-paris/)
 - [Kourtney Kardashian's Nude Look- Hot or Not?](https://celebs.allwomenstalk.com/kourtney-keeps-it-fashionable/)
 - [Does Kristen Dunst Have a Fabulous Bikini Body?](https://celebs.allwomenstalk.com/dunsts-bikini-body/)
 

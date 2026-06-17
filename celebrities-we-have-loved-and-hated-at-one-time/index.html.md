@@ -3,7 +3,7 @@ title: "15 Celebrities We Have Loved and Hated at One Time ..."
 description: "Megan Fox; Miley Cyrus; Rolf Harris; Cris Brown & Rihanna; Lady Gaga; More ..."
 url: "https://celebs.allwomenstalk.com/celebrities-we-have-loved-and-hated-at-one-time/"
 category: "celebs"
-last_updated: "2026-06-13"
+last_updated: "2026-06-17"
 ---
 
 # 15 Celebrities We Have Loved and Hated at One Time ...
@@ -104,14 +104,14 @@ Which celebrities have taken you through the whole spectrum from love to hate?
 
 ## Related Posts
 
-- [celebrity couple goals](https://celebs.allwomenstalk.com/celebrity-couples-that-should-be-your-relationshipgoals/)
-- [celebrities with red lipstick](https://celebs.allwomenstalk.com/these-celebs-prove-you-too-can-rock-a-red-lip/)
-- [emma watson gpa](https://celebs.allwomenstalk.com/beauty-brains-celebrities-that-went-back-to-school/)
 - [why does seal have facial scars](https://celebs.allwomenstalk.com/these-lesser-known-stories-behind-male-celebrities-scars-will-blow-your-mind/)
-- [celebrities who can sing](https://celebs.allwomenstalk.com/they-can-do-it-all-celebs-you-never-knew-could-sing/)
-- [are britney spears teeth different](https://celebs.allwomenstalk.com/gorgeous-celebrities-with-gap-teeth-who-inspire-you-to-embrace-your-smile/)
 - [overrated celebs](https://celebs.allwomenstalk.com/fame-is-overrated-heres-why-you-dont-want-to-be-a-celebrity/)
 - [drew barrymore and jeremy thomas](https://celebs.allwomenstalk.com/the-downside-to-stardom-9-shockingly-short-celebrity-marriages-you-never-knew-about/)
+- [celebrities who can sing](https://celebs.allwomenstalk.com/they-can-do-it-all-celebs-you-never-knew-could-sing/)
+- [celebrities with red lipstick](https://celebs.allwomenstalk.com/these-celebs-prove-you-too-can-rock-a-red-lip/)
+- [emma watson gpa](https://celebs.allwomenstalk.com/beauty-brains-celebrities-that-went-back-to-school/)
+- [celebrity couple goals](https://celebs.allwomenstalk.com/celebrity-couples-that-should-be-your-relationshipgoals/)
+- [are britney spears teeth different](https://celebs.allwomenstalk.com/gorgeous-celebrities-with-gap-teeth-who-inspire-you-to-embrace-your-smile/)
 - [famous 80s actors](https://celebs.allwomenstalk.com/and-hes-still-hot-80s-actors-who-look-even-better-now/)
 - [young neville longbottom](https://movies.allwomenstalk.com/neville-got-hot-and-this-is-what-the-rest-of-the-harry-potter-cast-looks-like-now/)
 - [25 Most Messed up Celebrities ...](https://celebs.allwomenstalk.com/25-most-messed-up-celebrities/)

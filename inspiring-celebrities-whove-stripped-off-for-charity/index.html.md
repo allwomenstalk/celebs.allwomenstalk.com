@@ -3,7 +3,7 @@ title: "15 Inspiring Celebrities Who've Stripped off for Charity ..."
 description: "Miley Cyrus; Cindy Crawford; Eva Mendes; Kate Moss; Victoria Beckham; More ..."
 url: "https://celebs.allwomenstalk.com/inspiring-celebrities-whove-stripped-off-for-charity/"
 category: "celebs"
-last_updated: "2026-06-13"
+last_updated: "2026-06-17"
 ---
 
 # 15 Inspiring Celebrities Who've Stripped off for Charity ...
@@ -104,16 +104,16 @@ Miley definitely isn’t alone – there are hundreds of celebrities who’ve st
 
 ## Related Posts
 
-- [eva longoria and jennifer lopez](https://celebs.allwomenstalk.com/best-celebrity-friendships-that-didnt-last-forever/)
+- [most famous british actors](https://movies.allwomenstalk.com/underrated-british-actors-i-want-to-see-more-of/)
+- [underrated celebrity](https://celebs.allwomenstalk.com/underrated-hollywood-stars-that-deserve-more-attention/)
 - [wino forever meaning](https://celebs.allwomenstalk.com/worst-celebrity-tattoos-that-make-us-cringe/)
-- [jon heder lds](https://celebs.allwomenstalk.com/famous-celebrities-with-a-twin-that-will-probably-surprise-you/)
 - [chace crawford liam hemsworth](https://celebs.allwomenstalk.com/hottest-guys-of-that-we-cant-stop-drooling-over/)
 - [blonde hair 50s](https://celebs.allwomenstalk.com/celebrities-with-trend-setting-hair-to-copy-happily/)
-- [famous duos characters](https://inspiration.allwomenstalk.com/top-american-tv-duos-of-all-time/)
+- [jon heder lds](https://celebs.allwomenstalk.com/famous-celebrities-with-a-twin-that-will-probably-surprise-you/)
 - [good luck with bookin that stage](https://celebs.allwomenstalk.com/most-scandalous-celebrity-twitter-feuds-that-will-evoke-a-facepalm/)
-- [most famous british actors](https://movies.allwomenstalk.com/underrated-british-actors-i-want-to-see-more-of/)
 - [brown's chicken steve carell](https://celebs.allwomenstalk.com/old-commercials-with-now-famous-actors-that-will-blow-your-mind/)
-- [underrated celebrity](https://celebs.allwomenstalk.com/underrated-hollywood-stars-that-deserve-more-attention/)
+- [famous duos characters](https://inspiration.allwomenstalk.com/top-american-tv-duos-of-all-time/)
+- [eva longoria and jennifer lopez](https://celebs.allwomenstalk.com/best-celebrity-friendships-that-didnt-last-forever/)
 - [Top Celebrity Philantrophists ...](https://celebs.allwomenstalk.com/top-celebrity-philantrophists/)
 - [8 Celebrities with Excellent off-Duty Style ...](https://celebs.allwomenstalk.com/celebrities-with-excellent-off-duty-style/)
 

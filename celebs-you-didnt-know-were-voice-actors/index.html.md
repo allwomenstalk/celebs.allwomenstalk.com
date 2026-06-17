@@ -3,7 +3,7 @@ title: "7 Celebs You Didn't Know Were Voice Actors ..."
 description: "Selena Gomez (Hotel Transylvania); Emma Stone (the Croods); Mandy Moore (Tangled); Jay Baruchel (How to Train Your Dragon); Miranda Cosgrove (Despicable Me); More ..."
 url: "https://celebs.allwomenstalk.com/celebs-you-didnt-know-were-voice-actors/"
 category: "celebs"
-last_updated: "2026-06-13"
+last_updated: "2026-06-17"
 ---
 
 # 7 Celebs You Didn't Know Were Voice Actors ...
@@ -42,16 +42,16 @@ There you have it! These celebs all double as voice actors! Pretty amazing, huh?
 
 ## Related Posts
 
+- [taram killian](https://celebs.allwomenstalk.com/crush-worthy-celebrities-you-should-start-paying-more-attention-to/)
+- [7 Amazing American Idol Contestants That Never Mad...](https://music.allwomenstalk.com/amazing-american-idol-contestants-that-never-made-it-through/)
+- [7 Actresses Who Never Really Made It as Singers .....](https://celebs.allwomenstalk.com/actresses-who-never-really-made-it-as-singers/)
+- [funny celebrity scandals](https://celebs.allwomenstalk.com/celebrity-scandals-from-that-didnt-surprise-anyone/)
 - [funny celebrity memes](https://7fun.net/of-the-best-celebrity-memes-on-the-internet/)
+- [9 down to Earth Celebs Who Would Make Great BFFs ....](https://celebs.allwomenstalk.com/down-to-earth-celebs-who-would-make-great-bffs/)
+- [7 Breakout Stars of 2013 We Came to Love ...](https://celebs.allwomenstalk.com/breakout-stars-of-we-came-to-love/)
 - [9 Celebrity Relationship Scandals That We Still Ta...](https://celebs.allwomenstalk.com/celebrity-relationship-scandals-that-we-still-talk-about/)
 - [7 Engaged Celebrities Who Will Hopefully Tie the K...](https://celebs.allwomenstalk.com/engaged-celebrities-who-will-hopefully-tie-the-knot-in/)
-- [7 Breakout Stars of 2013 We Came to Love ...](https://celebs.allwomenstalk.com/breakout-stars-of-we-came-to-love/)
-- [funny celebrity scandals](https://celebs.allwomenstalk.com/celebrity-scandals-from-that-didnt-surprise-anyone/)
 - [7 Heartbreaking Celebrity Splits That We Still Can...](https://celebs.allwomenstalk.com/heartbreaking-celebrity-splits-that-we-still-cant-get-over/)
-- [7 Actresses Who Never Really Made It as Singers .....](https://celebs.allwomenstalk.com/actresses-who-never-really-made-it-as-singers/)
-- [7 Amazing American Idol Contestants That Never Mad...](https://music.allwomenstalk.com/amazing-american-idol-contestants-that-never-made-it-through/)
-- [taram killian](https://celebs.allwomenstalk.com/crush-worthy-celebrities-you-should-start-paying-more-attention-to/)
-- [9 down to Earth Celebs Who Would Make Great BFFs ....](https://celebs.allwomenstalk.com/down-to-earth-celebs-who-would-make-great-bffs/)
 - [7 Iconic Movies Roles That Were Almost Played by O...](https://movies.allwomenstalk.com/7-iconic-movies-roles-that-were-almost-played-by-other-actors/)
 - [7 Celebrities Who Starred in Commercials before Th...](https://celebs.allwomenstalk.com/celebrities-who-starred-in-commercials-before-they-were-famous/)
 

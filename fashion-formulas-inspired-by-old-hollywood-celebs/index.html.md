@@ -3,7 +3,7 @@ title: "10 Fashion Formulas Inspired by Old Hollywood Celebs ..."
 description: "MARILYN MONROE'S DAYTIME FORMULA; MARILYN MONROE'S NIGHTTIME FORMULA; AUDREY HEPBURN'S DAYTIME FORMULA; AUDREY HEPBURN'S NIGHTTIME FORMULA; BETTE DAVIS' DAYTIME FORMULA; More ..."
 url: "https://celebs.allwomenstalk.com/fashion-formulas-inspired-by-old-hollywood-celebs/"
 category: "celebs"
-last_updated: "2026-06-13"
+last_updated: "2026-06-17"
 ---
 
 # 10 Fashion Formulas Inspired by Old Hollywood Celebs ...
@@ -74,16 +74,16 @@ Which one of these fashion icons is your favorite?
 
 ## Related Posts
 
+- [sleek outfit](https://fashion.allwomenstalk.com/sleek-black-outfits-inspired-by-the-kardashians/)
+- [celebrities who are fashion designers](https://fashion.allwomenstalk.com/celebs-that-double-as-insanely-talented-fashion-designers/)
+- [french beauties](https://fashion.allwomenstalk.com/fashion-tips-inspired-by-french-beauties/)
 - [kate middleton makeup tutorial](https://celebs.allwomenstalk.com/you-must-see-these-kate-middletons-best-looks-from-last-year/)
 - [kendall jenner best looks](https://celebs.allwomenstalk.com/a-look-at-kendall-jenners-best-outfits-of/)
-- [sleek outfit](https://fashion.allwomenstalk.com/sleek-black-outfits-inspired-by-the-kardashians/)
 - [jobs related to modeling](https://fashion.allwomenstalk.com/awesome-fashion-careers-that-dont-require-modeling/)
-- [french beauties](https://fashion.allwomenstalk.com/fashion-tips-inspired-by-french-beauties/)
-- [marquita pring height, weight](https://fashion.allwomenstalk.com/these-breathtaking-models-are-changing-the-face-of-fashion/)
-- [90s office wear](https://fashion.allwomenstalk.com/these-classic-tv-icons-will-influence-your-holiday-style/)
-- [celebrities who are fashion designers](https://fashion.allwomenstalk.com/celebs-that-double-as-insanely-talented-fashion-designers/)
 - [taylor swift fashion line](https://celebs.allwomenstalk.com/fab-photos-of-taylor-swifts-new-clothing-line/)
+- [90s office wear](https://fashion.allwomenstalk.com/these-classic-tv-icons-will-influence-your-holiday-style/)
 - [taylor swift 1989 outfits](https://celebs.allwomenstalk.com/see-taylor-swifts-best-outfits-from-over-this-past-year/)
+- [marquita pring height, weight](https://fashion.allwomenstalk.com/these-breathtaking-models-are-changing-the-face-of-fashion/)
 - [Top 10 Sexy Women in Hollywood ...](https://movies.allwomenstalk.com/top-10-sexy-women-in-hollywood/)
 - [10 Gorgeous Full-Figured Celebrities ...](https://celebs.allwomenstalk.com/gorgeous-full-figured-celebrities/)
 

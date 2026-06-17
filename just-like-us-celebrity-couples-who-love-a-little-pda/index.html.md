@@ -3,7 +3,7 @@ title: "Just like Us? Celebrity Couples Who Love a Little PDA ..."
 description: "Ian Somerhalder & Nikki Reed; Drew Barrymore & Will Kopeland; Nicole Kidman & Keith Urban; Kim Kardashian & Kanye West; Emma Stone & Andrew Garfield; More ..."
 url: "https://celebs.allwomenstalk.com/just-like-us-celebrity-couples-who-love-a-little-pda/"
 category: "celebs"
-last_updated: "2026-06-13"
+last_updated: "2026-06-17"
 ---
 
 # Just like Us? Celebrity Couples Who Love a Little PDA ...
@@ -74,16 +74,16 @@ Which couple do you think had the best PDA moment?
 
 ## Related Posts
 
-- [celebrities with cat](https://celebs.allwomenstalk.com/celebrities-who-are-major-cat-ladies/)
-- [rumer willis wardrobe](https://celebs.allwomenstalk.com/yikes-celebs-their-wardrobe-malfunctions/)
 - [what would you do if you meet your favourite celeb...](https://celebs.allwomenstalk.com/tricks-that-might-help-you-meet-your-favorite-celebrity/)
-- [shakira guinness world records](https://celebs.allwomenstalk.com/celebrities-with-guinness-world-records/)
-- [la maximalist eyeshadow primped previous](https://celebs.allwomenstalk.com/whoa-who-knew-these-celebs-are-the-same-age/)
-- [most freckles in the world](https://celebs.allwomenstalk.com/celebrities-with-freckles-thatll-make-you-embrace-your-own/)
-- [florence welch natural hair color](https://hair.allwomenstalk.com/these-fiery-celeb-redheads-will-finally-convince-you-to-take-the-plunge/)
-- [barrie james o'neill height](https://celebs.allwomenstalk.com/celebrity-couples-who-split-in/)
-- [celebrity classes](https://celebs.allwomenstalk.com/celebrity-college-classes-youll-want-to-enroll-in/)
 - [ian somerhalder niece](https://celebs.allwomenstalk.com/celebrity-posts-you-mightve-missed-this-weekend-3/)
+- [most freckles in the world](https://celebs.allwomenstalk.com/celebrities-with-freckles-thatll-make-you-embrace-your-own/)
+- [la maximalist eyeshadow primped previous](https://celebs.allwomenstalk.com/whoa-who-knew-these-celebs-are-the-same-age/)
+- [florence welch natural hair color](https://hair.allwomenstalk.com/these-fiery-celeb-redheads-will-finally-convince-you-to-take-the-plunge/)
+- [shakira guinness world records](https://celebs.allwomenstalk.com/celebrities-with-guinness-world-records/)
+- [rumer willis wardrobe](https://celebs.allwomenstalk.com/yikes-celebs-their-wardrobe-malfunctions/)
+- [celebrities with cat](https://celebs.allwomenstalk.com/celebrities-who-are-major-cat-ladies/)
+- [celebrity classes](https://celebs.allwomenstalk.com/celebrity-college-classes-youll-want-to-enroll-in/)
+- [barrie james o'neill height](https://celebs.allwomenstalk.com/celebrity-couples-who-split-in/)
 - [Will Smith and Jada Pinkett Smith - Greatest Celeb...](https://allwomenstalk.com/will-smith-and-jada-pinkett-smith-greatest-celebrity-love-story/)
 - [Top 10 Most Adorable Movie Couples ...](https://allwomenstalk.com/top-10-most-adorable-movie-couples/)
 

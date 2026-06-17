@@ -3,7 +3,7 @@ title: "7 Most Infamous Celebrity Sex Tapes ..."
 description: "Pamela Anderson and Tommy Lee; Pamela Anderson and Bret Michaels; Paris Hilton and Rick Salomon; Kim Kardashian and Ray J; Severina Vuckovic; More ..."
 url: "https://celebs.allwomenstalk.com/most-infamous-celebrity-sex-tapes/"
 category: "celebs"
-last_updated: "2026-06-13"
+last_updated: "2026-06-17"
 ---
 
 # 7 Most Infamous Celebrity Sex Tapes ...
@@ -64,16 +64,16 @@ Top image source: [4.bp.blogspot.com](http://4.bp.blogspot.com/_HnXrVJR77Xw/TBD4
 
 ## Related Posts
 
-- [celebritytrends](https://celebs.allwomenstalk.com/awfully-outrageous-celebrity-trends-i-hate/)
 - [iq actors](https://celebs.allwomenstalk.com/25-smartest-celebrities/)
 - [25 Most Unique Celebrity Baby Names ...](https://celebs.allwomenstalk.com/25-most-unique-celebrity-baby-names/)
 - [8 Celebrities Who Have Aged Beautifully ...](https://celebs.allwomenstalk.com/celebrities-who-have-aged-beautifully/)
 - [most scandalous celebrities](https://celebs.allwomenstalk.com/most-scandalous-celebrity-sex-tapes/)
-- [highest earning celebrities](https://celebs.allwomenstalk.com/highest-earning-celebrities-of/)
-- [actress like sandra bullock](https://celebs.allwomenstalk.com/and-fabulous-7-female-celebrities-that-look-better-than-ever/)
+- [sexy men hollywood](https://celebs.allwomenstalk.com/hottest-men-in-hollywood/)
 - [alpha male example](https://celebs.allwomenstalk.com/adorable-and-incredibly-gorgeous-alpha-males-in-hollywood/)
 - [ray kroc's wives](https://celebs.allwomenstalk.com/celebrities-with-addictions/)
-- [sexy men hollywood](https://celebs.allwomenstalk.com/hottest-men-in-hollywood/)
+- [celebritytrends](https://celebs.allwomenstalk.com/awfully-outrageous-celebrity-trends-i-hate/)
+- [highest earning celebrities](https://celebs.allwomenstalk.com/highest-earning-celebrities-of/)
+- [actress like sandra bullock](https://celebs.allwomenstalk.com/and-fabulous-7-female-celebrities-that-look-better-than-ever/)
 - [7 Biggest Celebrity Weddings ...](https://wedding.allwomenstalk.com/biggest-celebrity-weddings/)
 - [7 Hottest Nude Movie Scenes ...](https://movies.allwomenstalk.com/hottest-nude-movie-scenes/)
 

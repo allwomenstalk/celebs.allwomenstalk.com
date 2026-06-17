@@ -3,7 +3,7 @@ title: "7 Celebrities Who Are Vegan ..."
 description: "Carrie Underwood; Natalie Portman; Ellen Degeneres; Alicia Silverstone; Joaquin Phoenix; More ..."
 url: "https://celebs.allwomenstalk.com/celebrities-who-are-vegan/"
 category: "celebs"
-last_updated: "2026-06-13"
+last_updated: "2026-06-17"
 ---
 
 # 7 Celebrities Who Are Vegan ...
@@ -56,16 +56,16 @@ Well, there you have it. Who knew so many celebrities had made the change to a v
 
 ## Related Posts
 
+- [ryan gosling tagine](https://celebs.allwomenstalk.com/celebrities-who-own-restaurants-and-bars/)
 - [alec baldwin looks like millard fillmore](https://celebs.allwomenstalk.com/whoa-do-these-celebs-have-a-historical-twin/)
-- [celebrities who went to college](https://celebs.allwomenstalk.com/hollywood-celebrities-with-college-degrees/)
-- [siblings best friends](https://celebs.allwomenstalk.com/these-celeb-siblings-also-double-as-best-friends/)
-- [vince vaughn spouse](https://celebs.allwomenstalk.com/celebrities-who-are-married-to-non-celebrities/)
-- [famous sidekicks in literature](https://movies.allwomenstalk.com/amazing-sidekicks-who-can-be-lead-stars/)
-- [aileen wuornos movie actress](https://movies.allwomenstalk.com/best-transformations-for-movies/)
 - [romance real life](https://movies.allwomenstalk.com/some-of-the-best-real-life-romances-that-started-on-set/)
 - [celebrities who love food](https://celebs.allwomenstalk.com/celebrity-foodies-that-love-food-as-much-as-you-do/)
 - [taylor and jake gyllenhaal age difference](https://celebs.allwomenstalk.com/for-these-celebs-age-aint-nothing-but-a-number/)
-- [ryan gosling tagine](https://celebs.allwomenstalk.com/celebrities-who-own-restaurants-and-bars/)
+- [siblings best friends](https://celebs.allwomenstalk.com/these-celeb-siblings-also-double-as-best-friends/)
+- [celebrities who went to college](https://celebs.allwomenstalk.com/hollywood-celebrities-with-college-degrees/)
+- [vince vaughn spouse](https://celebs.allwomenstalk.com/celebrities-who-are-married-to-non-celebrities/)
+- [famous sidekicks in literature](https://movies.allwomenstalk.com/amazing-sidekicks-who-can-be-lead-stars/)
+- [aileen wuornos movie actress](https://movies.allwomenstalk.com/best-transformations-for-movies/)
 - [7 of My Favorite Celebrities ...](https://celebs.allwomenstalk.com/7-of-my-favorite-celebrities/)
 - [7 Women Celebrities Who Smoke ...](https://celebs.allwomenstalk.com/women-celebrities-who-smoke/)
 

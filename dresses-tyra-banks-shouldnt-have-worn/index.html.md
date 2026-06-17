@@ -3,7 +3,7 @@ title: "7 Dresses Tyra Banks Shouldn't Have Worn ..."
 description: "The Purple Dress, the 72nd Oscars; The Red Jersey, Fashion Rocks 2008; The Gold Dress, 2009 Daytime Emmy's; The Rust Dress, 2007 Daytime Emmy's; The Black Dress, 2007 Fashion Rocks; More ..."
 url: "https://celebs.allwomenstalk.com/dresses-tyra-banks-shouldnt-have-worn/"
 category: "celebs"
-last_updated: "2026-06-13"
+last_updated: "2026-06-17"
 ---
 
 # 7 Dresses Tyra Banks Shouldn't Have Worn ...
@@ -58,16 +58,16 @@ Top Photo Credit: [andy_57](https://www.flickr.com/photos/poupart/1487620751/)
 
 ## Related Posts
 
-- [Christian Louboutin Fall 2011 Lookbook ...](https://celebs.allwomenstalk.com/christian-louboutin-fall-lookbook/)
-- [2006 hair styles](https://allwomenstalk.com/fashionable-hair-styles-eyes-on-stars/)
-- [Fashion Week: Jenni Kayne ...](https://allwomenstalk.com/fashion-week-jenni-kayne-2/)
 - [The State of the Fashion Union ...](https://allwomenstalk.com/the-state-of-the-fashion-union/)
+- [2006 hair styles](https://allwomenstalk.com/fashionable-hair-styles-eyes-on-stars/)
 - [hottest designers](https://allwomenstalk.com/3-10/)
-- [It's Harper's Bazaar Week...](https://allwomenstalk.com/its-harpers-bazaar-week/)
-- [marc bouwer dresses shop](https://allwomenstalk.com/fashion-week-marc-bouwer/)
 - [Tv Dilema, Fall Beauty and a New Look ...](https://allwomenstalk.com/tv-dilema-fall-beauty-and-a-new-look/)
+- [Fashion Week: Jenni Kayne ...](https://allwomenstalk.com/fashion-week-jenni-kayne-2/)
+- [marc bouwer dresses shop](https://allwomenstalk.com/fashion-week-marc-bouwer/)
 - [Gwen and Kingston End NYFW in Style ...](https://celebs.allwomenstalk.com/gwen-and-kingston-end-nyfw-in-style/)
+- [Christian Louboutin Fall 2011 Lookbook ...](https://celebs.allwomenstalk.com/christian-louboutin-fall-lookbook/)
 - [Sample Sales as Shopping Parties, Yahoo! News, Fas...](https://allwomenstalk.com/sample-sales-as-shopping-parties-yahoo-news-fashion-wire-daily/)
+- [It's Harper's Bazaar Week...](https://allwomenstalk.com/its-harpers-bazaar-week/)
 - [7 Biggest Celebrity Fashion Faux Pas of 2011 ...](https://celebs.allwomenstalk.com/biggest-celebrity-fashion-faux-pas-of/)
 - [7 Successful Celebrity Fashion Lines ...](https://fashion.allwomenstalk.com/successful-celebrity-fashion-lines/)
 

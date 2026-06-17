@@ -3,7 +3,7 @@ title: "7 Child Stars and Where They Are Now ..."
 description: "Erik per Sullivan; Nate Richert; Alexa Vega; Jonathan Lipnicki; Anna Chlumsky; More ..."
 url: "https://celebs.allwomenstalk.com/child-stars-and-where-they-are-now/"
 category: "celebs"
-last_updated: "2026-06-13"
+last_updated: "2026-06-17"
 ---
 
 # 7 Child Stars and Where They Are Now ...
@@ -56,16 +56,16 @@ It’s great to hear that these former child stars are all grown up and doing wh
 
 ## Related Posts
 
+- [celebrities twitter accounts](https://celebs.allwomenstalk.com/hilarious-celebrity-twitter-accounts-to-follow/)
+- [famous people who are inspiring](https://celebs.allwomenstalk.com/inspiring-celebrities-that-i-look-up-to/)
+- [celebrities giving back to the community](https://celebs.allwomenstalk.com/wonderful-celebrities-that-help-the-community/)
 - [cute famous couples](https://celebs.allwomenstalk.com/adorable-celebrity-couples-we-wish-were-more-public/)
 - [underrated.lee](https://fitness.allwomenstalk.com/amazing-sports-stars-who-make-their-sport-an-art/)
-- [who's a in pretty little liars season 1](https://celebs.allwomenstalk.com/pretty-little-liars-cast-members-who-also-dabble-in-music/)
-- [celebrities giving back to the community](https://celebs.allwomenstalk.com/wonderful-celebrities-that-help-the-community/)
 - [mean girls anniversary](https://celebs.allwomenstalk.com/celebs-who-celebrated-mean-girls-10-year-anniversary/)
-- [nde celebrities](https://celebs.allwomenstalk.com/celebrities-who-have-had-near-death-experiences/)
-- [famous people who are inspiring](https://celebs.allwomenstalk.com/inspiring-celebrities-that-i-look-up-to/)
 - [his three daughters cast](https://celebs.allwomenstalk.com/celebrities-with-more-than-3-children/)
+- [who's a in pretty little liars season 1](https://celebs.allwomenstalk.com/pretty-little-liars-cast-members-who-also-dabble-in-music/)
+- [nde celebrities](https://celebs.allwomenstalk.com/celebrities-who-have-had-near-death-experiences/)
 - [danny zugelder](https://celebs.allwomenstalk.com/female-celebrities-who-have-been-married-more-than-once/)
-- [celebrities twitter accounts](https://celebs.allwomenstalk.com/hilarious-celebrity-twitter-accounts-to-follow/)
 - [5 Posts of Celebrity Kids out and about ...](https://allwomenstalk.com/5-posts-of-celebrity-kids-out-and-about/)
 - [5 Latest News about Our Favorite Young Stars ...](https://allwomenstalk.com/5-latest-news-about-our-favorite-young-stars/)
 

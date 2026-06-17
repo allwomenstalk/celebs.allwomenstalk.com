@@ -3,7 +3,7 @@ title: "10 Celebrity Posts You Might've Missed This Weekend ..."
 description: "Ian Somerhalder; Ciara; Jamie Chung; Joe Jonas; Nina Dobrev; More ..."
 url: "https://celebs.allwomenstalk.com/celebrity-posts-you-mightve-missed-this-weekend-3/"
 category: "celebs"
-last_updated: "2026-06-13"
+last_updated: "2026-06-17"
 ---
 
 # 10 Celebrity Posts You Might've Missed This Weekend ...
@@ -75,15 +75,15 @@ Are you following these celebrities on Instagram?
 ## Related Posts
 
 - [shades of hunks](https://celebs.allwomenstalk.com/happy-movember-heres-bearded-hunks-to-lust-over/)
+- [independence day alicia casse](https://celebs.allwomenstalk.com/child-stars-who-quit-acting/)
+- [shakira guinness world records](https://celebs.allwomenstalk.com/celebrities-with-guinness-world-records/)
 - [best of mean tweets](https://funny.allwomenstalk.com/this-video-of-celebs-reacting-to-mean-tweets-is-the-funniest-thing-youll-see-today/)
-- [rumer willis wardrobe](https://celebs.allwomenstalk.com/yikes-celebs-their-wardrobe-malfunctions/)
+- [courtside celebrities](https://celebs.allwomenstalk.com/celebs-cant-get-enough-of-basketball-sightings-of-courtside-celebs/)
+- [celebrity classes](https://celebs.allwomenstalk.com/celebrity-college-classes-youll-want-to-enroll-in/)
 - [what degree does brooke shields have](https://celebs.allwomenstalk.com/intelligent-celebrities-with-ivy-league-diplomas/)
 - [jim carrey depression quote](https://celebs.allwomenstalk.com/celebrities-on-dealing-with-depression-and-mental-disorders/)
-- [shakira guinness world records](https://celebs.allwomenstalk.com/celebrities-with-guinness-world-records/)
 - [sabrina carpenter boots](https://celebs.allwomenstalk.com/co-stars-who-are-also-best-friends-in-real-life/)
-- [independence day alicia casse](https://celebs.allwomenstalk.com/child-stars-who-quit-acting/)
-- [celebrity classes](https://celebs.allwomenstalk.com/celebrity-college-classes-youll-want-to-enroll-in/)
-- [courtside celebrities](https://celebs.allwomenstalk.com/celebs-cant-get-enough-of-basketball-sightings-of-courtside-celebs/)
+- [rumer willis wardrobe](https://celebs.allwomenstalk.com/yikes-celebs-their-wardrobe-malfunctions/)
 - [10 Celebrity #TBT Photos You May Have Missed This ...](https://celebs.allwomenstalk.com/celebrity-tbt-photos-you-may-have-missed-this-week/)
 - [15 Celebrity Posts You May Have Missed This Weeken...](https://celebs.allwomenstalk.com/celebrity-posts-you-may-have-missed-this-weekend/)
 
