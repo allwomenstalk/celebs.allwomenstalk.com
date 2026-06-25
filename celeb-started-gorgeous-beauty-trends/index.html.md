@@ -3,7 +3,7 @@ title: "8 Celeb-Started Gorgeous Beauty Trends ..."
 description: "Blake’s Glamour; Beyonce’s Hair; Kim’s Lashes; Miley’s Mohican; Richie’s Rich Shades; More ..."
 url: "https://celebs.allwomenstalk.com/celeb-started-gorgeous-beauty-trends/"
 category: "celebs"
-last_updated: "2026-06-17"
+last_updated: "2026-06-25"
 ---
 
 # 8 Celeb\-Started Gorgeous Beauty Trends ...
@@ -62,16 +62,16 @@ How many of these celebrity inspired beauty trends are you already wearing – a
 
 ## Related Posts
 
-- [Here's Our Baby Name Suggestions for Kim + Kanye's...](https://celebs.allwomenstalk.com/heres-our-baby-name-suggestions-for-kim-kanyes-new-baby/)
 - [Join the Jet Set: Stay in One of These Favorite Ce...](https://travel.allwomenstalk.com/join-the-jet-set-stay-in-one-of-these-favorite-celebrity-hotels/)
+- [liv tyler lip filler](https://skincare.allwomenstalk.com/celebrities-with-skin-were-jealous-of/)
 - [zach braff bj novak](https://movies.allwomenstalk.com/televisions-cutest-co-stars-we-cannot-get-enough-of/)
-- [These Celebrity Families Will Make the Kardashians...](https://celebs.allwomenstalk.com/these-celebrity-families-will-make-the-kardashians-scooch-over/)
-- [21 Celebrity Couples Who Got Married in Secret ...](https://wedding.allwomenstalk.com/celebrity-couples-who-got-married-in-secret/)
 - [You Will Not Believe These Houses a-List Celebs Re...](https://travel.allwomenstalk.com/you-will-not-believe-these-houses-a-list-celebs-rent-for-vacations/)
-- [Check out These Celebrities at the Billboard Music...](https://fashion.allwomenstalk.com/check-out-these-celebrities-at-the-billboard-music-awards/)
+- [21 Celebrity Couples Who Got Married in Secret ...](https://wedding.allwomenstalk.com/celebrity-couples-who-got-married-in-secret/)
 - [The Comeback Queens - Celebs Who Have Silenced The...](https://celebs.allwomenstalk.com/the-comeback-queens-celebs-who-have-silenced-their-haters/)
 - [8 Fab Alternatives to Today's Celeb Headlines ...](https://celebs.allwomenstalk.com/fab-alternatives-to-todays-celeb-headlines/)
-- [liv tyler lip filler](https://skincare.allwomenstalk.com/celebrities-with-skin-were-jealous-of/)
+- [Here's Our Baby Name Suggestions for Kim + Kanye's...](https://celebs.allwomenstalk.com/heres-our-baby-name-suggestions-for-kim-kanyes-new-baby/)
+- [These Celebrity Families Will Make the Kardashians...](https://celebs.allwomenstalk.com/these-celebrity-families-will-make-the-kardashians-scooch-over/)
+- [Check out These Celebrities at the Billboard Music...](https://fashion.allwomenstalk.com/check-out-these-celebrities-at-the-billboard-music-awards/)
 - [8 Summer Beauty Tips ...](https://skincare.allwomenstalk.com/summer-beauty-tips/)
 - [9 Fool Proof Celebrity Beauty Tricks ...](https://beauty.allwomenstalk.com/fool-proof-celebrity-beauty-tricks/)
 

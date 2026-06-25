@@ -3,7 +3,7 @@ title: "11 Celebrities Wearing a Striped T-shirt – Who Wore It Best?"
 description: "Alexa Chung; Ashley Madekwe; Nikki Reed; Miranda Kerr; Olivia Palermo; More ..."
 url: "https://celebs.allwomenstalk.com/celebrities-wearing-a-striped-t-shirt-who-wore-it-best/"
 category: "celebs"
-last_updated: "2026-06-17"
+last_updated: "2026-06-25"
 ---
 
 # 11 Celebrities Wearing a Striped T\-shirt – Who Wore It Best?
@@ -80,16 +80,16 @@ These are just some celebrities we’ve spotted wearing the classic striped t-sh
 
 ## Related Posts
 
-- [celebrities in coats](https://celebs.allwomenstalk.com/celebrities-wearing-colourful-coats-who-wore-it-best/)
-- [characters that wear camo](https://celebs.allwomenstalk.com/celebrities-wearing-camouflage-prints-who-wore-it-best/)
-- [lady gaga seashell bikini](https://celebs.allwomenstalk.com/of-lady-gagas-best-looks-in/)
-- [green haired celebrities](https://celebs.allwomenstalk.com/celebrities-with-rainbow-hair-who-wore-it-best/)
-- [red carpet floral dress](https://celebs.allwomenstalk.com/floral-red-carpet-looks-from-the-celebrities-who-wore-it-best/)
-- [celebs in sweaters](https://celebs.allwomenstalk.com/celebrities-wearing-printed-sweaters-who-wore-it-best/)
-- [celebritybelly](https://celebs.allwomenstalk.com/belly-baring-celebrities-who-wore-it-best/)
-- [tilda swinton style](https://celebs.allwomenstalk.com/of-tilda-swintons-best-looks/)
 - [tartan trousers womens](https://celebs.allwomenstalk.com/celebrities-wearing-the-tartan-trend-who-wore-it-best/)
+- [green haired celebrities](https://celebs.allwomenstalk.com/celebrities-with-rainbow-hair-who-wore-it-best/)
+- [characters that wear camo](https://celebs.allwomenstalk.com/celebrities-wearing-camouflage-prints-who-wore-it-best/)
 - [celebrity see through clothes](https://celebs.allwomenstalk.com/most-revealing-celebrity-outfits-from-the-red-carpet/)
+- [tilda swinton style](https://celebs.allwomenstalk.com/of-tilda-swintons-best-looks/)
+- [lady gaga seashell bikini](https://celebs.allwomenstalk.com/of-lady-gagas-best-looks-in/)
+- [celebritybelly](https://celebs.allwomenstalk.com/belly-baring-celebrities-who-wore-it-best/)
+- [celebs in sweaters](https://celebs.allwomenstalk.com/celebrities-wearing-printed-sweaters-who-wore-it-best/)
+- [celebrities in coats](https://celebs.allwomenstalk.com/celebrities-wearing-colourful-coats-who-wore-it-best/)
+- [red carpet floral dress](https://celebs.allwomenstalk.com/floral-red-carpet-looks-from-the-celebrities-who-wore-it-best/)
 - [10 Celebrities in Chequered Clothes – Who Wore It ...](https://celebs.allwomenstalk.com/celebrities-in-chequered-clothes-who-wore-it-best/)
 - [10 Celebrities Wearing Striped Dresses – Who Wore ...](https://celebs.allwomenstalk.com/celebrities-wearing-striped-dresses-who-wore-it-best/)
 

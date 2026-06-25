@@ -3,7 +3,7 @@ title: "7 Celebrities Who Have Had near Death Experiences ..."
 description: "Elizabeth Taylor; Tony Bennett; Jane Seymour; Ozzy Osbourne; Donald Sutherland; More ..."
 url: "https://celebs.allwomenstalk.com/celebrities-who-have-had-near-death-experiences/"
 category: "celebs"
-last_updated: "2026-06-17"
+last_updated: "2026-06-25"
 ---
 
 # 7 Celebrities Who Have Had near Death Experiences ...
@@ -58,16 +58,16 @@ We will never know what the afterlife truly looks like since no person's NDE is 
 
 ## Related Posts
 
-- [7 Hollywood Same-Sex Couples We Love ...](https://celebs.allwomenstalk.com/hollywood-same-sex-couples-we-love/)
-- [cameron diaz armpit](https://celebs.allwomenstalk.com/celebrities-who-supposedly-have-bad-hygiene/)
-- [extras celebrities](https://celebs.allwomenstalk.com/celebrities-who-started-out-as-extras/)
-- [who's a in pretty little liars season 1](https://celebs.allwomenstalk.com/pretty-little-liars-cast-members-who-also-dabble-in-music/)
-- [who lives in the same neighborhood as oprah?](https://celebs.allwomenstalk.com/celebrities-who-are-neighbors-in-real-life/)
-- [left at the altar](https://celebs.allwomenstalk.com/celebrities-who-were-left-at-the-altar/)
-- [female tv cops](https://celebs.allwomenstalk.com/brilliant-actors-actresses-who-have-played-cops-on-tv/)
-- [celebrities that were born rich](https://celebs.allwomenstalk.com/celebrities-who-were-born-rich/)
-- [famous career changes](https://celebs.allwomenstalk.com/of-the-best-career-changes-in-hollywood/)
 - [celebrities with criminal records](https://celebs.allwomenstalk.com/celebrities-with-unexpected-criminal-records/)
+- [famous career changes](https://celebs.allwomenstalk.com/of-the-best-career-changes-in-hollywood/)
+- [celebrities that were born rich](https://celebs.allwomenstalk.com/celebrities-who-were-born-rich/)
+- [who's a in pretty little liars season 1](https://celebs.allwomenstalk.com/pretty-little-liars-cast-members-who-also-dabble-in-music/)
+- [left at the altar](https://celebs.allwomenstalk.com/celebrities-who-were-left-at-the-altar/)
+- [who lives in the same neighborhood as oprah?](https://celebs.allwomenstalk.com/celebrities-who-are-neighbors-in-real-life/)
+- [cameron diaz armpit](https://celebs.allwomenstalk.com/celebrities-who-supposedly-have-bad-hygiene/)
+- [7 Hollywood Same-Sex Couples We Love ...](https://celebs.allwomenstalk.com/hollywood-same-sex-couples-we-love/)
+- [extras celebrities](https://celebs.allwomenstalk.com/celebrities-who-started-out-as-extras/)
+- [female tv cops](https://celebs.allwomenstalk.com/brilliant-actors-actresses-who-have-played-cops-on-tv/)
 - [7 Celebrities with Addictions ...](https://celebs.allwomenstalk.com/celebrities-with-addictions/)
 - [7 Wonderfully Remarkable Celebrity Cancer Survivor...](https://celebs.allwomenstalk.com/wonderfully-remarkable-celebrity-cancer-survivor-stories/)
 

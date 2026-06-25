@@ -3,7 +3,7 @@ title: "7 Most Scandalous Celebrity Twitter Feuds That Will Evoke a Facepalm ...
 description: "One Direction Vs. the Wanted; Rihanna Vs. Ciara; Amanda Bynes Vs the World; Cheryl Cole Vs Cher Lloyd; Justin Bieber Vs Patrick Carney; More ..."
 url: "https://celebs.allwomenstalk.com/most-scandalous-celebrity-twitter-feuds-that-will-evoke-a-facepalm/"
 category: "celebs"
-last_updated: "2026-06-17"
+last_updated: "2026-06-25"
 ---
 
 # 7 Most Scandalous Celebrity Twitter Feuds That Will Evoke a Facepalm ...
@@ -42,16 +42,16 @@ Social media seems to be the center of attention when celebrities decide to take
 
 ## Related Posts
 
-- [celebrities with very fine hair](https://hair.allwomenstalk.com/fabulous-celebrity-hair-crushes-we-absolutely-adore/)
-- [celebrities shop too](https://celebs.allwomenstalk.com/wealthy-celebrities-who-thrift-shop-and-are-proud-of-it/)
-- [was ryan gosling singing in barbie](https://celebs.allwomenstalk.com/barbie-dolls-of-celebrity-singers-that-youve-got-to-see-to-believe/)
-- [top british celebrities](https://celebs.allwomenstalk.com/brilliant-british-celebrities-that-you-should-take-note-of/)
-- [famous people who are hated](https://celebs.allwomenstalk.com/celebrities-people-love-to-hate/)
 - [the actress with the eyebrows](https://celebs.allwomenstalk.com/beautiful-celebrities-with-gorgeous-eyebrows-to-die-for/)
 - [talented celebrities](https://celebs.allwomenstalk.com/talented-celebrities-you-didnt-know-could-sing-really-well/)
-- [underrated celebrity](https://celebs.allwomenstalk.com/underrated-hollywood-stars-that-deserve-more-attention/)
-- [celebrities who beat breast cancer](https://celebs.allwomenstalk.com/celebrities-who-have-beaten-breast-cancer-to-be-inspired-by/)
 - [celebrity long hair](https://celebs.allwomenstalk.com/drastic-celebrity-hair-cuts-that-caused-a-stir/)
+- [was ryan gosling singing in barbie](https://celebs.allwomenstalk.com/barbie-dolls-of-celebrity-singers-that-youve-got-to-see-to-believe/)
+- [celebrities with very fine hair](https://hair.allwomenstalk.com/fabulous-celebrity-hair-crushes-we-absolutely-adore/)
+- [famous people who are hated](https://celebs.allwomenstalk.com/celebrities-people-love-to-hate/)
+- [celebrities who beat breast cancer](https://celebs.allwomenstalk.com/celebrities-who-have-beaten-breast-cancer-to-be-inspired-by/)
+- [celebrities shop too](https://celebs.allwomenstalk.com/wealthy-celebrities-who-thrift-shop-and-are-proud-of-it/)
+- [top british celebrities](https://celebs.allwomenstalk.com/brilliant-british-celebrities-that-you-should-take-note-of/)
+- [underrated celebrity](https://celebs.allwomenstalk.com/underrated-hollywood-stars-that-deserve-more-attention/)
 - [7 Recent Celebrity Breakups ...](https://celebs.allwomenstalk.com/recent-celebrity-breakups/)
 - [7 Most Scandalous Celebrity Sex Tapes ...](https://celebs.allwomenstalk.com/most-scandalous-celebrity-sex-tapes/)
 

@@ -3,7 +3,7 @@ title: "13 Celebrities and Their Astrological Signs ..."
 description: "Aries “the Ram” - March 21-April 19; Taurus “the Bull” - April 20-May 20; Gemini “the Twins” - May 21-June 20; Cancer “the Crab” - June 21-July 22; Leo “the Lion” - July 23-August 22; More ..."
 url: "https://celebs.allwomenstalk.com/celebrities-and-their-astrological-signs/"
 category: "celebs"
-last_updated: "2026-06-17"
+last_updated: "2026-06-25"
 ---
 
 # 13 Celebrities and Their Astrological Signs ...
@@ -92,16 +92,16 @@ Astrology is fun and interesting, but to get an in-depth reading of any one indi
 
 ## Related Posts
 
+- [famous celebrities as kids](https://celebs.allwomenstalk.com/child-celebrities-who-are-no-longer-famous/)
 - [amy winehouse swimsuit](https://celebs.allwomenstalk.com/celebrity-faces-destroyed-by-drugs/)
 - [pauly d child](https://celebs.allwomenstalk.com/celebrity-babies-who-seem-more-famous-than-their-parents/)
-- [miley cyrus scandal video](https://celebs.allwomenstalk.com/of-the-biggest-miley-cyrus-scandals/)
 - [all blonde dreads](https://celebs.allwomenstalk.com/fierce-celebrities-with-dreadlocks-who-rocked-that-look/)
-- [fit celeb](https://celebs.allwomenstalk.com/fit-celebrities-wholl-inspire-you-this-summer/)
-- [hollywood homewreckers](https://celebs.allwomenstalk.com/most-notorious-home-wreckers-in-hollywood/)
 - [why should celebrities be role models](https://celebs.allwomenstalk.com/reasons-why-some-celebrities-are-bad-role-models/)
-- [fit blonde actresses](https://celebs.allwomenstalk.com/hottest-blonde-celebrities-from-yesterday-and-today/)
 - [james blunt net worth](https://celebs.allwomenstalk.com/celebrities-who-have-praised-ed-sheerans-new-album/)
-- [famous celebrities as kids](https://celebs.allwomenstalk.com/child-celebrities-who-are-no-longer-famous/)
+- [miley cyrus scandal video](https://celebs.allwomenstalk.com/of-the-biggest-miley-cyrus-scandals/)
+- [hollywood homewreckers](https://celebs.allwomenstalk.com/most-notorious-home-wreckers-in-hollywood/)
+- [fit blonde actresses](https://celebs.allwomenstalk.com/hottest-blonde-celebrities-from-yesterday-and-today/)
+- [fit celeb](https://celebs.allwomenstalk.com/fit-celebrities-wholl-inspire-you-this-summer/)
 - [25 Smartest Celebrities ...](https://celebs.allwomenstalk.com/25-smartest-celebrities/)
 - [7 of My Favorite Celebrities ...](https://celebs.allwomenstalk.com/7-of-my-favorite-celebrities/)
 

@@ -3,7 +3,7 @@ title: "9 Celebrity Foodies That Love Food as Much as You do ..."
 description: "Kelis; Jesse Williams; Oprah Winfrey; Jordan Dunn; Aziz Ansari; More ..."
 url: "https://celebs.allwomenstalk.com/celebrity-foodies-that-love-food-as-much-as-you-do/"
 category: "celebs"
-last_updated: "2026-06-17"
+last_updated: "2026-06-25"
 ---
 
 # 9 Celebrity Foodies That Love Food as Much as You do ...
@@ -68,15 +68,15 @@ Well, there you have it. These are just nine out of many celebrity foodies! Can 
 
 ## Related Posts
 
-- [funny ice bucket challenge](https://celebs.allwomenstalk.com/funniest-celebrity-ice-bucket-challenge-videos/)
-- [vince vaughn spouse](https://celebs.allwomenstalk.com/celebrities-who-are-married-to-non-celebrities/)
-- [stars of the 1940s](https://celebs.allwomenstalk.com/reasons-to-emulate-1940s-movie-stars/)
-- [kaley cuoco bowling movie](https://celebs.allwomenstalk.com/celebrity-throwbacks-dcom-edition/)
 - [celebrities who went to college](https://celebs.allwomenstalk.com/hollywood-celebrities-with-college-degrees/)
+- [kaley cuoco bowling movie](https://celebs.allwomenstalk.com/celebrity-throwbacks-dcom-edition/)
+- [stars of the 1940s](https://celebs.allwomenstalk.com/reasons-to-emulate-1940s-movie-stars/)
+- [romance real life](https://movies.allwomenstalk.com/some-of-the-best-real-life-romances-that-started-on-set/)
+- [funny ice bucket challenge](https://celebs.allwomenstalk.com/funniest-celebrity-ice-bucket-challenge-videos/)
+- [how did mike tysons daughter die](https://celebs.allwomenstalk.com/male-celebrities-who-lost-children/)
 - [taylor and jake gyllenhaal age difference](https://celebs.allwomenstalk.com/for-these-celebs-age-aint-nothing-but-a-number/)
 - [celebrities who support gender equality](https://celebs.allwomenstalk.com/heforshe-male-celebs-supporting-gender-equality/)
-- [romance real life](https://movies.allwomenstalk.com/some-of-the-best-real-life-romances-that-started-on-set/)
-- [how did mike tysons daughter die](https://celebs.allwomenstalk.com/male-celebrities-who-lost-children/)
+- [vince vaughn spouse](https://celebs.allwomenstalk.com/celebrities-who-are-married-to-non-celebrities/)
 - [cast of twilight dancers](https://movies.allwomenstalk.com/worst-dancers-on-tv-and-in-the-movies/)
 - [8 Tasty Food TV Shows I Absolutely Couldn't Live w...](https://movies.allwomenstalk.com/tasty-food-tv-shows-i-absolutely-couldnt-live-without/)
 - [8 Mouth-Watering Foodie Films ...](https://movies.allwomenstalk.com/mouth-watering-foodie-films/)

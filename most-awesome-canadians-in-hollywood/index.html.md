@@ -3,7 +3,7 @@ title: "20 Most Awesome Canadians in Hollywood ..."
 description: "Ellen Page; Ryan Reynolds; James Cameron; Drake; Rachel McAdams; More ..."
 url: "https://celebs.allwomenstalk.com/most-awesome-canadians-in-hollywood/"
 category: "celebs"
-last_updated: "2026-06-17"
+last_updated: "2026-06-25"
 ---
 
 # 20 Most Awesome Canadians in Hollywood ...
@@ -132,16 +132,16 @@ Contrary to popular thought (and as with every other country out there), we’re
 
 ## Related Posts
 
-- [hotels for celebrities](https://travel.allwomenstalk.com/hotels-owned-by-celebrities/)
-- [7 Celebrities You Wouldn't Want as Your Best Frien...](https://celebs.allwomenstalk.com/celebrities-you-wouldnt-want-as-your-best-friend/)
 - [7 Viners to Follow for a Daily Dose of Entertainme...](https://lifestyle.allwomenstalk.com/viners-to-follow-for-a-daily-dose-of-entertainment/)
-- [7 Crazy Celebrity Feuds You'd Have to Read about t...](https://celebs.allwomenstalk.com/crazy-celebrity-feuds-youd-have-to-read-about-to-believe/)
-- [10 Celebrity Couples We Hope Will Never Break up ....](https://celebs.allwomenstalk.com/celebrity-couples-we-hope-will-never-break-up/)
-- [13 Actors Who Started off on SNL ...](https://7fun.net/actors-who-started-off-on-snl/)
-- [7 Celebs from ABC's Scandal That Love to Live-Twee...](https://celebs.allwomenstalk.com/celebs-from-abcs-scandal-that-love-to-live-tweet/)
-- [nepotism models list](https://celebs.allwomenstalk.com/celebrity-kids-who-have-stunned-the-modeling-world/)
+- [hotels for celebrities](https://travel.allwomenstalk.com/hotels-owned-by-celebrities/)
 - [11 Celebrities Who Have Been Turned down in Their ...](https://celebs.allwomenstalk.com/celebrities-who-have-been-turned-down-in-their-career/)
+- [13 Actors Who Started off on SNL ...](https://7fun.net/actors-who-started-off-on-snl/)
+- [7 Crazy Celebrity Feuds You'd Have to Read about t...](https://celebs.allwomenstalk.com/crazy-celebrity-feuds-youd-have-to-read-about-to-believe/)
+- [7 Celebrities You Wouldn't Want as Your Best Frien...](https://celebs.allwomenstalk.com/celebrities-you-wouldnt-want-as-your-best-friend/)
+- [nepotism models list](https://celebs.allwomenstalk.com/celebrity-kids-who-have-stunned-the-modeling-world/)
 - [9 Saturday Night Live Actors We Miss ...](https://7fun.net/saturday-night-live-actors-we-miss/)
+- [7 Celebs from ABC's Scandal That Love to Live-Twee...](https://celebs.allwomenstalk.com/celebs-from-abcs-scandal-that-love-to-live-tweet/)
+- [10 Celebrity Couples We Hope Will Never Break up ....](https://celebs.allwomenstalk.com/celebrity-couples-we-hope-will-never-break-up/)
 - [Top 10 Sexy Women in Hollywood ...](https://movies.allwomenstalk.com/top-10-sexy-women-in-hollywood/)
 - [10 Amazing British Movie Stars ...](https://movies.allwomenstalk.com/amazing-british-movie-stars/)
 

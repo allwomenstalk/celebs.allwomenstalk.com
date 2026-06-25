@@ -3,7 +3,7 @@ title: "Throwing Shade on the Alleged Shade at the VMAs ..."
 description: "Stay ahead, stay chic. Trusted guides on beauty, wellness, fashion, and everything that defines today's empowered woman."
 url: "https://celebs.allwomenstalk.com/throwing-shade-on-the-alleged-shade-at-the-vmas/"
 category: "celebs"
-last_updated: "2026-06-17"
+last_updated: "2026-06-25"
 ---
 
 # Throwing Shade on the Alleged Shade at the VMAs ...
@@ -20,16 +20,16 @@ Is this not some overblown BS? I'm officially throwing shade at everybody. Shade
 
 ## Related Posts
 
-- [Who Was Nominated for the 2015 Golden Globes? Full...](https://movies.allwomenstalk.com/who-was-nominated-for-the-golden-globes-full-list-here/)
-- [The Hunger Games: Mockingjay Premiere - What the S...](https://fashion.allwomenstalk.com/the-hunger-games-mockingjay-premiere-what-the-stars-wore-in-london/)
-- [Country Music Awards 2014 Recap: Red Carpet Arriva...](https://fashion.allwomenstalk.com/country-music-awards-recap-red-carpet-arrivals-winners/)
-- [MTV EMAs Recap: List of Winners & Red Carpet Fashi...](https://fashion.allwomenstalk.com/mtv-emas-recap-list-of-winners-red-carpet-fashion/)
-- [Relive the Best Red Carpet Fashion from the Hollyw...](https://fashion.allwomenstalk.com/relive-the-best-red-carpet-fashion-from-the-hollywood-film-awards/)
-- [Beyonce, Sam Smith & Pharrell Lead in Grammy Nods ...](https://music.allwomenstalk.com/beyonce-sam-smith-pharrell-lead-in-grammy-nods-see-all-nominees-here/)
-- [Who is 2014's Sexiest Man Alive? Find out Who Peop...](https://celebs.allwomenstalk.com/who-is-2014s-sexiest-man-alive-find-out-who-people-magazine-chose/)
-- [AmfAR LA Inspiration Gala 2014: Best Dressed Celeb...](https://fashion.allwomenstalk.com/amfar-la-inspiration-gala-best-dressed-celebs/)
 - [Love It or Hate It: Lena Dunham's Emmy Look ...](https://celebs.allwomenstalk.com/love-it-or-hate-it-lena-dunhams-emmy-look/)
+- [AmfAR LA Inspiration Gala 2014: Best Dressed Celeb...](https://fashion.allwomenstalk.com/amfar-la-inspiration-gala-best-dressed-celebs/)
 - [Relive the Best Red Carpet Fashion from the Latin ...](https://fashion.allwomenstalk.com/relive-the-best-red-carpet-fashion-from-the-latin-grammys/)
+- [Who is 2014's Sexiest Man Alive? Find out Who Peop...](https://celebs.allwomenstalk.com/who-is-2014s-sexiest-man-alive-find-out-who-people-magazine-chose/)
+- [Country Music Awards 2014 Recap: Red Carpet Arriva...](https://fashion.allwomenstalk.com/country-music-awards-recap-red-carpet-arrivals-winners/)
+- [The Hunger Games: Mockingjay Premiere - What the S...](https://fashion.allwomenstalk.com/the-hunger-games-mockingjay-premiere-what-the-stars-wore-in-london/)
+- [Relive the Best Red Carpet Fashion from the Hollyw...](https://fashion.allwomenstalk.com/relive-the-best-red-carpet-fashion-from-the-hollywood-film-awards/)
+- [Who Was Nominated for the 2015 Golden Globes? Full...](https://movies.allwomenstalk.com/who-was-nominated-for-the-golden-globes-full-list-here/)
+- [MTV EMAs Recap: List of Winners & Red Carpet Fashi...](https://fashion.allwomenstalk.com/mtv-emas-recap-list-of-winners-red-carpet-fashion/)
+- [Beyonce, Sam Smith & Pharrell Lead in Grammy Nods ...](https://music.allwomenstalk.com/beyonce-sam-smith-pharrell-lead-in-grammy-nods-see-all-nominees-here/)
 - [MTV EMAs' Hot Hostess - Eva Longoria ...](https://celebs.allwomenstalk.com/mtv-emas-hot-hostess-eva-longoria/)
 - [Celebrity Stalking at the Bob Hope Chrysler Classi...](https://allwomenstalk.com/celebrity-stalking-at-the-bob-hope-chrysler-classic/)
 

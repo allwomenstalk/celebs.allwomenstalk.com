@@ -3,7 +3,7 @@ title: "Lena Dunham Urges Women to Vote with Planned Parenthood Campaign"
 description: "Sara Quin; Retta; Leslie Mann; Amy Poehler; America Ferrera; More ..."
 url: "https://celebs.allwomenstalk.com/lena-dunham-urges-females-to-vote-with-planned-parenthood-campaign/"
 category: "celebs"
-last_updated: "2026-06-17"
+last_updated: "2026-06-25"
 ---
 
 # Lena Dunham Urges Women to Vote with Planned Parenthood Campaign
@@ -100,16 +100,16 @@ Civic Engagement
 
 ## Related Posts
 
-- [7 Empowering Women Who Should Always Be Your #WCW ...](https://inspiration.allwomenstalk.com/empowering-women-who-should-always-be-your-wcw/)
-- [She Traveled the World to Prove ALL Women Are Beau...](https://beauty.allwomenstalk.com/she-traveled-the-world-to-prove-all-women-are-beautiful/)
-- [7 TV Shows with Powerful Female Leads You're Sure ...](https://movies.allwomenstalk.com/tv-shows-with-powerful-female-leads-youre-sure-to-love/)
-- [7 Most Outrageous and Unconventional Women of Our ...](https://celebs.allwomenstalk.com/most-outrageous-and-unconventional-women-of-our-time/)
-- [7 Must-See TED Talks for Purposeful Women ...](https://inspiration.allwomenstalk.com/must-see-ted-talks-for-purposeful-women/)
 - [7 Spectacular Things Women Should Get More Credit ...](https://lifestyle.allwomenstalk.com/spectacular-things-women-should-get-more-credit-for/)
+- [7 Must-See TED Talks for Purposeful Women ...](https://inspiration.allwomenstalk.com/must-see-ted-talks-for-purposeful-women/)
 - [7 Ways to Support Women around the World ...](https://inspiration.allwomenstalk.com/ways-to-support-women-around-the-world/)
-- [2014's Best Girl-Power Moments ...](https://inspiration.allwomenstalk.com/2014s-best-girl-power-moments/)
 - [Crucial Women's Rights We Need to Fight for ...](https://inspiration.allwomenstalk.com/womens-rights-we-need-to-fight-for/)
+- [7 TV Shows with Powerful Female Leads You're Sure ...](https://movies.allwomenstalk.com/tv-shows-with-powerful-female-leads-youre-sure-to-love/)
 - [10 Women from History Who Would Have Been Amazing ...](https://lifestyle.allwomenstalk.com/women-from-history-who-would-have-been-amazing-presidents/)
+- [2014's Best Girl-Power Moments ...](https://inspiration.allwomenstalk.com/2014s-best-girl-power-moments/)
+- [7 Empowering Women Who Should Always Be Your #WCW ...](https://inspiration.allwomenstalk.com/empowering-women-who-should-always-be-your-wcw/)
+- [7 Most Outrageous and Unconventional Women of Our ...](https://celebs.allwomenstalk.com/most-outrageous-and-unconventional-women-of-our-time/)
+- [She Traveled the World to Prove ALL Women Are Beau...](https://beauty.allwomenstalk.com/she-traveled-the-world-to-prove-all-women-are-beautiful/)
 - [Lindsay's Big Plans for the New Year...](https://celebs.allwomenstalk.com/lindsays-big-plans-for-the-new-year/)
 - [Jane Pratt Claims Drew Barrymore Lesbian Sex Romp](https://allwomenstalk.com/jane-pratt-claims-drew-barrymore-lesbian-sex-romp/)
 

@@ -3,7 +3,7 @@ title: "#TGIT: ShondaLand Celebrities You Should Be following on Twitter ..."
 description: "Ellen Pompeo & Patrick Dempsey; Camilla Luddington & Kevin Mckidd; Jesse Williams & Sarah Drew; Jessica Capshaw & Sara Ramirez; Kerry Washington & Scott Foley; More ..."
 url: "https://celebs.allwomenstalk.com/tgit-shondaland-celebrities-you-should-be-following-on-twitter/"
 category: "celebs"
-last_updated: "2026-06-17"
+last_updated: "2026-06-25"
 ---
 
 # \#TGIT: ShondaLand Celebrities You Should Be following on Twitter ...
@@ -69,16 +69,16 @@ Well, there you have it. ShondaLand has completely taken over Thursday nights on
 
 ## Related Posts
 
-- [celebrities giving back](https://inspiration.allwomenstalk.com/these-charitable-celebrity-couples-are-all-about-giving-back/)
+- [bromances](https://celebs.allwomenstalk.com/of-the-cutest-celebrity-bromances-of-all-time/)
 - [strange facts about celebrities](https://celebs.allwomenstalk.com/little-known-facts-about-your-favorite-celebrities/)
 - [famous actors with parkinson's](https://celebs.allwomenstalk.com/celebrities-with-parkinsons-disease/)
-- [julianna hough plastic surgery](https://celebs.allwomenstalk.com/whoa-celebrity-doppelgangers-from-different-generations/)
-- [bromances](https://celebs.allwomenstalk.com/of-the-cutest-celebrity-bromances-of-all-time/)
-- [cameron diaz snoop high school](https://celebs.allwomenstalk.com/celebrities-who-went-to-high-school-together/)
-- [celebrities with weird kid names](https://celebs.allwomenstalk.com/celebrities-explain-their-reasoning-behind-their-strange-baby-names/)
+- [pregnant celebrities on red carpet](https://fashion.allwomenstalk.com/celebrities-that-made-red-carpet-baby-bumps-look-amazing/)
 - [most influential teenagers](https://celebs.allwomenstalk.com/in-case-you-missed-it-these-are-times-most-influential-teens/)
 - [celebrities photobombing](https://celebs.allwomenstalk.com/celebrity-photobombs-thatll-make-you-lol/)
-- [pregnant celebrities on red carpet](https://fashion.allwomenstalk.com/celebrities-that-made-red-carpet-baby-bumps-look-amazing/)
+- [cameron diaz snoop high school](https://celebs.allwomenstalk.com/celebrities-who-went-to-high-school-together/)
+- [celebrities giving back](https://inspiration.allwomenstalk.com/these-charitable-celebrity-couples-are-all-about-giving-back/)
+- [celebrities with weird kid names](https://celebs.allwomenstalk.com/celebrities-explain-their-reasoning-behind-their-strange-baby-names/)
+- [julianna hough plastic surgery](https://celebs.allwomenstalk.com/whoa-celebrity-doppelgangers-from-different-generations/)
 - [Top Celebrity Philantrophists ...](https://celebs.allwomenstalk.com/top-celebrity-philantrophists/)
 - [OMG It's Celebrity Gossip Overload - Sound the Ala...](https://allwomenstalk.com/omg-its-celebrity-gossip-overload-sound-the-alarm/)
 

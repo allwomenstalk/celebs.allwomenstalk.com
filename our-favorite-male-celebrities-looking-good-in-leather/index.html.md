@@ -3,7 +3,7 @@ title: "56 Iconic Male Celebrities Who Know Exactly How to Rock Leather"
 description: "James Franco; Gerard Butler; Joe Jonas; Jean-Luc Bilodeau; Joe Manganiello; More ..."
 url: "https://celebs.allwomenstalk.com/our-favorite-male-celebrities-looking-good-in-leather/"
 category: "celebs"
-last_updated: "2026-06-17"
+last_updated: "2026-06-25"
 ---
 
 # 56 Iconic Male Celebrities Who Know Exactly How to Rock Leather
@@ -273,15 +273,15 @@ Ok - who did I miss?
 ## Related Posts
 
 - [celebrities giving back](https://celebs.allwomenstalk.com/celebrity-do-gooders-who-are-always-giving-back/)
-- [why does seal have facial scars](https://celebs.allwomenstalk.com/these-lesser-known-stories-behind-male-celebrities-scars-will-blow-your-mind/)
-- [celebrities with red lipstick](https://celebs.allwomenstalk.com/these-celebs-prove-you-too-can-rock-a-red-lip/)
 - [best celebrity tweets](https://funny.allwomenstalk.com/funniest-celebrities-read-mean-tweets-you-havent-seen-yet/)
 - [famous 80s actors](https://celebs.allwomenstalk.com/and-hes-still-hot-80s-actors-who-look-even-better-now/)
+- [celebrities with red lipstick](https://celebs.allwomenstalk.com/these-celebs-prove-you-too-can-rock-a-red-lip/)
+- [why does seal have facial scars](https://celebs.allwomenstalk.com/these-lesser-known-stories-behind-male-celebrities-scars-will-blow-your-mind/)
+- [richard madden hairstyle](https://celebs.allwomenstalk.com/male-actors-to-swoon-over-this-year/)
+- [celebrities who can sing](https://celebs.allwomenstalk.com/they-can-do-it-all-celebs-you-never-knew-could-sing/)
+- [funny celebrity outfits](https://celebs.allwomenstalk.com/bizarre-celebrity-outfits-that-shouldve-never-seen-the-light-of-day/)
 - [loved and hated](https://celebs.allwomenstalk.com/celebrities-we-have-loved-and-hated-at-one-time/)
 - [overrated celebs](https://celebs.allwomenstalk.com/fame-is-overrated-heres-why-you-dont-want-to-be-a-celebrity/)
-- [richard madden hairstyle](https://celebs.allwomenstalk.com/male-actors-to-swoon-over-this-year/)
-- [funny celebrity outfits](https://celebs.allwomenstalk.com/bizarre-celebrity-outfits-that-shouldve-never-seen-the-light-of-day/)
-- [celebrities who can sing](https://celebs.allwomenstalk.com/they-can-do-it-all-celebs-you-never-knew-could-sing/)
 - [Sexiest Men Alive up for Auction ...](https://celebs.allwomenstalk.com/sexiest-men-alive-up-for-auction/)
 - [8 Celebrities with Excellent off-Duty Style ...](https://celebs.allwomenstalk.com/celebrities-with-excellent-off-duty-style/)
 

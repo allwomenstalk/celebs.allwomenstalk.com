@@ -3,7 +3,7 @@ title: "9 Amazing Actors Who Died before Their Time ..."
 description: "Cory Monteith, 1982-2013; Heath Ledger, 1979-2008; Anna Nicole Smith, 1967-2007; River Phoenix, 1970-1993; Bruce Lee, 1940-1973; More ..."
 url: "https://celebs.allwomenstalk.com/amazing-actors-who-died-before-their-time/"
 category: "celebs"
-last_updated: "2026-06-17"
+last_updated: "2026-06-25"
 ---
 
 # 9 Amazing Actors Who Died before Their Time ...
@@ -66,16 +66,16 @@ I've never been one to get upset about things that happen in Hollywood, but I do
 
 ## Related Posts
 
-- [actors who changed their names](https://celebs.allwomenstalk.com/celebrities-who-changed-their-appearance-for-a-role/)
+- [actors and musicians](https://celebs.allwomenstalk.com/talented-actors-who-are-also-musicians/)
 - [tyler posey and miley cyrus](https://celebs.allwomenstalk.com/celebrity-couples-that-you-probably-forgot-about/)
-- [celebrities who are best friends](https://celebs.allwomenstalk.com/celebrity-best-friends-we-should-aspire-to-be-like/)
-- [talented famous person](https://celebs.allwomenstalk.com/celebrities-who-are-multi-talented/)
+- [celebrities with same name](https://celebs.allwomenstalk.com/celebrities-who-changed-their-names-when-they-attained-stardom/)
+- [celebrity astrology signs](https://celebs.allwomenstalk.com/celebrities-and-their-astrological-signs/)
+- [actors who changed their names](https://celebs.allwomenstalk.com/celebrities-who-changed-their-appearance-for-a-role/)
 - [brian austin green megan fox age](https://celebs.allwomenstalk.com/cute-celebrity-couples-who-eloped/)
 - [famous celebrities you didn't know were related](https://celebs.allwomenstalk.com/pairs-of-celebrities-you-didnt-know-were-related/)
-- [actors and musicians](https://celebs.allwomenstalk.com/talented-actors-who-are-also-musicians/)
-- [celebrity astrology signs](https://celebs.allwomenstalk.com/celebrities-and-their-astrological-signs/)
+- [talented famous person](https://celebs.allwomenstalk.com/celebrities-who-are-multi-talented/)
 - [kesha cotton candy](https://celebs.allwomenstalk.com/celebrities-with-cotton-candy-hair/)
-- [celebrities with same name](https://celebs.allwomenstalk.com/celebrities-who-changed-their-names-when-they-attained-stardom/)
+- [celebrities who are best friends](https://celebs.allwomenstalk.com/celebrity-best-friends-we-should-aspire-to-be-like/)
 - [7 Iconic Movies Roles That Were Almost Played by O...](https://movies.allwomenstalk.com/7-iconic-movies-roles-that-were-almost-played-by-other-actors/)
 - [8 Most Memorable Silent Movie Stars ...](https://movies.allwomenstalk.com/8-most-memorable-silent-movie-stars/)
 

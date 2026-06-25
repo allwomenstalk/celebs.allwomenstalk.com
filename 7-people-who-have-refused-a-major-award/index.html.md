@@ -3,7 +3,7 @@ title: "7 People Who Have Refused a Major Award ..."
 description: "Oscar – George C. Scott; Nobel Prize – Boris Posternak; Pulitzer Prize – Sinclair Lewis; Knighthood – David Bowie; Nobel Prize – Jean Paul Sartre; More ..."
 url: "https://celebs.allwomenstalk.com/7-people-who-have-refused-a-major-award/"
 category: "celebs"
-last_updated: "2026-06-17"
+last_updated: "2026-06-25"
 ---
 
 # 7 People Who Have Refused a Major Award ...
@@ -44,16 +44,16 @@ Top Photo Credit: [Samer Farha](https://www.flickr.com/photos/samer/516593823/)
 
 ## Related Posts
 
-- [The King's Speech Leads the SAG Nominations...](https://celebs.allwomenstalk.com/the-kings-speech-leads-the-sag-nominations/)
-- [nf face makeup](https://celebs.allwomenstalk.com/celebrity-fashion-face-off-pick-your-winners/)
 - [vma celebrities](https://celebs.allwomenstalk.com/best-dressed-celebrities-at-the-mtv-video-music-awards/)
-- [Grammy 2011 Nominations: Eminem's Leads the Way .....](https://celebs.allwomenstalk.com/grammy-nominations-eminems-leads-the-way/)
-- [katy perry smurfette dress](https://celebs.allwomenstalk.com/ugliest-celebrity-fashion-faux-pas-of/)
 - [golden globes 2011](https://celebs.allwomenstalk.com/golden-globe-nominations/)
-- [celebrity fashion mistakes](https://celebs.allwomenstalk.com/biggest-celebrity-fashion-faux-pas-of/)
-- [25 Oscar Nominees Who Should Win This Year ...](https://bilbr.com/25-oscar-nominees-who-should-win-this-year/)
-- [most stylish actresses](https://celebs.allwomenstalk.com/most-stylish-female-celebrities-of/)
 - [emma watson harry potter premiere outfits](https://celebs.allwomenstalk.com/emma-watsons-red-carpet-looks-for-harry-potter/)
+- [celebrity fashion mistakes](https://celebs.allwomenstalk.com/biggest-celebrity-fashion-faux-pas-of/)
+- [The King's Speech Leads the SAG Nominations...](https://celebs.allwomenstalk.com/the-kings-speech-leads-the-sag-nominations/)
+- [katy perry smurfette dress](https://celebs.allwomenstalk.com/ugliest-celebrity-fashion-faux-pas-of/)
+- [Grammy 2011 Nominations: Eminem's Leads the Way .....](https://celebs.allwomenstalk.com/grammy-nominations-eminems-leads-the-way/)
+- [nf face makeup](https://celebs.allwomenstalk.com/celebrity-fashion-face-off-pick-your-winners/)
+- [most stylish actresses](https://celebs.allwomenstalk.com/most-stylish-female-celebrities-of/)
+- [25 Oscar Nominees Who Should Win This Year ...](https://bilbr.com/25-oscar-nominees-who-should-win-this-year/)
 - [7 Actors Who Are Overrated ...](https://movies.allwomenstalk.com/7-actors-who-are-overrated/)
 - [7 Worst Awards-Show Hosts ...](https://movies.allwomenstalk.com/7-worst-awards-show-hosts/)
 

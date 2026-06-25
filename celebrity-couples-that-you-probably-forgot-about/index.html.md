@@ -3,7 +3,7 @@ title: "7 Celebrity Couples That You Probably Forgot about ..."
 description: "Britney Spears and Justin Timberlake; Miley Cyrus and Tyler Posey; Macauley Culkin and Mila Kunis; Shia Labeouf and Rihanna; Demi Lovato and Trace Cyrus; More ..."
 url: "https://celebs.allwomenstalk.com/celebrity-couples-that-you-probably-forgot-about/"
 category: "celebs"
-last_updated: "2026-06-17"
+last_updated: "2026-06-25"
 ---
 
 # 7 Celebrity Couples That You Probably Forgot about ...
@@ -58,16 +58,16 @@ In Hollywood couples usually don’t last long, but it is interesting to see the
 
 ## Related Posts
 
-- [celebrities who are best friends](https://celebs.allwomenstalk.com/celebrity-best-friends-we-should-aspire-to-be-like/)
 - [celebrities with same name](https://celebs.allwomenstalk.com/celebrities-who-changed-their-names-when-they-attained-stardom/)
-- [talented famous person](https://celebs.allwomenstalk.com/celebrities-who-are-multi-talented/)
-- [actors who changed their names](https://celebs.allwomenstalk.com/celebrities-who-changed-their-appearance-for-a-role/)
 - [famous celebrities you didn't know were related](https://celebs.allwomenstalk.com/pairs-of-celebrities-you-didnt-know-were-related/)
-- [brian austin green megan fox age](https://celebs.allwomenstalk.com/cute-celebrity-couples-who-eloped/)
 - [kesha cotton candy](https://celebs.allwomenstalk.com/celebrities-with-cotton-candy-hair/)
 - [amy winehouse swimsuit](https://celebs.allwomenstalk.com/celebrity-faces-destroyed-by-drugs/)
-- [celebrity astrology signs](https://celebs.allwomenstalk.com/celebrities-and-their-astrological-signs/)
+- [celebrities who are best friends](https://celebs.allwomenstalk.com/celebrity-best-friends-we-should-aspire-to-be-like/)
 - [actors and musicians](https://celebs.allwomenstalk.com/talented-actors-who-are-also-musicians/)
+- [brian austin green megan fox age](https://celebs.allwomenstalk.com/cute-celebrity-couples-who-eloped/)
+- [actors who changed their names](https://celebs.allwomenstalk.com/celebrities-who-changed-their-appearance-for-a-role/)
+- [celebrity astrology signs](https://celebs.allwomenstalk.com/celebrities-and-their-astrological-signs/)
+- [talented famous person](https://celebs.allwomenstalk.com/celebrities-who-are-multi-talented/)
 - [6 Celeb Couples Posts for Your Enjoyment ...](https://allwomenstalk.com/8-celeb-couples-posts-for-your-enjoyment/)
 - [7 Celebrity Dream Couples ...](https://allwomenstalk.com/7-celebrity-dream-couples/)
 

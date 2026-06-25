@@ -3,7 +3,7 @@ title: "7 Celebrity Urban Legends and the Truth behind Them ..."
 description: "X Celebrity Had to Have His Stomach Pumped for Semen; The Talking Horse on “Mr. Ed” Was Actually a Zebra; Sly Stallone Used to Be a Porn Star; Justin Bieber is Bisexual; “Hey, My Wife Did KISS!”; More ..."
 url: "https://celebs.allwomenstalk.com/celebrity-urban-legends-and-the-truth-behind-them/"
 category: "celebs"
-last_updated: "2026-06-17"
+last_updated: "2026-06-25"
 ---
 
 # 7 Celebrity Urban Legends and the Truth behind Them ...
@@ -46,13 +46,13 @@ This is really just the tip of the iceberg when it comes to celebrity urban lege
 - [siblings best friends](https://celebs.allwomenstalk.com/these-celeb-siblings-also-double-as-best-friends/)
 - [famous sidekicks in literature](https://movies.allwomenstalk.com/amazing-sidekicks-who-can-be-lead-stars/)
 - [alec baldwin looks like millard fillmore](https://celebs.allwomenstalk.com/whoa-do-these-celebs-have-a-historical-twin/)
-- [romance real life](https://movies.allwomenstalk.com/some-of-the-best-real-life-romances-that-started-on-set/)
-- [aileen wuornos movie actress](https://movies.allwomenstalk.com/best-transformations-for-movies/)
-- [celebrities who are vegetarian](https://celebs.allwomenstalk.com/celebrities-who-are-vegan/)
 - [vince vaughn spouse](https://celebs.allwomenstalk.com/celebrities-who-are-married-to-non-celebrities/)
+- [romance real life](https://movies.allwomenstalk.com/some-of-the-best-real-life-romances-that-started-on-set/)
 - [celebrities who love food](https://celebs.allwomenstalk.com/celebrity-foodies-that-love-food-as-much-as-you-do/)
-- [celebrities who went to college](https://celebs.allwomenstalk.com/hollywood-celebrities-with-college-degrees/)
+- [aileen wuornos movie actress](https://movies.allwomenstalk.com/best-transformations-for-movies/)
 - [ryan gosling tagine](https://celebs.allwomenstalk.com/celebrities-who-own-restaurants-and-bars/)
+- [celebrities who went to college](https://celebs.allwomenstalk.com/hollywood-celebrities-with-college-degrees/)
+- [celebrities who are vegetarian](https://celebs.allwomenstalk.com/celebrities-who-are-vegan/)
 - [7 Greatly Astonishing Celebrity Scandals ...](https://celebs.allwomenstalk.com/greatly-astonishing-celebrity-scandals/)
 - [6 Sad Celebrity Stories ...](https://allwomenstalk.com/6-sad-celebrity-stories/)
 

@@ -3,7 +3,7 @@ title: "7 Celebs Who Are Obsessed with True Detective ..."
 description: "Nina Dobrev; Andrew Schulz; Andy Samberg; Bill Hader; Matthew Mcconaughey; More ..."
 url: "https://celebs.allwomenstalk.com/celebs-who-are-obsessed-with-true-detective/"
 category: "celebs"
-last_updated: "2026-06-17"
+last_updated: "2026-06-25"
 ---
 
 # 7 Celebs Who Are Obsessed with True Detective ...
@@ -56,16 +56,16 @@ Well, there you have it. These are just seven out of many celebrities who are ob
 
 ## Related Posts
 
-- [pics of celebs](https://funny.allwomenstalk.com/adorably-funny-pictures-of-celebs-with-their-kids/)
-- [smile book characters](https://celebs.allwomenstalk.com/of-the-best-female-celebrity-smiles/)
-- [celebrities who started from the bottom](https://celebs.allwomenstalk.com/celebrities-who-started-from-the-bottom-and-rose-to-the-top/)
 - [riche le stylo eye shadow glistening garnet](https://celebs.allwomenstalk.com/celebrities-and-their-godparents/)
+- [smile book characters](https://celebs.allwomenstalk.com/of-the-best-female-celebrity-smiles/)
 - [does will smith have dyslexia](https://celebs.allwomenstalk.com/famous-people-with-dyslexia/)
-- [ezra fitz shirtless](https://movies.allwomenstalk.com/celebs-from-pretty-little-liars-who-love-to-live-tweet-during-the-show/)
-- [cloris leachman boy meets world](https://celebs.allwomenstalk.com/celebrities-who-will-be-guest-starring-on-girl-meets-world/)
 - [toby regbo shirtless](https://celebs.allwomenstalk.com/teen-celebrities-worth-fangirling-over/)
 - [miley cyrus coachella outfit](https://celebs.allwomenstalk.com/celebrities-who-looked-fab-at-coachella/)
+- [cloris leachman boy meets world](https://celebs.allwomenstalk.com/celebrities-who-will-be-guest-starring-on-girl-meets-world/)
+- [ezra fitz shirtless](https://movies.allwomenstalk.com/celebs-from-pretty-little-liars-who-love-to-live-tweet-during-the-show/)
 - [sean faris and robbie amell](https://celebs.allwomenstalk.com/celebs-from-cws-arrow-that-are-social-on-twitter/)
+- [pics of celebs](https://funny.allwomenstalk.com/adorably-funny-pictures-of-celebs-with-their-kids/)
+- [celebrities who started from the bottom](https://celebs.allwomenstalk.com/celebrities-who-started-from-the-bottom-and-rose-to-the-top/)
 - [7 of My Favorite Celebrities ...](https://celebs.allwomenstalk.com/7-of-my-favorite-celebrities/)
 - [7 Celebrities Who Smoke Weed ...](https://celebs.allwomenstalk.com/celebrities-who-smoke-weed/)
 

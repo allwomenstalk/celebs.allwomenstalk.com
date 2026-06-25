@@ -3,7 +3,7 @@ title: "17 Child Stars: then and Now ..."
 description: "Kristen Stewart; Mischa Barton; Scarlet Johansson; Emma Watson; Ryan Gosling; More ..."
 url: "https://celebs.allwomenstalk.com/child-stars-then-and-now/"
 category: "celebs"
-last_updated: "2026-06-17"
+last_updated: "2026-06-25"
 ---
 
 # 17 Child Stars: then and Now ...
@@ -114,16 +114,16 @@ Best known for Jack in "Titanic"
 
 ## Related Posts
 
-- [social media food trends](https://food.allwomenstalk.com/foods-that-broke-the-internet-as-much-as-kim/)
 - [ryan reynolds crush](https://funny.allwomenstalk.com/everyone-who-has-a-crush-on-ryan-reynolds-needs-to-see-these-tweets/)
 - [it was sexier in the nineties](https://celebs.allwomenstalk.com/90s-stars-who-are-even-sexier-today/)
-- [halle berry sarah palin](https://celebs.allwomenstalk.com/did-you-know-these-celebs-were-beauty-queens-before-they-became-stars/)
-- [celebrities](https://celebs.allwomenstalk.com/be-inspired-by-celebrities-who-have-branched-out-to-try-new-things/)
-- [full frontal movie stars](https://celebs.allwomenstalk.com/hot-actors-whove-gone-full-frontal-on-screen/)
-- [best celebrity workouts](https://fitness.allwomenstalk.com/celeb-workouts-for-women-who-want-to-look-like-stars/)
-- [morgana mcnelis jewelry](https://celebs.allwomenstalk.com/celebrities-wed-love-to-swap-boyfriends-with-for-a-day/)
 - [celebrity face swap](https://celebs.allwomenstalk.com/these-are-the-best-face-swaps-celebs-have-ever-posted/)
+- [morgana mcnelis jewelry](https://celebs.allwomenstalk.com/celebrities-wed-love-to-swap-boyfriends-with-for-a-day/)
+- [best celebrity workouts](https://fitness.allwomenstalk.com/celeb-workouts-for-women-who-want-to-look-like-stars/)
+- [halle berry sarah palin](https://celebs.allwomenstalk.com/did-you-know-these-celebs-were-beauty-queens-before-they-became-stars/)
+- [social media food trends](https://food.allwomenstalk.com/foods-that-broke-the-internet-as-much-as-kim/)
+- [full frontal movie stars](https://celebs.allwomenstalk.com/hot-actors-whove-gone-full-frontal-on-screen/)
 - [how to snap celebrities](https://celebs.allwomenstalk.com/the-hottest-celebs-to-follow-on-snapchat/)
+- [celebrities](https://celebs.allwomenstalk.com/be-inspired-by-celebrities-who-have-branched-out-to-try-new-things/)
 - [20 Cutest Celebrity Kids ...](https://allwomenstalk.com/20-cutest-celebrity-kids/)
 - [19 Skinniest Celebrities of Today ...](https://allwomenstalk.com/14-skinniest-celebrities-of-today/)
 

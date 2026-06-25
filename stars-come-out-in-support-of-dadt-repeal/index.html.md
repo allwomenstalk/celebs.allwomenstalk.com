@@ -3,7 +3,7 @@ title: "Stars Come out in Support of DADT Repeal ..."
 description: "Stay ahead, stay chic. Trusted guides on beauty, wellness, fashion, and everything that defines today's empowered woman."
 url: "https://celebs.allwomenstalk.com/stars-come-out-in-support-of-dadt-repeal/"
 category: "celebs"
-last_updated: "2026-06-17"
+last_updated: "2026-06-25"
 ---
 
 # Stars Come out in Support of DADT Repeal ...
@@ -22,16 +22,16 @@ Various other stars including Neil Patrick Harris, Kathy Griffin, Sophia Bush (f
 
 ## Related Posts
 
-- [mythbusters obama](https://celebs.allwomenstalk.com/obama-on-mythbusters/)
+- [favorite vines](https://gardening.allwomenstalk.com/5-of-my-favorite-vines/)
+- [Cook's Love for Mother Earth Revealed...](https://celebs.allwomenstalk.com/cooks-love-for-mother-earth-revealed/)
+- [Larry King Live Ends after 25 Years ...](https://celebs.allwomenstalk.com/larry-king-live-ends-after-25-years/)
+- [awesome birds](https://gardening.allwomenstalk.com/5-awesome-birds/)
+- [New Year Bash Wrap-up: Part 1 ...](https://celebs.allwomenstalk.com/new-year-bash-wrap-up-part-1/)
 - [amazing butterflies](https://gardening.allwomenstalk.com/5-amazing-butterflies/)
 - [charlie lifestyle](https://celebs.allwomenstalk.com/this-is-charlies-lifestyle-and-it-is-what-it-is/)
-- [Larry King Live Ends after 25 Years ...](https://celebs.allwomenstalk.com/larry-king-live-ends-after-25-years/)
-- [rare and unusual types of phobias](https://health.allwomenstalk.com/extraordinary-rare-phobias-and-their-meaning/)
-- [favorite vines](https://gardening.allwomenstalk.com/5-of-my-favorite-vines/)
 - [7 People Who Shouldn't Have Been Assassinated ...](https://celebs.allwomenstalk.com/7-people-who-shouldnt-have-been-assassinated/)
-- [New Year Bash Wrap-up: Part 1 ...](https://celebs.allwomenstalk.com/new-year-bash-wrap-up-part-1/)
-- [Cook's Love for Mother Earth Revealed...](https://celebs.allwomenstalk.com/cooks-love-for-mother-earth-revealed/)
-- [awesome birds](https://gardening.allwomenstalk.com/5-awesome-birds/)
+- [mythbusters obama](https://celebs.allwomenstalk.com/obama-on-mythbusters/)
+- [rare and unusual types of phobias](https://health.allwomenstalk.com/extraordinary-rare-phobias-and-their-meaning/)
 - [The Exes ...](https://allwomenstalk.com/the-exes/)
 - [Star Sightings at the Sundance Film Festival, Janu...](https://allwomenstalk.com/star-sightings-at-the-sundance-film-festival-january-18-22/)
 

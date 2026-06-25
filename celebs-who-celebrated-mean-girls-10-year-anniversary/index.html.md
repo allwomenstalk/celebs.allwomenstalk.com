@@ -3,7 +3,7 @@ title: "7 Celebs Who Celebrated Mean Girls' 10 Year Anniversary ..."
 description: "Lindsay Lohan; Amanda Seyfried; Lacey Chambert; Jonathan Bennet; Toaster Strudel; More ..."
 url: "https://celebs.allwomenstalk.com/celebs-who-celebrated-mean-girls-10-year-anniversary/"
 category: "celebs"
-last_updated: "2026-06-17"
+last_updated: "2026-06-25"
 ---
 
 # 7 Celebs Who Celebrated Mean Girls' 10 Year Anniversary ...
@@ -56,16 +56,16 @@ Well, there you have it. These are just seven celebs out of many who celebrated 
 
 ## Related Posts
 
-- [nde celebrities](https://celebs.allwomenstalk.com/celebrities-who-have-had-near-death-experiences/)
-- [who's a in pretty little liars season 1](https://celebs.allwomenstalk.com/pretty-little-liars-cast-members-who-also-dabble-in-music/)
-- [famous people who are inspiring](https://celebs.allwomenstalk.com/inspiring-celebrities-that-i-look-up-to/)
-- [celebrities twitter accounts](https://celebs.allwomenstalk.com/hilarious-celebrity-twitter-accounts-to-follow/)
 - [cute famous couples](https://celebs.allwomenstalk.com/adorable-celebrity-couples-we-wish-were-more-public/)
-- [celebrities giving back to the community](https://celebs.allwomenstalk.com/wonderful-celebrities-that-help-the-community/)
+- [female tv cops](https://celebs.allwomenstalk.com/brilliant-actors-actresses-who-have-played-cops-on-tv/)
+- [who's a in pretty little liars season 1](https://celebs.allwomenstalk.com/pretty-little-liars-cast-members-who-also-dabble-in-music/)
 - [underrated.lee](https://fitness.allwomenstalk.com/amazing-sports-stars-who-make-their-sport-an-art/)
 - [danny zugelder](https://celebs.allwomenstalk.com/female-celebrities-who-have-been-married-more-than-once/)
+- [celebrities giving back to the community](https://celebs.allwomenstalk.com/wonderful-celebrities-that-help-the-community/)
 - [left at the altar](https://celebs.allwomenstalk.com/celebrities-who-were-left-at-the-altar/)
-- [female tv cops](https://celebs.allwomenstalk.com/brilliant-actors-actresses-who-have-played-cops-on-tv/)
+- [famous people who are inspiring](https://celebs.allwomenstalk.com/inspiring-celebrities-that-i-look-up-to/)
+- [celebrities twitter accounts](https://celebs.allwomenstalk.com/hilarious-celebrity-twitter-accounts-to-follow/)
+- [nde celebrities](https://celebs.allwomenstalk.com/celebrities-who-have-had-near-death-experiences/)
 - [7 of My Favorite Celebrities ...](https://celebs.allwomenstalk.com/7-of-my-favorite-celebrities/)
 - [7 Inspiring Celebrities of 2011 ...](https://celebs.allwomenstalk.com/inspiring-celebrities-of/)
 

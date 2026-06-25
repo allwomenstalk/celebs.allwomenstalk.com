@@ -3,7 +3,7 @@ title: "10 Fun Facts about Marilyn Monroe ..."
 description: "Her Real Name Isn't Marilyn; She Was Always with Her Acting Coach; Joe DiMaggio Never Stopped Loving Her; She Loved Yoga; She Went under the Knife; More ..."
 url: "https://celebs.allwomenstalk.com/fun-facts-about-marilyn-monroe/"
 category: "celebs"
-last_updated: "2026-06-17"
+last_updated: "2026-06-25"
 ---
 
 # 10 Fun Facts about Marilyn Monroe ...
@@ -54,16 +54,16 @@ Marilyn Monroe has been the subject of so much controversy and talk since she be
 
 ## Related Posts
 
-- [mexican facts funny](https://travel.allwomenstalk.com/geographical-facts-of-mexico/)
 - [how long does flaxseed meal last](https://food.allwomenstalk.com/fast-facts-about-flax-you-should-know/)
-- [interesting fact about yourself example](https://inspiration.allwomenstalk.com/psychological-facts-about-yourself/)
-- [why can't you split the pole](https://lifestyle.allwomenstalk.com/of-the-most-interesting-and-common-superstitions/)
-- [facts about the great lakes](https://travel.allwomenstalk.com/amazing-facts-about-the-great-lakes/)
 - [site:fashion.allwomenstalk.com](https://fashion.allwomenstalk.com/facts-about-bras/)
-- [victoria beckham never smile](https://celebs.allwomenstalk.com/less-known-facts-about-victoria-beckham/)
-- [christian dior information](https://fashion.allwomenstalk.com/interesting-facts-about-christian-dior-you-didnt-know/)
 - [the river amazon facts](https://travel.allwomenstalk.com/awesome-facts-about-the-amazon-river-and-basin/)
+- [christian dior information](https://fashion.allwomenstalk.com/interesting-facts-about-christian-dior-you-didnt-know/)
 - [how do you say yves saint laurent](https://fashion.allwomenstalk.com/amazing-facts-about-yves-saint-laurent-you-didnt-know/)
+- [interesting fact about yourself example](https://inspiration.allwomenstalk.com/psychological-facts-about-yourself/)
+- [facts about the great lakes](https://travel.allwomenstalk.com/amazing-facts-about-the-great-lakes/)
+- [victoria beckham never smile](https://celebs.allwomenstalk.com/less-known-facts-about-victoria-beckham/)
+- [why can't you split the pole](https://lifestyle.allwomenstalk.com/of-the-most-interesting-and-common-superstitions/)
+- [mexican facts funny](https://travel.allwomenstalk.com/geographical-facts-of-mexico/)
 - [5 Facts on Bella Swan ...](https://twilight.allwomenstalk.com/5-facts-on-bella-swan/)
 - [5 Facts on Twilight ...](https://twilight.allwomenstalk.com/5-facts-on-twilight/)
 

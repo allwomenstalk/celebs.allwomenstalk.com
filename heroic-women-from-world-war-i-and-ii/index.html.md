@@ -3,7 +3,7 @@ title: "9 Heroic Women from World War I and II ..."
 description: "Edith Cavell; Milunka Savic; Maria Bochkareva; Eileen Nearne; Noor Inayat Khan; More ..."
 url: "https://celebs.allwomenstalk.com/heroic-women-from-world-war-i-and-ii/"
 category: "celebs"
-last_updated: "2026-06-17"
+last_updated: "2026-06-25"
 ---
 
 # 9 Heroic Women from World War I and II ...
@@ -68,16 +68,16 @@ I wish I had more space and time because this really is just a sprinkling of the
 
 ## Related Posts
 
-- [Girl Power: Taylor Swift's Cutest BFF Photos ...](https://celebs.allwomenstalk.com/girl-power-taylor-swifts-cutest-bff-photos/)
-- [Proof That Girl Power is Real, and Seriously Aweso...](https://inspiration.allwomenstalk.com/proof-that-girl-power-is-real-and-seriously-awesome/)
-- [7 Female Songwriters Who Are Masters of Their Craf...](https://music.allwomenstalk.com/female-songwriters-who-are-masters-of-their-craft/)
 - [Lena Dunham Urges Females to Vote with Planned Par...](https://celebs.allwomenstalk.com/lena-dunham-urges-females-to-vote-with-planned-parenthood-campaign/)
-- [Crucial Women's Rights We Need to Fight for ...](https://inspiration.allwomenstalk.com/womens-rights-we-need-to-fight-for/)
-- [7 Empowering Women Who Should Always Be Your #WCW ...](https://inspiration.allwomenstalk.com/empowering-women-who-should-always-be-your-wcw/)
 - [7 Most Outrageous and Unconventional Women of Our ...](https://celebs.allwomenstalk.com/most-outrageous-and-unconventional-women-of-our-time/)
-- [7 Must-See TED Talks for Purposeful Women ...](https://inspiration.allwomenstalk.com/must-see-ted-talks-for-purposeful-women/)
-- [7 Spectacular Things Women Should Get More Credit ...](https://lifestyle.allwomenstalk.com/spectacular-things-women-should-get-more-credit-for/)
 - [2014's Best Girl-Power Moments ...](https://inspiration.allwomenstalk.com/2014s-best-girl-power-moments/)
+- [Proof That Girl Power is Real, and Seriously Aweso...](https://inspiration.allwomenstalk.com/proof-that-girl-power-is-real-and-seriously-awesome/)
+- [7 Empowering Women Who Should Always Be Your #WCW ...](https://inspiration.allwomenstalk.com/empowering-women-who-should-always-be-your-wcw/)
+- [Girl Power: Taylor Swift's Cutest BFF Photos ...](https://celebs.allwomenstalk.com/girl-power-taylor-swifts-cutest-bff-photos/)
+- [7 Female Songwriters Who Are Masters of Their Craf...](https://music.allwomenstalk.com/female-songwriters-who-are-masters-of-their-craft/)
+- [7 Must-See TED Talks for Purposeful Women ...](https://inspiration.allwomenstalk.com/must-see-ted-talks-for-purposeful-women/)
+- [Crucial Women's Rights We Need to Fight for ...](https://inspiration.allwomenstalk.com/womens-rights-we-need-to-fight-for/)
+- [7 Spectacular Things Women Should Get More Credit ...](https://lifestyle.allwomenstalk.com/spectacular-things-women-should-get-more-credit-for/)
 - [7 Strong and Inspiring Female Characters from Movi...](https://movies.allwomenstalk.com/7-strong-and-inspiring-female-characters-from-movies/)
 - [9 Female Movie Superheroes ...](https://movies.allwomenstalk.com/female-movie-superheroes/)
 

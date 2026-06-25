@@ -3,7 +3,7 @@ title: "Weekend Wrap up: What Celebs Posted at the Weekend ..."
 description: "Adriana Lima; Sofia Vergara; Lorde; Gisele Bundchen; Usher; More ..."
 url: "https://celebs.allwomenstalk.com/weekend-wrap-up-what-celebs-posted-this-weekend/"
 category: "celebs"
-last_updated: "2026-06-17"
+last_updated: "2026-06-25"
 ---
 
 # Weekend Wrap up: What Celebs Posted at the Weekend ...
@@ -132,16 +132,16 @@ Are you following these celebs on Instagram?
 
 ## Related Posts
 
-- [7 Child Stars Who Are Still Awesome Today ...](https://movies.allwomenstalk.com/child-stars-who-are-still-awesome-today/)
-- [7 Celebs Who'd Also Make Great Singers ...](https://celebs.allwomenstalk.com/celebs-whod-also-make-great-singers/)
-- [10 Celebrity #TBT Photos You May Have Missed This ...](https://celebs.allwomenstalk.com/celebrity-tbt-photos-you-may-have-missed-this-week/)
-- [10 Hottest Magazine Covers of Nov. 2014 You Might'...](https://beauty.allwomenstalk.com/hottest-magazine-covers-of-nov-you-mightve-missed/)
-- [Weekend Wrap up: What Celebs Posted This Weekend ....](https://celebs.allwomenstalk.com/weekend-wrap-up-what-celebs-posted-this-weekend-2/)
-- [Baby Boom: the Cutest Celebrity Baby Announcements...](https://celebs.allwomenstalk.com/baby-boom-the-cutest-celebrity-baby-announcements-of/)
-- [#TBT Wrap up: 10 Celeb Posts You Need to See ...](https://celebs.allwomenstalk.com/tbt-wrap-up-celeb-posts-you-need-to-see-2/)
-- [vanessa hudgens ombre hair](https://hair.allwomenstalk.com/celebrity-hair-transformations-of/)
 - [These Celebrities Are Heading to Broadway This Fal...](https://celebs.allwomenstalk.com/celebrities-who-are-heading-to-broadway-this-fall/)
+- [#TBT Wrap up: 10 Celeb Posts You Need to See ...](https://celebs.allwomenstalk.com/tbt-wrap-up-celeb-posts-you-need-to-see-2/)
+- [Weekend Wrap up: What Celebs Posted This Weekend ....](https://celebs.allwomenstalk.com/weekend-wrap-up-what-celebs-posted-this-weekend-2/)
+- [10 Celebrity #TBT Photos You May Have Missed This ...](https://celebs.allwomenstalk.com/celebrity-tbt-photos-you-may-have-missed-this-week/)
+- [7 Child Stars Who Are Still Awesome Today ...](https://movies.allwomenstalk.com/child-stars-who-are-still-awesome-today/)
+- [10 Hottest Magazine Covers of Nov. 2014 You Might'...](https://beauty.allwomenstalk.com/hottest-magazine-covers-of-nov-you-mightve-missed/)
 - [15 Celebrity Posts You May Have Missed This Weeken...](https://celebs.allwomenstalk.com/celebrity-posts-you-may-have-missed-this-weekend/)
+- [Baby Boom: the Cutest Celebrity Baby Announcements...](https://celebs.allwomenstalk.com/baby-boom-the-cutest-celebrity-baby-announcements-of/)
+- [7 Celebs Who'd Also Make Great Singers ...](https://celebs.allwomenstalk.com/celebs-whod-also-make-great-singers/)
+- [vanessa hudgens ombre hair](https://hair.allwomenstalk.com/celebrity-hair-transformations-of/)
 - [4 Fun Celebrity Haircuts This Week ...](https://celebs.allwomenstalk.com/celebrity-haircuts-this-week/)
 - [News Weekly Web Snob Fashion News round up ...](https://allwomenstalk.com/news-weekly-web-snob-fashion-news-round-up-ebelle5-handbags-purses/)
 

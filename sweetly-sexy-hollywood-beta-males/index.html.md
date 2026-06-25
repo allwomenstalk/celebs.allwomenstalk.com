@@ -3,7 +3,7 @@ title: "7 Sweetly Sexy Hollywood Beta Males ..."
 description: "Michael Cera; Jason Segel; Neil Patrick Harris; Seth Rogan; John Cusack; More ..."
 url: "https://celebs.allwomenstalk.com/sweetly-sexy-hollywood-beta-males/"
 category: "celebs"
-last_updated: "2026-06-17"
+last_updated: "2026-06-25"
 ---
 
 # 7 Sweetly Sexy Hollywood Beta Males ...
@@ -58,16 +58,16 @@ Top Image Source: [weheartit.com](https://weheartit.com/entry/17239017)
 
 ## Related Posts
 
-- [christopher walken angelina jolie](https://celebs.allwomenstalk.com/surprising-music-video-stars/)
-- [lucille ball debra messing](https://celebs.allwomenstalk.com/celebs-that-rock-red-hair/)
-- [inspiring celebrities](https://celebs.allwomenstalk.com/inspiring-celebrities-of/)
-- [matt damon buzz cut](https://celebs.allwomenstalk.com/celebrity-haircuts-this-week/)
-- [4 Celebs That Shot to Fame after Cosmetic Surgery....](https://celebs.allwomenstalk.com/celebs-that-shot-to-fame-after-cosmetic-surgery/)
 - [weather girl wardrobe malfunctions](https://celebs.allwomenstalk.com/25-celebrity-wardrobe-malfunctions/)
-- [beautiful actress under 25](https://celebs.allwomenstalk.com/25-hottest-female-celebrities-under-25/)
 - [olivia wilde bangs](https://celebs.allwomenstalk.com/celebrities-proving-that-bangs-are-back/)
-- [katharine hepburn height weight](https://celebs.allwomenstalk.com/enduring-celebrity-myths/)
+- [4 Celebs That Shot to Fame after Cosmetic Surgery....](https://celebs.allwomenstalk.com/celebs-that-shot-to-fame-after-cosmetic-surgery/)
+- [christopher walken angelina jolie](https://celebs.allwomenstalk.com/surprising-music-video-stars/)
+- [inspiring celebrities](https://celebs.allwomenstalk.com/inspiring-celebrities-of/)
 - [worst table manners](https://celebs.allwomenstalk.com/celebrities-with-awful-table-manners/)
+- [lucille ball debra messing](https://celebs.allwomenstalk.com/celebs-that-rock-red-hair/)
+- [katharine hepburn height weight](https://celebs.allwomenstalk.com/enduring-celebrity-myths/)
+- [matt damon buzz cut](https://celebs.allwomenstalk.com/celebrity-haircuts-this-week/)
+- [beautiful actress under 25](https://celebs.allwomenstalk.com/25-hottest-female-celebrities-under-25/)
 - [5 Hot Vampire Guys from the Twilight Series ...](https://twilight.allwomenstalk.com/5-hot-vampire-guys-from-the-twilight-series/)
 - [5 Sexy Vampires ...](https://twilight.allwomenstalk.com/5-sexy-vampires/)
 

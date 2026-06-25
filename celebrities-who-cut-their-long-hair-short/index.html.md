@@ -3,7 +3,7 @@ title: "7 Celebrities Who Cut Their Long Hair Short ..."
 description: "Miley Cyrus; Jennifer Lawrence; Emma Watson; Anne Hathaway; Natalie Portman; More ..."
 url: "https://celebs.allwomenstalk.com/celebrities-who-cut-their-long-hair-short/"
 category: "celebs"
-last_updated: "2026-06-17"
+last_updated: "2026-06-25"
 ---
 
 # 7 Celebrities Who Cut Their Long Hair Short ...
@@ -56,16 +56,16 @@ There you have it! These celebrities all had beautiful long locks, and at one po
 
 ## Related Posts
 
-- [most successful child actor](https://celebs.allwomenstalk.com/most-successful-child-stars-that-we-cant-get-enough-of/)
-- [bikram yoga celebrities](https://celebs.allwomenstalk.com/celebrities-who-love-yoga/)
-- [environmentally friendly celebrities](https://celebs.allwomenstalk.com/celebrities-and-the-environmental-causes-they-support/)
-- [disney stars grown up](https://celebs.allwomenstalk.com/child-celebs-who-grew-up-to-be-great-role-models/)
 - [beyonce reaction](https://celebs.allwomenstalk.com/celeb-reactions-to-beyonces-new-album/)
-- [people who died too soon](https://celebs.allwomenstalk.com/talented-people-who-died-too-soon-in-the-last-decade/)
-- [always trending](https://celebs.allwomenstalk.com/popular-celebrities-who-are-always-trending/)
 - [rainforest cate](https://celebs.allwomenstalk.com/celebrities-who-support-the-rainforest/)
+- [always trending](https://celebs.allwomenstalk.com/popular-celebrities-who-are-always-trending/)
 - [jesse johnson shirtless](https://celebs.allwomenstalk.com/hottest-sons-of-celebrities-that-you-need-to-know-about/)
+- [bikram yoga celebrities](https://celebs.allwomenstalk.com/celebrities-who-love-yoga/)
 - [neon blue hair](https://celebs.allwomenstalk.com/fabulous-celebrities-with-neon-colored-hair/)
+- [people who died too soon](https://celebs.allwomenstalk.com/talented-people-who-died-too-soon-in-the-last-decade/)
+- [environmentally friendly celebrities](https://celebs.allwomenstalk.com/celebrities-and-the-environmental-causes-they-support/)
+- [most successful child actor](https://celebs.allwomenstalk.com/most-successful-child-stars-that-we-cant-get-enough-of/)
+- [disney stars grown up](https://celebs.allwomenstalk.com/child-celebs-who-grew-up-to-be-great-role-models/)
 - [7 Funkiest Celebrity Hairstyles ...](https://celebs.allwomenstalk.com/7-funkiest-celebrity-hairstyles/)
 - [7 Celebrities Proving That Bangs Are Back ...](https://celebs.allwomenstalk.com/celebrities-proving-that-bangs-are-back/)
 

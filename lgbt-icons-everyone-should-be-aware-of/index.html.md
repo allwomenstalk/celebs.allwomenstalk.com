@@ -3,7 +3,7 @@ title: "10 LGBTQ+ Icons Everyone Should Be Aware of ..."
 description: "Sir Ian McKellen; Martina Navratilova; Marsha P Johnson; Harvey Milk; Ellen DeGeneres; More ..."
 url: "https://celebs.allwomenstalk.com/lgbt-icons-everyone-should-be-aware-of/"
 category: "celebs"
-last_updated: "2026-06-17"
+last_updated: "2026-06-25"
 ---
 
 # 10 LGBTQ+ Icons Everyone Should Be Aware of ...
@@ -72,16 +72,16 @@ It’s not something that a lot of people tend to know, but Dusty Springfield wa
 
 ## Related Posts
 
-- [Why Are There No Huge Celebrities Anymore?](https://celebs.allwomenstalk.com/why-are-there-no-huge-celebrities-anymore/)
-- [Celebrities Top Choice in 2019: Bum Lift ...](https://fitene.com/celebrities-top-choice-in-bum-lift/)
+- [Full List of Leonardo DiCaprio’s Serious Girlfrien...](https://celebs.allwomenstalk.com/leonardo-dicaprio-girlfriends-list/)
+- [7 Biggest Celebrity Weddings ...](https://wedding.allwomenstalk.com/biggest-celebrity-weddings/)
 - [15 Iconic New York City Socialites of the 20th Cen...](https://celebs.allwomenstalk.com/famous-new-york-city-socialites/)
 - [teenage celeberties](https://allwomenstalk.com/15-hottest-teen-celebrities/)
-- [Full List of Leonardo DiCaprio’s Serious Girlfrien...](https://celebs.allwomenstalk.com/leonardo-dicaprio-girlfriends-list/)
+- [Celebrities Top Choice in 2019: Bum Lift ...](https://fitene.com/celebrities-top-choice-in-bum-lift/)
+- [Why Are There No Huge Celebrities Anymore?](https://celebs.allwomenstalk.com/why-are-there-no-huge-celebrities-anymore/)
 - [7 Most Inspiring Celebrity Weight Loss Stories ...](https://weightloss.allwomenstalk.com/7-most-inspiring-celebrity-weight-loss-stories/)
-- [lizzy pattinson age](https://twilight.allwomenstalk.com/a-biography-on-robert-pattinson/)
 - [15 Intriguing Facts About Timothee Chalamet's Love...](https://celebs.allwomenstalk.com/timothee-chalamet-love-life-facts/)
-- [7 Biggest Celebrity Weddings ...](https://wedding.allwomenstalk.com/biggest-celebrity-weddings/)
 - [20 Most Popular Ariana Grande Songs That Shaped He...](https://music.allwomenstalk.com/ariana-grande-most-popular-songs/)
+- [lizzy pattinson age](https://twilight.allwomenstalk.com/a-biography-on-robert-pattinson/)
 - [10 Influential Women Throughout History ...](https://lifestyle.allwomenstalk.com/influential-women-throughout-history/)
 - [5 Blogs by Celebrities You'd Love to Get to Know ....](https://allwomenstalk.com/5-blogs-by-celebrities-youd-love-to-get-to-know/)
 

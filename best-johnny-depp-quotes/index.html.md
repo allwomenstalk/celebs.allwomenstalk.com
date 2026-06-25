@@ -3,7 +3,7 @@ title: "10 Best Johnny Depp Quotes ..."
 description: "\"We're All Damaged in Our Own Way. Nobody's Perfect. I Think We're All Somewhat Screwy. Every Single One of Us.\"; \"Life's Pretty Good, and Why Wouldn’t It Be? I'm a Pirate, after All.\"; \"I Don't Think Anybody's Necessarily Ready for Death. You Can Only Hope That when It Approaches, You Feel like You've Said What You Wanted to Say. Nobody Wants to Go out in Mid-sentence.\"; \"if You Love Two People at the Same Time, Choose the Second. Because, if You Really Loved the First One, You Wouldn't Have Fallen for the Second.\"; \"There Are Four Questions of Value in Life: What is Sacred? of What is the Spirit Made? What is Worth Living for? and What is Worth Dying for? the Answer to Each is the Same. Only Love.\"; More ..."
 url: "https://celebs.allwomenstalk.com/best-johnny-depp-quotes/"
 category: "celebs"
-last_updated: "2026-06-17"
+last_updated: "2026-06-25"
 ---
 
 # 10 Best Johnny Depp Quotes ...
@@ -54,16 +54,16 @@ You see, there is so much more to Johnny Depp than his gorgeous good looks. Thes
 
 ## Related Posts
 
-- [karl lagerfeld quote short men](https://fashion.allwomenstalk.com/infamous-quotes-by-karl-lagerfeld/)
-- [quotes about healing a broken heart](https://love.allwomenstalk.com/quotes-to-help-heal-a-broken-heart/)
 - [7 year itch funny quotes](https://movies.allwomenstalk.com/inspiring-quotes-from-classic-old-movies/)
+- [sword quotes](https://beauty.allwomenstalk.com/famous-and-fab-quotes-on-beauty/)
+- [friendships fade quotes](https://movies.allwomenstalk.com/tv-quotes-about-friendship/)
+- [quote from the help you is kind](https://movies.allwomenstalk.com/best-movie-quotes-of-all-time/)
+- [death bed quotes](https://lifestyle.allwomenstalk.com/wittiest-deathbed-quotes/)
+- [sometimes the right path is not easiest one](https://lifestyle.allwomenstalk.com/quotes-to-live-by/)
 - [site:health.allwomenstalk.com](https://health.allwomenstalk.com/great-quotes-from-jillian-michaels/)
 - [how tall was joan crawford](https://movies.allwomenstalk.com/classic-joan-crawford-quotes/)
-- [sometimes the right path is not easiest one](https://lifestyle.allwomenstalk.com/quotes-to-live-by/)
-- [death bed quotes](https://lifestyle.allwomenstalk.com/wittiest-deathbed-quotes/)
-- [quote from the help you is kind](https://movies.allwomenstalk.com/best-movie-quotes-of-all-time/)
-- [friendships fade quotes](https://movies.allwomenstalk.com/tv-quotes-about-friendship/)
-- [sword quotes](https://beauty.allwomenstalk.com/famous-and-fab-quotes-on-beauty/)
+- [karl lagerfeld quote short men](https://fashion.allwomenstalk.com/infamous-quotes-by-karl-lagerfeld/)
+- [quotes about healing a broken heart](https://love.allwomenstalk.com/quotes-to-help-heal-a-broken-heart/)
 - [Top 10 Lines from the Movies ...](https://movies.allwomenstalk.com/top-10-lines-from-the-movies/)
 - [10 Amazing British Movie Stars ...](https://movies.allwomenstalk.com/amazing-british-movie-stars/)
 

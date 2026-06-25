@@ -3,7 +3,7 @@ title: "Which Popular Child Stars Gave up Acting?"
 description: "Mara Wilson; Andrea Barber; Jonathan Taylor Thomas; Ariana Richards; Lisa Jakub; More ..."
 url: "https://celebs.allwomenstalk.com/child-stars-who-quit-acting/"
 category: "celebs"
-last_updated: "2026-06-17"
+last_updated: "2026-06-25"
 ---
 
 # Which Popular Child Stars Gave up Acting?
@@ -69,15 +69,15 @@ Can you think of any other child stars who totally disappeared after their famou
 ## Related Posts
 
 - [taylor swift favorite candle](https://music.allwomenstalk.com/celebrities-who-have-praised-taylor-swifts-new-album/)
-- [jim parson and rihanna](https://celebs.allwomenstalk.com/random-pair-of-celebrities-you-didnt-know-were-friends/)
 - [best of mean tweets](https://funny.allwomenstalk.com/this-video-of-celebs-reacting-to-mean-tweets-is-the-funniest-thing-youll-see-today/)
-- [tahlia hoskins](https://celebs.allwomenstalk.com/celebrities-we-said-a-sad-goodbye-to-in/)
-- [sabrina carpenter boots](https://celebs.allwomenstalk.com/co-stars-who-are-also-best-friends-in-real-life/)
 - [actor that sings](https://celebs.allwomenstalk.com/celebs-who-went-from-singing-to-acting/)
-- [famous ryans in hollywood](https://funny.allwomenstalk.com/watch-ryan-cabrera-rank-other-famous-ryans-including-gosling-and-reynolds/)
-- [jim carrey depression quote](https://celebs.allwomenstalk.com/celebrities-on-dealing-with-depression-and-mental-disorders/)
-- [sara ramirez on law and order svu](https://celebs.allwomenstalk.com/celebrities-who-guest-starred-on-law-order/)
+- [tahlia hoskins](https://celebs.allwomenstalk.com/celebrities-we-said-a-sad-goodbye-to-in/)
 - [celebrities who love animals](https://celebs.allwomenstalk.com/celebrities-who-love-and-advocate-for-animals/)
+- [sara ramirez on law and order svu](https://celebs.allwomenstalk.com/celebrities-who-guest-starred-on-law-order/)
+- [jim parson and rihanna](https://celebs.allwomenstalk.com/random-pair-of-celebrities-you-didnt-know-were-friends/)
+- [sabrina carpenter boots](https://celebs.allwomenstalk.com/co-stars-who-are-also-best-friends-in-real-life/)
+- [jim carrey depression quote](https://celebs.allwomenstalk.com/celebrities-on-dealing-with-depression-and-mental-disorders/)
+- [famous ryans in hollywood](https://funny.allwomenstalk.com/watch-ryan-cabrera-rank-other-famous-ryans-including-gosling-and-reynolds/)
 - [Top Celebrity Philantrophists ...](https://celebs.allwomenstalk.com/top-celebrity-philantrophists/)
 - [4 Celebs That Shot to Fame after Cosmetic Surgery....](https://celebs.allwomenstalk.com/celebs-that-shot-to-fame-after-cosmetic-surgery/)
 

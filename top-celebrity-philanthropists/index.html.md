@@ -3,7 +3,7 @@ title: "8 Top Celebrity Philanthropists That We Love and Adore ..."
 description: "Paul Newman; Angelina Jolie & Brad Pitt; Elton John; George Clooney; Oprah Winfrey; More ..."
 url: "https://celebs.allwomenstalk.com/top-celebrity-philanthropists/"
 category: "celebs"
-last_updated: "2026-06-17"
+last_updated: "2026-06-25"
 ---
 
 # 8 Top Celebrity Philanthropists That We Love and Adore ...
@@ -62,16 +62,16 @@ It could be said that celebrities can afford to give money away, but let's give 
 
 ## Related Posts
 
-- [celebs who don't age](https://celebs.allwomenstalk.com/spookily-youthful-celebs-who-never-age/)
-- [hans epprecht](https://money.allwomenstalk.com/people-who-were-named-as-new-billionaires-in/)
-- [alexsandra wright son](https://celebs.allwomenstalk.com/surprising-celebrity-men-whove-fathered-a-love-child/)
 - [celebrities who lost it all to drugs](https://celebs.allwomenstalk.com/celebrities-that-turned-their-life-around-after-using-drugs/)
+- [jason lee child name](https://celebs.allwomenstalk.com/awesome-celebrity-baby-names/)
+- [most elegant celebrities](https://celebs.allwomenstalk.com/most-stylish-celebrity-moms-to-be-that-we-love/)
+- [hollywood actress with best figure](https://movies.allwomenstalk.com/top-actors-with-the-hottest-bodies/)
+- [celebrity makeovers](https://celebs.allwomenstalk.com/amazing-celebrity-makeovers-that-make-great-inspiration/)
+- [alexsandra wright son](https://celebs.allwomenstalk.com/surprising-celebrity-men-whove-fathered-a-love-child/)
 - [famous note](https://money.allwomenstalk.com/interesting-famous-people-on-banknotes-around-the-world/)
 - [emily osment plastic surgery](https://celebs.allwomenstalk.com/celebrities-who-look-like-other-celebrities-see-it-to-believe-it/)
-- [most elegant celebrities](https://celebs.allwomenstalk.com/most-stylish-celebrity-moms-to-be-that-we-love/)
-- [celebrity makeovers](https://celebs.allwomenstalk.com/amazing-celebrity-makeovers-that-make-great-inspiration/)
-- [hollywood actress with best figure](https://movies.allwomenstalk.com/top-actors-with-the-hottest-bodies/)
-- [jason lee child name](https://celebs.allwomenstalk.com/awesome-celebrity-baby-names/)
+- [hans epprecht](https://money.allwomenstalk.com/people-who-were-named-as-new-billionaires-in/)
+- [celebs who don't age](https://celebs.allwomenstalk.com/spookily-youthful-celebs-who-never-age/)
 - [8 Most down to Earth Celebrities ...](https://celebs.allwomenstalk.com/most-down-to-earth-celebrities/)
 - [7 Awesomely Impressive Celebrity Entrepreneurs ...](https://celebs.allwomenstalk.com/awesomely-impressive-celebrity-entrepreneurs/)
 

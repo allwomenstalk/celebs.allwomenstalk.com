@@ -3,7 +3,7 @@ title: "7 Celebrities Who Embody the 7 Sins ..."
 description: "Pride: Kanye West; Gluttony: Mariah Carey; Sloth : Spencer Matthews; Envy: Paris Hilton; Greed: Simon Cowell; More ..."
 url: "https://celebs.allwomenstalk.com/celebrities-who-embody-the-7-deadly-sins/"
 category: "celebs"
-last_updated: "2026-06-17"
+last_updated: "2026-06-25"
 ---
 
 # 7 Celebrities Who Embody the 7 Sins ...
@@ -56,16 +56,16 @@ In defence of these celebrities, they only beat their peers by the breadth of a 
 
 ## Related Posts
 
-- [celebs with big hair](https://celebs.allwomenstalk.com/celebrities-who-cut-their-long-hair-short/)
-- [tina fey daughter alice](https://celebs.allwomenstalk.com/celebrity-kids-who-looks-like-their-parents/)
-- [coolest celebrity tattoos](https://celebs.allwomenstalk.com/best-celebrity-tattoos-that-youre-sure-to-love/)
-- [british actors that do american accents](https://movies.allwomenstalk.com/british-actors-who-can-do-american-accents-perfectly/)
-- [hottest grey's anatomy characters](https://movies.allwomenstalk.com/hottest-guys-on-greys-anatomy-that-we-cant-help-but-love/)
-- [rainforest cate](https://celebs.allwomenstalk.com/celebrities-who-support-the-rainforest/)
-- [historic actors](https://movies.allwomenstalk.com/celebrities-who-played-historical-figures-perfectly/)
-- [bikram yoga celebrities](https://celebs.allwomenstalk.com/celebrities-who-love-yoga/)
 - [hard actors to guess](https://movies.allwomenstalk.com/actors-who-turned-down-legendary-roles/)
+- [british actors that do american accents](https://movies.allwomenstalk.com/british-actors-who-can-do-american-accents-perfectly/)
 - [brittany murphy deces](https://celebs.allwomenstalk.com/of-the-most-sudden-celebrity-deaths/)
+- [celebs with big hair](https://celebs.allwomenstalk.com/celebrities-who-cut-their-long-hair-short/)
+- [hottest grey's anatomy characters](https://movies.allwomenstalk.com/hottest-guys-on-greys-anatomy-that-we-cant-help-but-love/)
+- [historic actors](https://movies.allwomenstalk.com/celebrities-who-played-historical-figures-perfectly/)
+- [tina fey daughter alice](https://celebs.allwomenstalk.com/celebrity-kids-who-looks-like-their-parents/)
+- [rainforest cate](https://celebs.allwomenstalk.com/celebrities-who-support-the-rainforest/)
+- [bikram yoga celebrities](https://celebs.allwomenstalk.com/celebrities-who-love-yoga/)
+- [coolest celebrity tattoos](https://celebs.allwomenstalk.com/best-celebrity-tattoos-that-youre-sure-to-love/)
 - [7 of My Favorite Celebrities ...](https://celebs.allwomenstalk.com/7-of-my-favorite-celebrities/)
 - [7 Women Celebrities Who Smoke ...](https://celebs.allwomenstalk.com/women-celebrities-who-smoke/)
 

@@ -3,7 +3,7 @@ title: "7 Celebs Who Are Obsessed with HBO's Girls ..."
 description: "Ashley Benson; Kylie Bunbery; Mindy Kaling; Ross Matthews; Idris Elba; More ..."
 url: "https://celebs.allwomenstalk.com/celebs-who-are-obsessed-with-hbos-girls/"
 category: "celebs"
-last_updated: "2026-06-17"
+last_updated: "2026-06-25"
 ---
 
 # 7 Celebs Who Are Obsessed with HBO's Girls ...
@@ -56,16 +56,16 @@ Well, there you have it! These are just seven out of many celebrities who are ob
 
 ## Related Posts
 
-- [riche le stylo eye shadow glistening garnet](https://celebs.allwomenstalk.com/celebrities-and-their-godparents/)
-- [louise lasser banned from snl](https://celebs.allwomenstalk.com/stars-banned-from-saturday-night-live/)
-- [ezra fitz shirtless](https://movies.allwomenstalk.com/celebs-from-pretty-little-liars-who-love-to-live-tweet-during-the-show/)
 - [types of celebrities jobs](https://celebs.allwomenstalk.com/celebrities-who-had-interesting-careers-before-they-became-famous/)
+- [louise lasser banned from snl](https://celebs.allwomenstalk.com/stars-banned-from-saturday-night-live/)
+- [smile book characters](https://celebs.allwomenstalk.com/of-the-best-female-celebrity-smiles/)
+- [ezra fitz shirtless](https://movies.allwomenstalk.com/celebs-from-pretty-little-liars-who-love-to-live-tweet-during-the-show/)
+- [pics of celebs](https://funny.allwomenstalk.com/adorably-funny-pictures-of-celebs-with-their-kids/)
 - [jim carrey hairstyles](https://movies.allwomenstalk.com/roles-that-would-have-gone-to-other-actors/)
 - [andy samberg plastic surgery](https://celebs.allwomenstalk.com/celebs-who-are-obsessed-with-true-detective/)
-- [pics of celebs](https://funny.allwomenstalk.com/adorably-funny-pictures-of-celebs-with-their-kids/)
-- [does will smith have dyslexia](https://celebs.allwomenstalk.com/famous-people-with-dyslexia/)
-- [smile book characters](https://celebs.allwomenstalk.com/of-the-best-female-celebrity-smiles/)
 - [cloris leachman boy meets world](https://celebs.allwomenstalk.com/celebrities-who-will-be-guest-starring-on-girl-meets-world/)
+- [does will smith have dyslexia](https://celebs.allwomenstalk.com/famous-people-with-dyslexia/)
+- [riche le stylo eye shadow glistening garnet](https://celebs.allwomenstalk.com/celebrities-and-their-godparents/)
 - [7 of My Favorite Celebrities ...](https://celebs.allwomenstalk.com/7-of-my-favorite-celebrities/)
 - [7 Women Celebrities Who Smoke ...](https://celebs.allwomenstalk.com/women-celebrities-who-smoke/)
 

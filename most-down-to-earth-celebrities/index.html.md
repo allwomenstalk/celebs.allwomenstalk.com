@@ -3,7 +3,7 @@ title: "8 Most down to Earth Celebrities ..."
 description: "Robert Pattinson; Kristen Stewart; Vin Diesel; Sandra Bullock; Johnny Depp; More ..."
 url: "https://celebs.allwomenstalk.com/most-down-to-earth-celebrities/"
 category: "celebs"
-last_updated: "2026-06-17"
+last_updated: "2026-06-25"
 ---
 
 # 8 Most down to Earth Celebrities ...
@@ -64,16 +64,16 @@ Top Photo Credit: [data.whicdn.com](http://data.whicdn.com/images/12858833/kinop
 
 ## Related Posts
 
-- [famous people who smoke weed](https://celebs.allwomenstalk.com/celebrities-who-smoke-weed/)
-- [8 Celebrity Pictures to Enjoy Today ...](https://celebs.allwomenstalk.com/celebrity-pictures-to-enjoy-today/)
+- [is mario lopez still married](https://celebs.allwomenstalk.com/extremely-short-celebrity-marriages/)
 - [celebrity marriage proposals](https://celebs.allwomenstalk.com/inspiring-and-sweet-celebrity-marriage-proposals/)
-- [best celebrity diets](https://celebs.allwomenstalk.com/top-bizarre-celebrity-diets/)
-- [celebrity sez tapes](https://celebs.allwomenstalk.com/most-infamous-celebrity-sex-tapes/)
-- [7 Celebrities I Would like to Hang with ...](https://celebs.allwomenstalk.com/7-celebrities-i-would-like-to-hang-with/)
 - [men who look better with age](https://celebs.allwomenstalk.com/celebrity-men-that-look-better-with-age/)
 - [series with hot male leads](https://celebs.allwomenstalk.com/hottest-actors-from-tv-shows/)
+- [8 Celebrity Pictures to Enjoy Today ...](https://celebs.allwomenstalk.com/celebrity-pictures-to-enjoy-today/)
+- [famous people who smoke weed](https://celebs.allwomenstalk.com/celebrities-who-smoke-weed/)
+- [7 Celebrities I Would like to Hang with ...](https://celebs.allwomenstalk.com/7-celebrities-i-would-like-to-hang-with/)
 - [celebrities with body parts insured](https://celebs.allwomenstalk.com/top-celebrity-insured-body-parts/)
-- [is mario lopez still married](https://celebs.allwomenstalk.com/extremely-short-celebrity-marriages/)
+- [celebrity sez tapes](https://celebs.allwomenstalk.com/most-infamous-celebrity-sex-tapes/)
+- [best celebrity diets](https://celebs.allwomenstalk.com/top-bizarre-celebrity-diets/)
 - [25 Smartest Celebrities ...](https://celebs.allwomenstalk.com/25-smartest-celebrities/)
 - [7 of My Favorite Celebrities ...](https://celebs.allwomenstalk.com/7-of-my-favorite-celebrities/)
 
