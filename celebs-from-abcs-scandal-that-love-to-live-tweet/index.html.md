@@ -3,7 +3,7 @@ title: "7 Celebs from ABC's Scandal That Love to Live-Tweet ..."
 description: "Kerry Washington; Katie Lowes; Darby Stanchfield; Scott Foley; Tony Goldwyn; More ..."
 url: "https://celebs.allwomenstalk.com/celebs-from-abcs-scandal-that-love-to-live-tweet/"
 category: "celebs"
-last_updated: "2026-06-25"
+last_updated: "2026-07-02"
 ---
 
 # 7 Celebs from ABC's Scandal That Love to Live\-Tweet ...
@@ -58,14 +58,14 @@ Well, there you have it! These are just seven out of many celebs from ABC's Scan
 
 - [9 Saturday Night Live Actors We Miss ...](https://7fun.net/saturday-night-live-actors-we-miss/)
 - [hotels for celebrities](https://travel.allwomenstalk.com/hotels-owned-by-celebrities/)
-- [Like Fine Wine: Celebrities Who Get Better with Ag...](https://celebs.allwomenstalk.com/celebrities-who-look-better-with-age/)
-- [7 Crazy Celebrity Feuds You'd Have to Read about t...](https://celebs.allwomenstalk.com/crazy-celebrity-feuds-youd-have-to-read-about-to-believe/)
 - [Interview Magazine Spotlights 6 Stars on September...](https://celebs.allwomenstalk.com/interview-magazine-spotlights-stars-on-september-cover/)
+- [An Eye-Opening Look at Child Stars Who Have Mature...](https://celebs.allwomenstalk.com/child-stars-whove-matured-into-fine-young-men-and-women/)
+- [11 Big Celebrity Beefs from behind the Scenes ...](https://bilbr.com/big-celebrity-beefs-from-behind-the-scenes/)
+- [7 Crazy Celebrity Feuds You'd Have to Read about t...](https://celebs.allwomenstalk.com/crazy-celebrity-feuds-youd-have-to-read-about-to-believe/)
+- [9 Celebrities Who Had Secret Weddings ...](https://celebs.allwomenstalk.com/celebrities-who-had-secret-weddings/)
+- [Like Fine Wine: Celebrities Who Get Better with Ag...](https://celebs.allwomenstalk.com/celebrities-who-look-better-with-age/)
 - [11 Celebrities Who Have Been Turned down in Their ...](https://celebs.allwomenstalk.com/celebrities-who-have-been-turned-down-in-their-career/)
 - [nepotism models list](https://celebs.allwomenstalk.com/celebrity-kids-who-have-stunned-the-modeling-world/)
-- [An Eye-Opening Look at Child Stars Who Have Mature...](https://celebs.allwomenstalk.com/child-stars-whove-matured-into-fine-young-men-and-women/)
-- [9 Celebrities Who Had Secret Weddings ...](https://celebs.allwomenstalk.com/celebrities-who-had-secret-weddings/)
-- [11 Big Celebrity Beefs from behind the Scenes ...](https://bilbr.com/big-celebrity-beefs-from-behind-the-scenes/)
 - [6 Things Celebrity Parents Tweet about ...](https://parenting.allwomenstalk.com/things-celebrity-parents-tweet-about/)
 - [7 of My Favorite Celebrities ...](https://celebs.allwomenstalk.com/7-of-my-favorite-celebrities/)
 

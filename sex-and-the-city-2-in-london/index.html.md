@@ -3,7 +3,7 @@ title: "Who Was Best Dressed at the \"Sex and the City 2\" in London?"
 description: "Stay ahead, stay chic. Trusted guides on beauty, wellness, fashion, and everything that defines today's empowered woman."
 url: "https://celebs.allwomenstalk.com/sex-and-the-city-2-in-london/"
 category: "celebs"
-last_updated: "2026-06-25"
+last_updated: "2026-07-02"
 ---
 
 # Who Was Best Dressed at the "Sex and the City 2" in London?
@@ -70,15 +70,15 @@ I can't wait to watch the ladies in action! Has anyone seen the movie yet??
 ## Related Posts
 
 - [who wore it better celebrities](https://celebs.allwomenstalk.com/same-celebrity-outfits-who-wore-it-better/)
-- [71 Photos of AmfAR Party ...](https://celebs.allwomenstalk.com/amfar-party/)
-- [inception photos](https://celebs.allwomenstalk.com/inception-premiere/)
-- [celebrities who turned down knighthood](https://celebs.allwomenstalk.com/7-people-who-have-refused-a-major-award/)
-- [A Wide Ranging Soul Train Awards ...](https://celebs.allwomenstalk.com/a-wide-ranging-soul-train-awards/)
-- [2010 Hollywood Style Awards ...](https://celebs.allwomenstalk.com/hollywood-style-awards/)
-- [96 Photos of 2010 MTV Video Music Awards - Arrival...](https://celebs.allwomenstalk.com/mtv-video-music-awards-arrivals/)
 - [The Best Dressed Women of 2010 ...](https://celebs.allwomenstalk.com/the-best-dressed-women-of/)
-- [is charlie st cloud based on a true story](https://celebs.allwomenstalk.com/charlie-st-cloud-world-premiere/)
+- [2010 Hollywood Style Awards ...](https://celebs.allwomenstalk.com/hollywood-style-awards/)
 - [vail bloom feet](https://celebs.allwomenstalk.com/easy-a-premiere/)
+- [A Wide Ranging Soul Train Awards ...](https://celebs.allwomenstalk.com/a-wide-ranging-soul-train-awards/)
+- [96 Photos of 2010 MTV Video Music Awards - Arrival...](https://celebs.allwomenstalk.com/mtv-video-music-awards-arrivals/)
+- [is charlie st cloud based on a true story](https://celebs.allwomenstalk.com/charlie-st-cloud-world-premiere/)
+- [celebrities who turned down knighthood](https://celebs.allwomenstalk.com/7-people-who-have-refused-a-major-award/)
+- [inception photos](https://celebs.allwomenstalk.com/inception-premiere/)
+- [71 Photos of AmfAR Party ...](https://celebs.allwomenstalk.com/amfar-party/)
 - [Pick Best Dressed at the "Kick-Ass" Premiere in L....](https://celebs.allwomenstalk.com/kick-ass-premiere/)
 - [Who Was the Best Dressed at the "Clash of the Tita...](https://celebs.allwomenstalk.com/clash-of-the-titans-premieres-in-london/)
 

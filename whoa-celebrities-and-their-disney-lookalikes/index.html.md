@@ -3,7 +3,7 @@ title: "Whoa! 12 Celebrities and Their Disney Lookalikes ..."
 description: "Elizabeth Olsen as Anna; Amanda Seyfried as Rapunzel; Shay Mitchell as Pocahontas; Elle Fanning as Elsa; Rachelle Lefevre as Merida; More ..."
 url: "https://celebs.allwomenstalk.com/whoa-celebrities-and-their-disney-lookalikes/"
 category: "celebs"
-last_updated: "2026-06-25"
+last_updated: "2026-07-02"
 ---
 
 # Whoa! 12 Celebrities and Their Disney Lookalikes ...
@@ -86,16 +86,16 @@ Are there any other celebrities you can think of that look just like Disney char
 
 ## Related Posts
 
+- [handsome david beckham](https://celebs.allwomenstalk.com/of-the-hunkiest-celebrity-dads-around/)
 - [cute pairings](https://celebs.allwomenstalk.com/adorable-pairings-of-celebrity-best-friends/)
-- [famous actors with parkinson's](https://celebs.allwomenstalk.com/celebrities-with-parkinsons-disease/)
+- [dennis rodman belly button](https://celebs.allwomenstalk.com/celebrities-you-may-have-forgotten-had-facial-piercings/)
+- [celebrities on bereal](https://celebs.allwomenstalk.com/celebrities-and-their-honest-opinions-on-motherhood/)
+- [flynn rider irl](https://celebs.allwomenstalk.com/celebs-you-probably-forgot-voiced-disney-characters/)
+- [strange facts about celebrities](https://celebs.allwomenstalk.com/little-known-facts-about-your-favorite-celebrities/)
 - [wedding dress magazines free](https://wedding.allwomenstalk.com/gorgeous-celebrities-who-have-covered-wedding-magazines/)
 - [pregnant celebrities on red carpet](https://fashion.allwomenstalk.com/celebrities-that-made-red-carpet-baby-bumps-look-amazing/)
-- [strange facts about celebrities](https://celebs.allwomenstalk.com/little-known-facts-about-your-favorite-celebrities/)
-- [dennis rodman belly button](https://celebs.allwomenstalk.com/celebrities-you-may-have-forgotten-had-facial-piercings/)
-- [flynn rider irl](https://celebs.allwomenstalk.com/celebs-you-probably-forgot-voiced-disney-characters/)
+- [famous actors with parkinson's](https://celebs.allwomenstalk.com/celebrities-with-parkinsons-disease/)
 - [ellen pompeo and patrick dempsey bts](https://celebs.allwomenstalk.com/tgit-shondaland-celebrities-you-should-be-following-on-twitter/)
-- [celebrities on bereal](https://celebs.allwomenstalk.com/celebrities-and-their-honest-opinions-on-motherhood/)
-- [handsome david beckham](https://celebs.allwomenstalk.com/of-the-hunkiest-celebrity-dads-around/)
 - [12 Hottest Actors from TV Shows ...](https://celebs.allwomenstalk.com/hottest-actors-from-tv-shows/)
 - [8 Iconic Red Carpet Celebrity Looks ...](https://celebs.allwomenstalk.com/iconic-red-carpet-celebrity-looks/)
 

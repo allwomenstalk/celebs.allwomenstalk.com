@@ -3,7 +3,7 @@ title: "7 Sweetly Sexy Hollywood Beta Males ..."
 description: "Michael Cera; Jason Segel; Neil Patrick Harris; Seth Rogan; John Cusack; More ..."
 url: "https://celebs.allwomenstalk.com/sweetly-sexy-hollywood-beta-males/"
 category: "celebs"
-last_updated: "2026-06-25"
+last_updated: "2026-07-02"
 ---
 
 # 7 Sweetly Sexy Hollywood Beta Males ...
@@ -58,16 +58,16 @@ Top Image Source: [weheartit.com](https://weheartit.com/entry/17239017)
 
 ## Related Posts
 
-- [weather girl wardrobe malfunctions](https://celebs.allwomenstalk.com/25-celebrity-wardrobe-malfunctions/)
-- [olivia wilde bangs](https://celebs.allwomenstalk.com/celebrities-proving-that-bangs-are-back/)
-- [4 Celebs That Shot to Fame after Cosmetic Surgery....](https://celebs.allwomenstalk.com/celebs-that-shot-to-fame-after-cosmetic-surgery/)
-- [christopher walken angelina jolie](https://celebs.allwomenstalk.com/surprising-music-video-stars/)
-- [inspiring celebrities](https://celebs.allwomenstalk.com/inspiring-celebrities-of/)
-- [worst table manners](https://celebs.allwomenstalk.com/celebrities-with-awful-table-manners/)
-- [lucille ball debra messing](https://celebs.allwomenstalk.com/celebs-that-rock-red-hair/)
-- [katharine hepburn height weight](https://celebs.allwomenstalk.com/enduring-celebrity-myths/)
 - [matt damon buzz cut](https://celebs.allwomenstalk.com/celebrity-haircuts-this-week/)
+- [katharine hepburn height weight](https://celebs.allwomenstalk.com/enduring-celebrity-myths/)
 - [beautiful actress under 25](https://celebs.allwomenstalk.com/25-hottest-female-celebrities-under-25/)
+- [lucille ball debra messing](https://celebs.allwomenstalk.com/celebs-that-rock-red-hair/)
+- [worst table manners](https://celebs.allwomenstalk.com/celebrities-with-awful-table-manners/)
+- [christopher walken angelina jolie](https://celebs.allwomenstalk.com/surprising-music-video-stars/)
+- [olivia wilde bangs](https://celebs.allwomenstalk.com/celebrities-proving-that-bangs-are-back/)
+- [inspiring celebrities](https://celebs.allwomenstalk.com/inspiring-celebrities-of/)
+- [weather girl wardrobe malfunctions](https://celebs.allwomenstalk.com/25-celebrity-wardrobe-malfunctions/)
+- [4 Celebs That Shot to Fame after Cosmetic Surgery....](https://celebs.allwomenstalk.com/celebs-that-shot-to-fame-after-cosmetic-surgery/)
 - [5 Hot Vampire Guys from the Twilight Series ...](https://twilight.allwomenstalk.com/5-hot-vampire-guys-from-the-twilight-series/)
 - [5 Sexy Vampires ...](https://twilight.allwomenstalk.com/5-sexy-vampires/)
 

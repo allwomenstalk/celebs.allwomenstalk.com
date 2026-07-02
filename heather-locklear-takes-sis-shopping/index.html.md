@@ -3,7 +3,7 @@ title: "6 Photos of Heather Locklear Takes Sis Shopping ..."
 description: "Stay ahead, stay chic. Trusted guides on beauty, wellness, fashion, and everything that defines today's empowered woman."
 url: "https://celebs.allwomenstalk.com/heather-locklear-takes-sis-shopping/"
 category: "celebs"
-last_updated: "2026-06-25"
+last_updated: "2026-07-02"
 ---
 
 # 6 Photos of Heather Locklear Takes Sis Shopping ...
@@ -25,15 +25,15 @@ City: [Vancouver](https://celebs.allwomenstalk.com/tag/vancouver/)
 
 ## Related Posts
 
-- [katy naughty](https://celebs.allwomenstalk.com/katy-perry-to-get-naughty-with-ted-mosby/)
-- [Angelina Reveals Her Latest Talent…](https://celebs.allwomenstalk.com/angelina-reveals-her-latest-talent/)
 - [kanye and kim music video](https://celebs.allwomenstalk.com/kim-kardashian-makes-a-video-with-kanye-west/)
-- [ed o'neill photo fan](https://celebs.allwomenstalk.com/ed-oneill-is-janes-biggest-fan/)
+- [katy perry snow white](https://celebs.allwomenstalk.com/katy-perry-channels-the-roaring-20s-for-ghd/)
 - [Justin the New Man in Olivia’s Life…](https://celebs.allwomenstalk.com/justin-the-new-man-in-olivias-life/)
 - [justin holding selena's hand](https://celebs.allwomenstalk.com/selena-justin-hold-hands-almost/)
 - [4 Photos of Lilly Allen's Growing Belly ...](https://celebs.allwomenstalk.com/lilly-allens-growing-belly/)
-- [katy perry snow white](https://celebs.allwomenstalk.com/katy-perry-channels-the-roaring-20s-for-ghd/)
+- [katy naughty](https://celebs.allwomenstalk.com/katy-perry-to-get-naughty-with-ted-mosby/)
+- [ed o'neill photo fan](https://celebs.allwomenstalk.com/ed-oneill-is-janes-biggest-fan/)
 - [kristen stewart](https://celebs.allwomenstalk.com/kristen-stewart-gets-edgy-for-vogue-italia/)
+- [Angelina Reveals Her Latest Talent…](https://celebs.allwomenstalk.com/angelina-reveals-her-latest-talent/)
 - [christina aguilera kids](https://celebs.allwomenstalk.com/christina-takes-max-shopping/)
 - [3 Photos of Ripa Works out ...](https://celebs.allwomenstalk.com/ripa-works-out/)
 - [8 Photos of Miley Makes an Appearance ...](https://celebs.allwomenstalk.com/miley-makes-an-appearance/)

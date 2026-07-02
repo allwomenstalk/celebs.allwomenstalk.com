@@ -3,7 +3,7 @@ title: "7 Celebrities Who Smoke Weed ..."
 description: "Lady Gaga; George Clooney; Brad Pitt; Jennifer Aniston; Harrison Ford; More ..."
 url: "https://celebs.allwomenstalk.com/celebrities-who-smoke-weed/"
 category: "celebs"
-last_updated: "2026-06-25"
+last_updated: "2026-07-02"
 ---
 
 # 7 Celebrities Who Smoke Weed ...
@@ -62,16 +62,16 @@ Top Photo Credit: _SerieAdict@_
 
 ## Related Posts
 
-- [celebrities with body parts insured](https://celebs.allwomenstalk.com/top-celebrity-insured-body-parts/)
-- [celebritytrends](https://celebs.allwomenstalk.com/awfully-outrageous-celebrity-trends-i-hate/)
-- [sexy men hollywood](https://celebs.allwomenstalk.com/hottest-men-in-hollywood/)
-- [alpha male example](https://celebs.allwomenstalk.com/adorable-and-incredibly-gorgeous-alpha-males-in-hollywood/)
-- [is mario lopez still married](https://celebs.allwomenstalk.com/extremely-short-celebrity-marriages/)
-- [most scandalous celebrities](https://celebs.allwomenstalk.com/most-scandalous-celebrity-sex-tapes/)
 - [celebrity sez tapes](https://celebs.allwomenstalk.com/most-infamous-celebrity-sex-tapes/)
-- [25 Most Unique Celebrity Baby Names ...](https://celebs.allwomenstalk.com/25-most-unique-celebrity-baby-names/)
-- [series with hot male leads](https://celebs.allwomenstalk.com/hottest-actors-from-tv-shows/)
 - [iq actors](https://celebs.allwomenstalk.com/25-smartest-celebrities/)
+- [series with hot male leads](https://celebs.allwomenstalk.com/hottest-actors-from-tv-shows/)
+- [most scandalous celebrities](https://celebs.allwomenstalk.com/most-scandalous-celebrity-sex-tapes/)
+- [is mario lopez still married](https://celebs.allwomenstalk.com/extremely-short-celebrity-marriages/)
+- [25 Most Unique Celebrity Baby Names ...](https://celebs.allwomenstalk.com/25-most-unique-celebrity-baby-names/)
+- [celebritytrends](https://celebs.allwomenstalk.com/awfully-outrageous-celebrity-trends-i-hate/)
+- [alpha male example](https://celebs.allwomenstalk.com/adorable-and-incredibly-gorgeous-alpha-males-in-hollywood/)
+- [celebrities with body parts insured](https://celebs.allwomenstalk.com/top-celebrity-insured-body-parts/)
+- [sexy men hollywood](https://celebs.allwomenstalk.com/hottest-men-in-hollywood/)
 - [7 of My Favorite Celebrities ...](https://celebs.allwomenstalk.com/7-of-my-favorite-celebrities/)
 - [7 Women Celebrities Who Smoke ...](https://celebs.allwomenstalk.com/women-celebrities-who-smoke/)
 

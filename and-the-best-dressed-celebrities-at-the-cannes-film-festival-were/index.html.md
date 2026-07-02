@@ -3,7 +3,7 @@ title: "And the Best Dressed Celebrities at the Cannes Film Festival 2015 Were .
 description: "A Different Kind of Silhouette - Elizabeth Debicki in Giambattista Valli Couture; Oh-so-Glamorous - Emily Blunt in Stella McCartney; The Right Kind of Dramatic - Araya a. Hargate in Ashi Studio Couture; Lady in Black - Cate Blanchett in Armani Privé; Red Hot- Aishwarya Rai in Oscar De La Renta; More ..."
 url: "https://celebs.allwomenstalk.com/and-the-best-dressed-celebrities-at-the-cannes-film-festival-were/"
 category: "celebs"
-last_updated: "2026-06-25"
+last_updated: "2026-07-02"
 ---
 
 # And the Best Dressed Celebrities at the Cannes Film Festival 2015 Were ...
@@ -114,15 +114,15 @@ Who was your favorite of the bunch?
 
 ## Related Posts
 
-- [couple fashion editorial](https://celebs.allwomenstalk.com/are-these-the-most-stylish-couples-of-all-time/)
-- [blair red dress paris](https://movies.allwomenstalk.com/the-screens-best-dressed-students/)
-- [kroes rocks](https://beauty.allwomenstalk.com/these-were-the-best-hair-and-makeup-looks-from-cannes-film-festival/)
-- [worlds highest paid models](https://celebs.allwomenstalk.com/who-are-the-worlds-highest-paid-models-in/)
-- [pulitzer prize winners 2017](https://books.allwomenstalk.com/check-out-the-awesome-pulitzer-prize-winners-of/)
 - [best couples of hollywood](https://celebs.allwomenstalk.com/the-best-dressed-hollywood-couples/)
-- [jimmy fallon ellen lip sync](https://celebs.allwomenstalk.com/ellen-degeneres-vs-jimmy-fallon-who-won-their-lip-sync-battle/)
+- [kroes rocks](https://beauty.allwomenstalk.com/these-were-the-best-hair-and-makeup-looks-from-cannes-film-festival/)
 - [drinking game with boyfriend](https://lifestyle.allwomenstalk.com/play-this-drinking-game-during-the-oscars/)
 - [teen choice 2015](https://celebs.allwomenstalk.com/the-red-carpet-at-the-teen-choice-awards/)
+- [worlds highest paid models](https://celebs.allwomenstalk.com/who-are-the-worlds-highest-paid-models-in/)
+- [blair red dress paris](https://movies.allwomenstalk.com/the-screens-best-dressed-students/)
+- [jimmy fallon ellen lip sync](https://celebs.allwomenstalk.com/ellen-degeneres-vs-jimmy-fallon-who-won-their-lip-sync-battle/)
+- [pulitzer prize winners 2017](https://books.allwomenstalk.com/check-out-the-awesome-pulitzer-prize-winners-of/)
+- [couple fashion editorial](https://celebs.allwomenstalk.com/are-these-the-most-stylish-couples-of-all-time/)
 - [pulitzer prize 2016](https://books.allwomenstalk.com/who-won-pulitzer-prizes-in/)
 - [The Best Dressed Women of 2010 ...](https://celebs.allwomenstalk.com/the-best-dressed-women-of/)
 - [5 People Who Made It on Vanity Fair's Best Dressed...](https://celebs.allwomenstalk.com/people-who-made-it-on-vanity-fairs-best-dressed-list/)
