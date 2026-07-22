@@ -3,7 +3,7 @@ title: "7 Inspiring Celebrities of 2011 ..."
 description: "Dr. Martin Luther King, Jr; Hannah and Olivia from “Biggest Loser”; Jennifer Aniston; Lady Gaga; Oprah Winfrey; More ..."
 url: "https://celebs.allwomenstalk.com/inspiring-celebrities-of/"
 category: "celebs"
-last_updated: "2026-07-02"
+last_updated: "2026-07-22"
 ---
 
 # 7 Inspiring Celebrities of 2011 ...
@@ -44,16 +44,16 @@ Top image source: [ondosdepantalla](https://goo.gl/9OFy8m)
 
 ## Related Posts
 
-- [4 Celebs That Shot to Fame after Cosmetic Surgery....](https://celebs.allwomenstalk.com/celebs-that-shot-to-fame-after-cosmetic-surgery/)
 - [model off duty look](https://celebs.allwomenstalk.com/celebrities-with-excellent-off-duty-style/)
-- [smoking cigarette quotes](https://celebs.allwomenstalk.com/celebrity-smoking-quotes/)
-- [olivia wilde bangs](https://celebs.allwomenstalk.com/celebrities-proving-that-bangs-are-back/)
-- [beautiful actress under 25](https://celebs.allwomenstalk.com/25-hottest-female-celebrities-under-25/)
 - [7 Awesomely Impressive Celebrity Entrepreneurs ...](https://celebs.allwomenstalk.com/awesomely-impressive-celebrity-entrepreneurs/)
-- [weather girl wardrobe malfunctions](https://celebs.allwomenstalk.com/25-celebrity-wardrobe-malfunctions/)
-- [jenna fischer coconut water](https://celebs.allwomenstalk.com/most-recent-celebrity-moms/)
-- [christopher walken angelina jolie](https://celebs.allwomenstalk.com/surprising-music-video-stars/)
 - [who are the nicest celebrity chefs](https://cooking.allwomenstalk.com/7-best-celebrity-chefs/)
+- [christopher walken angelina jolie](https://celebs.allwomenstalk.com/surprising-music-video-stars/)
+- [weather girl wardrobe malfunctions](https://celebs.allwomenstalk.com/25-celebrity-wardrobe-malfunctions/)
+- [beautiful actress under 25](https://celebs.allwomenstalk.com/25-hottest-female-celebrities-under-25/)
+- [jenna fischer coconut water](https://celebs.allwomenstalk.com/most-recent-celebrity-moms/)
+- [olivia wilde bangs](https://celebs.allwomenstalk.com/celebrities-proving-that-bangs-are-back/)
+- [4 Celebs That Shot to Fame after Cosmetic Surgery....](https://celebs.allwomenstalk.com/celebs-that-shot-to-fame-after-cosmetic-surgery/)
+- [smoking cigarette quotes](https://celebs.allwomenstalk.com/celebrity-smoking-quotes/)
 - [7 Celebrity Weddings to Watch for in 2011 ...](https://celebs.allwomenstalk.com/celebrity-weddings-to-watch-for-in/)
 - [7 of My Favorite Celebrities ...](https://celebs.allwomenstalk.com/7-of-my-favorite-celebrities/)
 

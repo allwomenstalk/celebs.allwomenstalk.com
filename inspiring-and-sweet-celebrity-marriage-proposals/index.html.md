@@ -3,7 +3,7 @@ title: "8 Inspiring and Sweet Celebrity Marriage Proposals ..."
 description: "Tom Cruise's Proposal; Russell Brand's Proposal; Prince William's Proposal; Nick Cannon's Proposal; Seal's Proposal; More ..."
 url: "https://celebs.allwomenstalk.com/inspiring-and-sweet-celebrity-marriage-proposals/"
 category: "celebs"
-last_updated: "2026-07-02"
+last_updated: "2026-07-22"
 ---
 
 # 8 Inspiring and Sweet Celebrity Marriage Proposals ...
@@ -48,16 +48,16 @@ Top Image Source: [weheartit.com](https://weheartit.com/entry/8785000)
 
 ## Related Posts
 
-- [celebrity sez tapes](https://celebs.allwomenstalk.com/most-infamous-celebrity-sex-tapes/)
-- [alpha male example](https://celebs.allwomenstalk.com/adorable-and-incredibly-gorgeous-alpha-males-in-hollywood/)
-- [men who look better with age](https://celebs.allwomenstalk.com/celebrity-men-that-look-better-with-age/)
-- [famous people who smoke weed](https://celebs.allwomenstalk.com/celebrities-who-smoke-weed/)
 - [is mario lopez still married](https://celebs.allwomenstalk.com/extremely-short-celebrity-marriages/)
-- [best celebrity diets](https://celebs.allwomenstalk.com/top-bizarre-celebrity-diets/)
-- [celebritytrends](https://celebs.allwomenstalk.com/awfully-outrageous-celebrity-trends-i-hate/)
 - [7 Celebrities I Would like to Hang with ...](https://celebs.allwomenstalk.com/7-celebrities-i-would-like-to-hang-with/)
+- [men who look better with age](https://celebs.allwomenstalk.com/celebrity-men-that-look-better-with-age/)
+- [celebrity sez tapes](https://celebs.allwomenstalk.com/most-infamous-celebrity-sex-tapes/)
+- [best celebrity diets](https://celebs.allwomenstalk.com/top-bizarre-celebrity-diets/)
 - [celebrities with body parts insured](https://celebs.allwomenstalk.com/top-celebrity-insured-body-parts/)
+- [famous people who smoke weed](https://celebs.allwomenstalk.com/celebrities-who-smoke-weed/)
 - [series with hot male leads](https://celebs.allwomenstalk.com/hottest-actors-from-tv-shows/)
+- [alpha male example](https://celebs.allwomenstalk.com/adorable-and-incredibly-gorgeous-alpha-males-in-hollywood/)
+- [celebritytrends](https://celebs.allwomenstalk.com/awfully-outrageous-celebrity-trends-i-hate/)
 - [8 Most Adorable Celebrity Proposal Stories ...](https://wedding.allwomenstalk.com/8-most-adorable-celebrity-proposal-stories/)
 - [7 Biggest Celebrity Weddings ...](https://wedding.allwomenstalk.com/biggest-celebrity-weddings/)
 

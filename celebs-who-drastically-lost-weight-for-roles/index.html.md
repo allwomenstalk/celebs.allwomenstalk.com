@@ -3,7 +3,7 @@ title: "7 Celebs Who Drastically Lost Weight for Roles ..."
 description: "Natalie Portman; Renee Zellweger; Tom Hanks; Beyonce; Christian Bale; More ..."
 url: "https://celebs.allwomenstalk.com/celebs-who-drastically-lost-weight-for-roles/"
 category: "celebs"
-last_updated: "2026-07-02"
+last_updated: "2026-07-22"
 ---
 
 # 7 Celebs Who Drastically Lost Weight for Roles ...
@@ -58,16 +58,16 @@ Top Image Source: [beautyisdiverse.com](http://ww25.beautyisdiverse.com/2010/11/
 
 ## Related Posts
 
-- [rihanna no make up](https://celebs.allwomenstalk.com/no-makeup-celebrities-that-look-great/)
 - [weddings while pregnant](https://wedding.allwomenstalk.com/gorgeous-pregnant-celebrity-brides/)
 - [celebs with rosacea](https://skincare.allwomenstalk.com/hot-celebs-with-skincare-issues/)
-- [dilf celebs](https://celebs.allwomenstalk.com/gorgeous-celebrities-both-men-and-women-drool-over/)
-- [edward cullen sixpack](https://celebs.allwomenstalk.com/top-hot-actors-who-should-play-christian-grey/)
+- [rihanna no make up](https://celebs.allwomenstalk.com/no-makeup-celebrities-that-look-great/)
 - [teenage celebs](https://celebs.allwomenstalk.com/most-stylish-teen-celebrities-to-watch/)
-- [stephenie meyer twilight cameo](https://movies.allwomenstalk.com/writers-who-made-a-cameo-appearance/)
+- [dilf celebs](https://celebs.allwomenstalk.com/gorgeous-celebrities-both-men-and-women-drool-over/)
 - [is natalie portman smart](https://celebs.allwomenstalk.com/super-smart-celebrities/)
+- [edward cullen sixpack](https://celebs.allwomenstalk.com/top-hot-actors-who-should-play-christian-grey/)
 - [best front men](https://celebs.allwomenstalk.com/hottest-band-front-men/)
 - [hot hollywood news](https://celebs.allwomenstalk.com/hot-hollywood-stars-with-troubled-pasts/)
+- [stephenie meyer twilight cameo](https://movies.allwomenstalk.com/writers-who-made-a-cameo-appearance/)
 - [7 Most Inspiring Celebrity Weight Loss Stories ...](https://weightloss.allwomenstalk.com/7-most-inspiring-celebrity-weight-loss-stories/)
 - [10 Biggest Celebrity Weight Losers ...](https://allwomenstalk.com/10-biggest-celebrity-weight-losers/)
 

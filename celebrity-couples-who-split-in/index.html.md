@@ -3,7 +3,7 @@ title: "9 Celebrity Couples Who Split in 2014 ..."
 description: "Jordin Sparks and Jason Derulo; Amber Rose and Wiz Kalifa; Britney Spears and David Lucado; Sarah Hyland and Matt Prokop; Lana Del Rey and Barrie-James O'Neill; More ..."
 url: "https://celebs.allwomenstalk.com/celebrity-couples-who-split-in/"
 category: "celebs"
-last_updated: "2026-07-02"
+last_updated: "2026-07-22"
 ---
 
 # 9 Celebrity Couples Who Split in 2014 ...
@@ -66,16 +66,16 @@ Well, there you have it. These nine couples decided it was best to go their sepa
 
 ## Related Posts
 
-- [florence welch natural hair color](https://hair.allwomenstalk.com/these-fiery-celeb-redheads-will-finally-convince-you-to-take-the-plunge/)
-- [celebrity classes](https://celebs.allwomenstalk.com/celebrity-college-classes-youll-want-to-enroll-in/)
-- [celebrities with cat](https://celebs.allwomenstalk.com/celebrities-who-are-major-cat-ladies/)
-- [what would you do if you meet your favourite celeb...](https://celebs.allwomenstalk.com/tricks-that-might-help-you-meet-your-favorite-celebrity/)
-- [rumer willis wardrobe](https://celebs.allwomenstalk.com/yikes-celebs-their-wardrobe-malfunctions/)
 - [la maximalist eyeshadow primped previous](https://celebs.allwomenstalk.com/whoa-who-knew-these-celebs-are-the-same-age/)
-- [most freckles in the world](https://celebs.allwomenstalk.com/celebrities-with-freckles-thatll-make-you-embrace-your-own/)
-- [shakira guinness world records](https://celebs.allwomenstalk.com/celebrities-with-guinness-world-records/)
+- [florence welch natural hair color](https://hair.allwomenstalk.com/these-fiery-celeb-redheads-will-finally-convince-you-to-take-the-plunge/)
+- [rumer willis wardrobe](https://celebs.allwomenstalk.com/yikes-celebs-their-wardrobe-malfunctions/)
 - [shades of hunks](https://celebs.allwomenstalk.com/happy-movember-heres-bearded-hunks-to-lust-over/)
+- [celebrities with cat](https://celebs.allwomenstalk.com/celebrities-who-are-major-cat-ladies/)
+- [most freckles in the world](https://celebs.allwomenstalk.com/celebrities-with-freckles-thatll-make-you-embrace-your-own/)
+- [what would you do if you meet your favourite celeb...](https://celebs.allwomenstalk.com/tricks-that-might-help-you-meet-your-favorite-celebrity/)
 - [ian somerhalder niece](https://celebs.allwomenstalk.com/celebrity-posts-you-mightve-missed-this-weekend-3/)
+- [celebrity classes](https://celebs.allwomenstalk.com/celebrity-college-classes-youll-want-to-enroll-in/)
+- [shakira guinness world records](https://celebs.allwomenstalk.com/celebrities-with-guinness-world-records/)
 - [7 Celebrity Weddings to Watch for in 2011 ...](https://celebs.allwomenstalk.com/celebrity-weddings-to-watch-for-in/)
 - [8 Famous Hollywood Divorces ...](https://celebs.allwomenstalk.com/famous-hollywood-divorces/)
 

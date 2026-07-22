@@ -3,7 +3,7 @@ title: "7 Most Infamous Celebrity Sex Tapes ..."
 description: "Pamela Anderson and Tommy Lee; Pamela Anderson and Bret Michaels; Paris Hilton and Rick Salomon; Kim Kardashian and Ray J; Severina Vuckovic; More ..."
 url: "https://celebs.allwomenstalk.com/most-infamous-celebrity-sex-tapes/"
 category: "celebs"
-last_updated: "2026-07-02"
+last_updated: "2026-07-22"
 ---
 
 # 7 Most Infamous Celebrity Sex Tapes ...
@@ -64,16 +64,16 @@ Top image source: [4.bp.blogspot.com](http://4.bp.blogspot.com/_HnXrVJR77Xw/TBD4
 
 ## Related Posts
 
-- [alpha male example](https://celebs.allwomenstalk.com/adorable-and-incredibly-gorgeous-alpha-males-in-hollywood/)
-- [sexy men hollywood](https://celebs.allwomenstalk.com/hottest-men-in-hollywood/)
-- [iq actors](https://celebs.allwomenstalk.com/25-smartest-celebrities/)
-- [actress like sandra bullock](https://celebs.allwomenstalk.com/and-fabulous-7-female-celebrities-that-look-better-than-ever/)
-- [ray kroc's wives](https://celebs.allwomenstalk.com/celebrities-with-addictions/)
 - [celebritytrends](https://celebs.allwomenstalk.com/awfully-outrageous-celebrity-trends-i-hate/)
-- [most scandalous celebrities](https://celebs.allwomenstalk.com/most-scandalous-celebrity-sex-tapes/)
-- [highest earning celebrities](https://celebs.allwomenstalk.com/highest-earning-celebrities-of/)
-- [8 Celebrities Who Have Aged Beautifully ...](https://celebs.allwomenstalk.com/celebrities-who-have-aged-beautifully/)
+- [alpha male example](https://celebs.allwomenstalk.com/adorable-and-incredibly-gorgeous-alpha-males-in-hollywood/)
+- [iq actors](https://celebs.allwomenstalk.com/25-smartest-celebrities/)
 - [25 Most Unique Celebrity Baby Names ...](https://celebs.allwomenstalk.com/25-most-unique-celebrity-baby-names/)
+- [highest earning celebrities](https://celebs.allwomenstalk.com/highest-earning-celebrities-of/)
+- [ray kroc's wives](https://celebs.allwomenstalk.com/celebrities-with-addictions/)
+- [sexy men hollywood](https://celebs.allwomenstalk.com/hottest-men-in-hollywood/)
+- [most scandalous celebrities](https://celebs.allwomenstalk.com/most-scandalous-celebrity-sex-tapes/)
+- [8 Celebrities Who Have Aged Beautifully ...](https://celebs.allwomenstalk.com/celebrities-who-have-aged-beautifully/)
+- [actress like sandra bullock](https://celebs.allwomenstalk.com/and-fabulous-7-female-celebrities-that-look-better-than-ever/)
 - [7 Biggest Celebrity Weddings ...](https://wedding.allwomenstalk.com/biggest-celebrity-weddings/)
 - [7 Hottest Nude Movie Scenes ...](https://movies.allwomenstalk.com/hottest-nude-movie-scenes/)
 

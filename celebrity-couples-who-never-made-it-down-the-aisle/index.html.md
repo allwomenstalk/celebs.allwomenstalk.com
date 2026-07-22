@@ -3,7 +3,7 @@ title: "7 Celebrity Couples Who Never Made It down the Aisle ..."
 description: "Brad Pitt & Gwyneth Paltrow; Jennifer Lopez & Ben Affleck...; Britney Spears & Jason Trawick,; Johnny Depp & Vanessa Paradis; Sheryl Crow and Lance Armstrong...; More ..."
 url: "https://celebs.allwomenstalk.com/celebrity-couples-who-never-made-it-down-the-aisle/"
 category: "celebs"
-last_updated: "2026-07-02"
+last_updated: "2026-07-22"
 ---
 
 # 7 Celebrity Couples Who Never Made It down the Aisle ...
@@ -56,16 +56,16 @@ So, did you know about any of these celebrity couples who never made it down the
 
 ## Related Posts
 
-- [amandla stenberg as a kid](https://movies.allwomenstalk.com/up-and-coming-actresses-to-look-out-for/)
-- [boys singer](https://celebs.allwomenstalk.com/hottest-male-singers/)
-- [true blood bloopers](https://celebs.allwomenstalk.com/celebrity-social-media-bloopers/)
-- [celebrity clothes for less](https://celebs.allwomenstalk.com/celebrity-looks-for-less-sites-to-check-out/)
-- [adan canto vampire diaries](https://celebs.allwomenstalk.com/hunky-new-actors-were-beginning-to-see-more-of/)
-- [what are the hemsworth brothers names](https://celebs.allwomenstalk.com/hottest-celebrity-siblings/)
-- [celebrities that give back](https://celebs.allwomenstalk.com/celebrities-who-give-back/)
-- [famous celebrities in europe](https://celebs.allwomenstalk.com/hottest-european-actors/)
 - [site:fashion.allwomenstalk.com](https://fashion.allwomenstalk.com/unlikely-celebrity-style-icons/)
+- [boys singer](https://celebs.allwomenstalk.com/hottest-male-singers/)
+- [famous celebrities in europe](https://celebs.allwomenstalk.com/hottest-european-actors/)
+- [what are the hemsworth brothers names](https://celebs.allwomenstalk.com/hottest-celebrity-siblings/)
 - [famous tv parents](https://celebs.allwomenstalk.com/celebrities-who-are-only-famous-because-of-their-parents/)
+- [amandla stenberg as a kid](https://movies.allwomenstalk.com/up-and-coming-actresses-to-look-out-for/)
+- [adan canto vampire diaries](https://celebs.allwomenstalk.com/hunky-new-actors-were-beginning-to-see-more-of/)
+- [celebrities that give back](https://celebs.allwomenstalk.com/celebrities-who-give-back/)
+- [celebrity clothes for less](https://celebs.allwomenstalk.com/celebrity-looks-for-less-sites-to-check-out/)
+- [true blood bloopers](https://celebs.allwomenstalk.com/celebrity-social-media-bloopers/)
 - [7 Biggest Celebrity Weddings ...](https://wedding.allwomenstalk.com/biggest-celebrity-weddings/)
 - [7 Celebrity Weddings I Wish I'd Been Invited Too ....](https://allwomenstalk.com/7-celebrity-weddings-i-wish-id-been-invited-too/)
 

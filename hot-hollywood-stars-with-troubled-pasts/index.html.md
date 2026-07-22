@@ -3,7 +3,7 @@ title: "8 Hot Hollywood Stars with Troubled Pasts ..."
 description: "Drew Barrymore; Tyler Perry; Charlize Theron; Britney Spears; Johnny Depp; More ..."
 url: "https://celebs.allwomenstalk.com/hot-hollywood-stars-with-troubled-pasts/"
 category: "celebs"
-last_updated: "2026-07-02"
+last_updated: "2026-07-22"
 ---
 
 # 8 Hot Hollywood Stars with Troubled Pasts ...
@@ -64,16 +64,16 @@ Top Image Source: [weheartit.com](https://weheartit.com/entry/21165120)
 
 ## Related Posts
 
+- [dilf celebs](https://celebs.allwomenstalk.com/gorgeous-celebrities-both-men-and-women-drool-over/)
+- [sexiest comedian](https://celebs.allwomenstalk.com/hottest-comedians/)
+- [stephenie meyer twilight cameo](https://movies.allwomenstalk.com/writers-who-made-a-cameo-appearance/)
+- [celebrity girl crush list](https://celebs.allwomenstalk.com/fabulous-celebrities-its-okay-to-have-a-girl-crush-on/)
+- [celebs with rosacea](https://skincare.allwomenstalk.com/hot-celebs-with-skincare-issues/)
 - [celebrities in trouble with the law](https://celebs.allwomenstalk.com/celebrities-who-have-been-in-trouble-with-the-law/)
 - [best front men](https://celebs.allwomenstalk.com/hottest-band-front-men/)
-- [dilf celebs](https://celebs.allwomenstalk.com/gorgeous-celebrities-both-men-and-women-drool-over/)
 - [edward cullen sixpack](https://celebs.allwomenstalk.com/top-hot-actors-who-should-play-christian-grey/)
-- [glitter bodysuits](https://celebs.allwomenstalk.com/best-sparkly-bodysuits-on-celebrities/)
-- [sexiest comedian](https://celebs.allwomenstalk.com/hottest-comedians/)
 - [is natalie portman smart](https://celebs.allwomenstalk.com/super-smart-celebrities/)
-- [celebrity girl crush list](https://celebs.allwomenstalk.com/fabulous-celebrities-its-okay-to-have-a-girl-crush-on/)
-- [stephenie meyer twilight cameo](https://movies.allwomenstalk.com/writers-who-made-a-cameo-appearance/)
-- [celebs with rosacea](https://skincare.allwomenstalk.com/hot-celebs-with-skincare-issues/)
+- [glitter bodysuits](https://celebs.allwomenstalk.com/best-sparkly-bodysuits-on-celebrities/)
 - [7 Celebrities with Addictions ...](https://celebs.allwomenstalk.com/celebrities-with-addictions/)
 - [8 Famous Hollywood Divorces ...](https://celebs.allwomenstalk.com/famous-hollywood-divorces/)
 

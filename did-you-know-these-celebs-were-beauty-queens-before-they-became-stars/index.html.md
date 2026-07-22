@@ -3,7 +3,7 @@ title: "Did You Know These Celebs Were Beauty Queens before They Became Stars ?"
 description: "Demi Lovato; Sarah Palin; Halle Berry; Katy Perry; Oprah; More ..."
 url: "https://celebs.allwomenstalk.com/did-you-know-these-celebs-were-beauty-queens-before-they-became-stars/"
 category: "celebs"
-last_updated: "2026-07-02"
+last_updated: "2026-07-22"
 ---
 
 # Did You Know These Celebs Were Beauty Queens before They Became Stars ?
@@ -58,14 +58,14 @@ Which of these celebrities were you least expecting to have a past in beauty pag
 
 - [celebrities](https://celebs.allwomenstalk.com/be-inspired-by-celebrities-who-have-branched-out-to-try-new-things/)
 - [pictures of hollywood actors](https://movies.allwomenstalk.com/hottest-hollywood-actors-of-all-time/)
-- [was joan crawford beautiful](https://movies.allwomenstalk.com/classic-hollywood-stars/)
-- [most awkward interviews](https://celebs.allwomenstalk.com/youll-cringe-at-these-unbelievably-awkward-celeb-interviews/)
-- [male us actors](https://movies.allwomenstalk.com/hottest-male-voice-actors/)
-- [20 under 20](https://teen.allwomenstalk.com/most-influential-people-under-20/)
 - [most famous child actors](https://celebs.allwomenstalk.com/child-stars-who-changed-dramatically/)
-- [harry potter cast oliver wood](https://celebs.allwomenstalk.com/where-the-supporting-harry-potter-cast-is-now/)
 - [lyia liu](https://fitness.allwomenstalk.com/celebrities-who-wear-waist-trainers/)
+- [male us actors](https://movies.allwomenstalk.com/hottest-male-voice-actors/)
+- [most awkward interviews](https://celebs.allwomenstalk.com/youll-cringe-at-these-unbelievably-awkward-celeb-interviews/)
+- [harry potter cast oliver wood](https://celebs.allwomenstalk.com/where-the-supporting-harry-potter-cast-is-now/)
+- [20 under 20](https://teen.allwomenstalk.com/most-influential-people-under-20/)
 - [hot dubai prince](https://love.allwomenstalk.com/hot-princes-who-are-still-eligible/)
+- [was joan crawford beautiful](https://movies.allwomenstalk.com/classic-hollywood-stars/)
 - [4 Celebs That Shot to Fame after Cosmetic Surgery....](https://celebs.allwomenstalk.com/celebs-that-shot-to-fame-after-cosmetic-surgery/)
 - [Oscar Memories: Silver Screen Beauties ...](https://allwomenstalk.com/oscar-memories-silver-screen-beauties/)
 

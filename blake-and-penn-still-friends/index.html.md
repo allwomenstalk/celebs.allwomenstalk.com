@@ -3,7 +3,7 @@ title: "3 Photos of Blake and Penn Still Friends ..."
 description: "Stay ahead, stay chic. Trusted guides on beauty, wellness, fashion, and everything that defines today's empowered woman."
 url: "https://celebs.allwomenstalk.com/blake-and-penn-still-friends/"
 category: "celebs"
-last_updated: "2026-07-02"
+last_updated: "2026-07-22"
 ---
 
 # 3 Photos of Blake and Penn Still Friends ...
@@ -19,16 +19,16 @@ City: [New York](https://celebs.allwomenstalk.com/tag/new-york/)
 
 ## Related Posts
 
-- [katy naughty](https://celebs.allwomenstalk.com/katy-perry-to-get-naughty-with-ted-mosby/)
-- [kanye and kim music video](https://celebs.allwomenstalk.com/kim-kardashian-makes-a-video-with-kanye-west/)
-- [justin holding selena's hand](https://celebs.allwomenstalk.com/selena-justin-hold-hands-almost/)
-- [4 Photos of Lilly Allen's Growing Belly ...](https://celebs.allwomenstalk.com/lilly-allens-growing-belly/)
 - [colleen locklear](https://celebs.allwomenstalk.com/heather-locklear-takes-sis-shopping/)
-- [kristen stewart](https://celebs.allwomenstalk.com/kristen-stewart-gets-edgy-for-vogue-italia/)
-- [katy perry snow white](https://celebs.allwomenstalk.com/katy-perry-channels-the-roaring-20s-for-ghd/)
 - [Angelina Reveals Her Latest Talent…](https://celebs.allwomenstalk.com/angelina-reveals-her-latest-talent/)
+- [kristen stewart](https://celebs.allwomenstalk.com/kristen-stewart-gets-edgy-for-vogue-italia/)
+- [justin holding selena's hand](https://celebs.allwomenstalk.com/selena-justin-hold-hands-almost/)
+- [kanye and kim music video](https://celebs.allwomenstalk.com/kim-kardashian-makes-a-video-with-kanye-west/)
+- [katy naughty](https://celebs.allwomenstalk.com/katy-perry-to-get-naughty-with-ted-mosby/)
+- [katy perry snow white](https://celebs.allwomenstalk.com/katy-perry-channels-the-roaring-20s-for-ghd/)
 - [christina aguilera kids](https://celebs.allwomenstalk.com/christina-takes-max-shopping/)
 - [Justin the New Man in Olivia’s Life…](https://celebs.allwomenstalk.com/justin-the-new-man-in-olivias-life/)
+- [4 Photos of Lilly Allen's Growing Belly ...](https://celebs.allwomenstalk.com/lilly-allens-growing-belly/)
 - [1 Photos of Renee Leaves ...](https://celebs.allwomenstalk.com/renee-leaves/)
 - [3 Photos of Perry Leaves for Letterman ...](https://celebs.allwomenstalk.com/perry-leaves-for-letterman/)
 

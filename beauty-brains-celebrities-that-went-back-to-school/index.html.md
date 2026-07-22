@@ -3,7 +3,7 @@ title: "Beauty & Brains! 9 Celebrities That Went Back to School ..."
 description: "Tyra Banks; Emma Watson; Eva Longoria; Jodie Foster; Shakira; More ..."
 url: "https://celebs.allwomenstalk.com/beauty-brains-celebrities-that-went-back-to-school/"
 category: "celebs"
-last_updated: "2026-07-02"
+last_updated: "2026-07-22"
 ---
 
 # Beauty & Brains! 9 Celebrities That Went Back to School ...
@@ -69,14 +69,14 @@ Let these awesome women inspire you! If you took some time off of school, know t
 
 ## Related Posts
 
-- [big bang top hair](https://music.allwomenstalk.com/kpop-stars-who-rocked-their-hair-color/)
-- [fame vs celebrity](https://celebs.allwomenstalk.com/why-we-all-need-to-stop-envying-celebrities/)
 - [cute celebrity couples](https://celebs.allwomenstalk.com/the-cutest-new-celebrity-couples-of/)
-- [celebs in open marriages](https://celebs.allwomenstalk.com/inspiring-celeb-marriages-that-are-actually-long-lasting/)
-- [whoopi goldberg avpd](https://celebs.allwomenstalk.com/successful-stars-with-mental-disorders/)
+- [big bang top hair](https://music.allwomenstalk.com/kpop-stars-who-rocked-their-hair-color/)
 - [ariana grande workout clothes](https://fitness.allwomenstalk.com/sweat-in-style-check-out-these-celebs-in-workout-gear/)
 - [affleck and garner having a cozy moment](https://celebs.allwomenstalk.com/ben-affleck-and-jennifer-garners-cutest-moments/)
 - [ariana grande doughnut drama](https://celebs.allwomenstalk.com/arianas-not-alone-here-are-some-other-celebs-eating-donuts/)
+- [celebs in open marriages](https://celebs.allwomenstalk.com/inspiring-celeb-marriages-that-are-actually-long-lasting/)
+- [whoopi goldberg avpd](https://celebs.allwomenstalk.com/successful-stars-with-mental-disorders/)
+- [fame vs celebrity](https://celebs.allwomenstalk.com/why-we-all-need-to-stop-envying-celebrities/)
 - [gay love stories movie](https://movies.allwomenstalk.com/times-hollywood-got-gay-love-right/)
 - [sensational beginnings](https://movies.allwomenstalk.com/actors-with-terrible-tv-beginnings/)
 - [25 Smartest Celebrities ...](https://celebs.allwomenstalk.com/25-smartest-celebrities/)
