@@ -3,7 +3,7 @@ title: "The 20 Heartthrobs of the 90s We All Still Love ..."
 description: "Leonardo DiCaprio; Antonio Banderas; Matt Damon; Brad Pitt; Ben Affleck; More ..."
 url: "https://celebs.allwomenstalk.com/heartthrobs-of-the-1990s/"
 category: "celebs"
-last_updated: "2026-07-22"
+last_updated: "2026-07-25"
 ---
 
 # The 20 Heartthrobs of the 90s We All Still Love ...
@@ -135,13 +135,13 @@ Stunning blue eyes and a posh British accent, what could go wrong?
 - [celebrities with assault charges](https://allwomenstalk.com/celebs-accused-with-charges-of-sexual-assault/)
 - [gal gadot brother](https://celebs.allwomenstalk.com/yaron-versano/)
 - [lake como celebrities](https://travel.allwomenstalk.com/where-celebrities-go-on-vacation/)
-- [what toothpaste do celebrities use](https://beauty.allwomenstalk.com/perfect-ways-to-get-a-celebrity-smile/)
-- [robert downey jr oscar winner](https://movies.allwomenstalk.com/incredible-actors-who-are-yet-to-win-an-oscar/)
-- [best mym models](https://inspiration.allwomenstalk.com/meet-your-model-exclusive-content-from-your-favourite-personalities/)
-- [brazilian asian baby](https://celebs.allwomenstalk.com/dont-hate-me-cause-im-cute-adorable-celeb-kids-we-love/)
-- [wokest celebrities](https://celebs.allwomenstalk.com/who-are-the-most-charitable-celebrities/)
-- [laurence fishburne ex-wife](https://celebs.allwomenstalk.com/celebrity-couples-who-split-in-2018/)
 - [greasy bear davis](https://allwomenstalk.com/hollywood-march-madness-nicole-v-paris-jacko-v-greasy-bear/)
+- [laurence fishburne ex-wife](https://celebs.allwomenstalk.com/celebrity-couples-who-split-in-2018/)
+- [best mym models](https://inspiration.allwomenstalk.com/meet-your-model-exclusive-content-from-your-favourite-personalities/)
+- [robert downey jr oscar winner](https://movies.allwomenstalk.com/incredible-actors-who-are-yet-to-win-an-oscar/)
+- [what toothpaste do celebrities use](https://beauty.allwomenstalk.com/perfect-ways-to-get-a-celebrity-smile/)
+- [wokest celebrities](https://celebs.allwomenstalk.com/who-are-the-most-charitable-celebrities/)
+- [brazilian asian baby](https://celebs.allwomenstalk.com/dont-hate-me-cause-im-cute-adorable-celeb-kids-we-love/)
 - [10 Hottest Men in Hollywood ...](https://celebs.allwomenstalk.com/hottest-men-in-hollywood/)
 - [20 Cutest Celebrity Kids ...](https://allwomenstalk.com/20-cutest-celebrity-kids/)
 

@@ -3,7 +3,7 @@ title: "Where the Supporting Harry Potter Cast is Now ..."
 description: "Bonnie Wright Aka Ginny Weasley; Matthew Lewis Aka Neville Longbottom; Evanna Lynch Aka Luna Lovegood; Sean Biggerstaff Aka Oliver Wood; Stan Yanevski Aka Viktor Krum; More ..."
 url: "https://celebs.allwomenstalk.com/where-the-supporting-harry-potter-cast-is-now/"
 category: "celebs"
-last_updated: "2026-07-22"
+last_updated: "2026-07-25"
 ---
 
 # Where the Supporting Harry Potter Cast is Now ...
@@ -128,16 +128,16 @@ Who was your favorite supporting character?
 
 ## Related Posts
 
+- [designer valentines day gifts](https://celebs.allwomenstalk.com/most-expensive-valentines-gifts-given-by-celebrities/)
+- [lyia liu](https://fitness.allwomenstalk.com/celebrities-who-wear-waist-trainers/)
+- [male us actors](https://movies.allwomenstalk.com/hottest-male-voice-actors/)
+- [hot dubai prince](https://love.allwomenstalk.com/hot-princes-who-are-still-eligible/)
 - [most famous child actors](https://celebs.allwomenstalk.com/child-stars-who-changed-dramatically/)
+- [pictures of hollywood actors](https://movies.allwomenstalk.com/hottest-hollywood-actors-of-all-time/)
 - [20 under 20](https://teen.allwomenstalk.com/most-influential-people-under-20/)
+- [was joan crawford beautiful](https://movies.allwomenstalk.com/classic-hollywood-stars/)
 - [2018 coachella headliners](https://music.allwomenstalk.com/coachella-headliners/)
 - [jamie dornan modeling](https://celebs.allwomenstalk.com/little-known-facts-about-jamie-dornan/)
-- [hot dubai prince](https://love.allwomenstalk.com/hot-princes-who-are-still-eligible/)
-- [pictures of hollywood actors](https://movies.allwomenstalk.com/hottest-hollywood-actors-of-all-time/)
-- [male us actors](https://movies.allwomenstalk.com/hottest-male-voice-actors/)
-- [lyia liu](https://fitness.allwomenstalk.com/celebrities-who-wear-waist-trainers/)
-- [was joan crawford beautiful](https://movies.allwomenstalk.com/classic-hollywood-stars/)
-- [designer valentines day gifts](https://celebs.allwomenstalk.com/most-expensive-valentines-gifts-given-by-celebrities/)
 - [Harry Potter to Cast a Spell in Southern Californi...](https://travel.allwomenstalk.com/could-it-be-magic-harry-potter-to-cast-a-spell-in-southern-california/)
 - [If I Could Pick the Cast for the Twilight Movie – ...](https://twilight.allwomenstalk.com/if-i-could-pick-the-cast-for-the-twilight-movie-this-is-who-i-would-pick/)
 

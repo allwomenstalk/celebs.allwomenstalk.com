@@ -3,7 +3,7 @@ title: "12 Hottest Famous Guys (Brits Vs. Americans) ..."
 description: "Ryan Lochte – Hottest American Athlete; David Beckham – Hottest British Athlete; ‘Nsync – Hottest American Boy Band; One Direction – Hottest British Boy Band; Channing Tatum – Hottest American Male Stripper; More ..."
 url: "https://celebs.allwomenstalk.com/hottest-famous-guys-brits-vs-americans/"
 category: "celebs"
-last_updated: "2026-07-22"
+last_updated: "2026-07-25"
 ---
 
 # 12 Hottest Famous Guys \(Brits Vs. Americans\) ...
@@ -100,12 +100,12 @@ Top Image Source: [stylefrizz.com](http://stylefrizz.com/201205/david-beckhams-e
 
 ## Related Posts
 
-- [famous eccentric person](https://celebs.allwomenstalk.com/most-eccentric-pop-stars/)
+- [big easy baddies](https://movies.allwomenstalk.com/top-tv-baddies-we-love/)
+- [girl celeb crushes](https://movies.allwomenstalk.com/celebrity-girl-crushes-on-tv/)
 - [hot irish actor](https://celebs.allwomenstalk.com/most-talented-irish-actors/)
+- [famous eccentric person](https://celebs.allwomenstalk.com/most-eccentric-pop-stars/)
 - [ed begley jnr](https://celebs.allwomenstalk.com/celebrities-who-care-about-the-environment/)
 - [famous celebrity haircuts](https://celebs.allwomenstalk.com/shocking-celebrity-haircuts/)
-- [girl celeb crushes](https://movies.allwomenstalk.com/celebrity-girl-crushes-on-tv/)
-- [big easy baddies](https://movies.allwomenstalk.com/top-tv-baddies-we-love/)
 - [role models for teenagers](https://celebs.allwomenstalk.com/best-tv-teen-role-models/)
 - [zoe perry smoking](https://beauty.allwomenstalk.com/chic-celebrities-to-get-beauty-inspiration-from/)
 - [famous person who learned from their mistakes](https://celebs.allwomenstalk.com/celebrities-who-blew-it-and-how-not-to-repeat-their-mistakes/)

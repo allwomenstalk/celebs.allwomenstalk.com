@@ -3,7 +3,7 @@ title: "15 Most Annoying TV Characters ..."
 description: "Elena Gilbert from the Vampire Diaries; Marnie from Girls; Cersei Lannister from Game of Thrones; The Entire Cast of Made in Chelsea; Andrea from the Walking Dead; More ..."
 url: "https://celebs.allwomenstalk.com/most-annoying-tv-characters/"
 category: "celebs"
-last_updated: "2026-07-22"
+last_updated: "2026-07-25"
 ---
 
 # 15 Most Annoying TV Characters ...
@@ -104,16 +104,16 @@ So, those are mine - but everyone has different pet peeves and bug bears. Perhap
 
 ## Related Posts
 
-- [top 10 worst series finales](https://movies.allwomenstalk.com/worst-tv-series-finales-that-should-be-changed/)
-- [supervillains](https://celebs.allwomenstalk.com/sexiest-supervillains/)
+- [childhood tv programmes](https://movies.allwomenstalk.com/childhood-tv-shows-they-should-bring-back/)
 - [regular show acid trip episode](https://movies.allwomenstalk.com/kids-cartoons-that-adults-watch-too/)
+- [types of art movement](https://lifestyle.allwomenstalk.com/art-movements-explained/)
 - [videos of funny pranks](https://lifestyle.allwomenstalk.com/funny-youtube-pranks-thatll-surely-make-you-smile/)
 - [felicia day chris hardwick](https://lifestyle.allwomenstalk.com/great-youtube-shows/)
-- [mysteries of the mayans](https://travel.allwomenstalk.com/mysteries-of-the-mayans-revealed/)
 - [sudden dance in public](https://lifestyle.allwomenstalk.com/spectacular-dancing-flash-mobs/)
-- [childhood tv programmes](https://movies.allwomenstalk.com/childhood-tv-shows-they-should-bring-back/)
+- [mysteries of the mayans](https://travel.allwomenstalk.com/mysteries-of-the-mayans-revealed/)
 - [taken miniseries streaming](https://movies.allwomenstalk.com/completed-tv-series-to-stream-instantly-on-netflix/)
-- [types of art movement](https://lifestyle.allwomenstalk.com/art-movements-explained/)
+- [top 10 worst series finales](https://movies.allwomenstalk.com/worst-tv-series-finales-that-should-be-changed/)
+- [supervillains](https://celebs.allwomenstalk.com/sexiest-supervillains/)
 - [15 Adorable Celebrity Dogs ...](https://allwomenstalk.com/15-adorable-celebrity-dogs/)
 - [10 Celebrities We Love to Hate ...](https://allwomenstalk.com/top-8-most-loved-celebrities/)
 

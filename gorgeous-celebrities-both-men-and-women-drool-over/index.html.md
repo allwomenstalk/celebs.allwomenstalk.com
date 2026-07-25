@@ -3,7 +3,7 @@ title: "20 Gorgeous Celebrities Both Men and Women Drool over ..."
 description: "Johnny Depp; Olivia Wilde; Brad Pitt; Kim Kardashian; Will Smith; More ..."
 url: "https://celebs.allwomenstalk.com/gorgeous-celebrities-both-men-and-women-drool-over/"
 category: "celebs"
-last_updated: "2026-07-22"
+last_updated: "2026-07-25"
 ---
 
 # 20 Gorgeous Celebrities Both Men and Women Drool over ...
@@ -134,14 +134,14 @@ Did you find your favorite celeb on this list of gorgeous celebrities? It was ha
 
 ## Related Posts
 
-- [best front men](https://celebs.allwomenstalk.com/hottest-band-front-men/)
 - [edward cullen sixpack](https://celebs.allwomenstalk.com/top-hot-actors-who-should-play-christian-grey/)
-- [glitter bodysuits](https://celebs.allwomenstalk.com/best-sparkly-bodysuits-on-celebrities/)
 - [is natalie portman smart](https://celebs.allwomenstalk.com/super-smart-celebrities/)
-- [long haired british comedian](https://celebs.allwomenstalk.com/hottest-famous-guys-brits-vs-americans/)
-- [bezos wife](https://celebs.allwomenstalk.com/famous-people-who-are-beautiful-on-the-inside/)
-- [celebs with rosacea](https://skincare.allwomenstalk.com/hot-celebs-with-skincare-issues/)
 - [celebrities in trouble with the law](https://celebs.allwomenstalk.com/celebrities-who-have-been-in-trouble-with-the-law/)
+- [long haired british comedian](https://celebs.allwomenstalk.com/hottest-famous-guys-brits-vs-americans/)
+- [celebs with rosacea](https://skincare.allwomenstalk.com/hot-celebs-with-skincare-issues/)
+- [bezos wife](https://celebs.allwomenstalk.com/famous-people-who-are-beautiful-on-the-inside/)
+- [glitter bodysuits](https://celebs.allwomenstalk.com/best-sparkly-bodysuits-on-celebrities/)
+- [best front men](https://celebs.allwomenstalk.com/hottest-band-front-men/)
 - [celebrity girl crush list](https://celebs.allwomenstalk.com/fabulous-celebrities-its-okay-to-have-a-girl-crush-on/)
 - [sexiest comedian](https://celebs.allwomenstalk.com/hottest-comedians/)
 - [10 Hottest Men in Hollywood ...](https://celebs.allwomenstalk.com/hottest-men-in-hollywood/)

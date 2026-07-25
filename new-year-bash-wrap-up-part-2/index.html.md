@@ -3,7 +3,7 @@ title: "New Year Bash Wrap-up: Part 2 ..."
 description: "Stay ahead, stay chic. Trusted guides on beauty, wellness, fashion, and everything that defines today's empowered woman."
 url: "https://celebs.allwomenstalk.com/new-year-bash-wrap-up-part-2/"
 category: "celebs"
-last_updated: "2026-07-22"
+last_updated: "2026-07-25"
 ---
 
 # New Year Bash Wrap\-up: Part 2 ...
@@ -36,16 +36,16 @@ So what did you do on the 31st??
 
 ## Related Posts
 
-- [cool butterflies](https://gardening.allwomenstalk.com/5-cool-butterflies/)
-- [7 People Who Shouldn't Have Been Assassinated ...](https://celebs.allwomenstalk.com/7-people-who-shouldnt-have-been-assassinated/)
-- [awesome birds](https://gardening.allwomenstalk.com/5-awesome-birds/)
-- [Cook's Love for Mother Earth Revealed...](https://celebs.allwomenstalk.com/cooks-love-for-mother-earth-revealed/)
-- [best rags to riches stories](https://celebs.allwomenstalk.com/best-from-rags-to-riches-stories/)
-- [favorite vines](https://gardening.allwomenstalk.com/5-of-my-favorite-vines/)
-- [dadt pink](https://celebs.allwomenstalk.com/stars-come-out-in-support-of-dadt-repeal/)
 - [mythbusters obama](https://celebs.allwomenstalk.com/obama-on-mythbusters/)
 - [New Year Bash Wrap-up: Part 1 ...](https://celebs.allwomenstalk.com/new-year-bash-wrap-up-part-1/)
+- [Cook's Love for Mother Earth Revealed...](https://celebs.allwomenstalk.com/cooks-love-for-mother-earth-revealed/)
+- [favorite vines](https://gardening.allwomenstalk.com/5-of-my-favorite-vines/)
+- [cool butterflies](https://gardening.allwomenstalk.com/5-cool-butterflies/)
 - [amazing butterflies](https://gardening.allwomenstalk.com/5-amazing-butterflies/)
+- [7 People Who Shouldn't Have Been Assassinated ...](https://celebs.allwomenstalk.com/7-people-who-shouldnt-have-been-assassinated/)
+- [best rags to riches stories](https://celebs.allwomenstalk.com/best-from-rags-to-riches-stories/)
+- [dadt pink](https://celebs.allwomenstalk.com/stars-come-out-in-support-of-dadt-repeal/)
+- [awesome birds](https://gardening.allwomenstalk.com/5-awesome-birds/)
 - [5 Ways to Celebrate Your New Year's Eve Wedding .....](https://wedding.allwomenstalk.com/5-ways-to-celebrate-your-new-years-eve-wedding/)
 - [Some Fun Stuff....](https://allwomenstalk.com/some-fun-stuff/)
 

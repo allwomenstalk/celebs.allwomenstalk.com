@@ -3,7 +3,7 @@ title: "10 Gorgeous Full-Figured Celebrities ..."
 description: "Adele; Queen Latifah; Mariah Carey; Melissa McCarthy; Jill Scott; More ..."
 url: "https://celebs.allwomenstalk.com/gorgeous-full-figured-celebrities/"
 category: "celebs"
-last_updated: "2026-07-22"
+last_updated: "2026-07-25"
 ---
 
 # 10 Gorgeous Full\-Figured Celebrities ...
@@ -71,15 +71,15 @@ Top Image Source: [weheartit.com](https://weheartit.com/entry/23055748)
 ## Related Posts
 
 - [most famous affairs](https://love.allwomenstalk.com/extraordinary-famous-love-affairs/)
-- [celebrity news 2011](https://celebs.allwomenstalk.com/big-celebrity-news-of/)
-- [sundance film festival outfits](https://allwomenstalk.com/star-sightings-at-the-sundance-film-festival-january-18-22/)
-- [Lepaparazzi News Update: the '10' List: Hollywood'...](https://allwomenstalk.com/lepaparazzi-news-update-the-10-list-hollywoods-weekly-buzz/)
-- [popbyes](https://allwomenstalk.com/kate-winslets-hollywood-life/)
 - [bob hope chrysler classic](https://allwomenstalk.com/celebrity-stalking-at-the-bob-hope-chrysler-classic/)
+- [popbyes](https://allwomenstalk.com/kate-winslets-hollywood-life/)
+- [Lepaparazzi News Update: the '10' List: Hollywood'...](https://allwomenstalk.com/lepaparazzi-news-update-the-10-list-hollywoods-weekly-buzz/)
 - [current events with celebrities](https://celebs.allwomenstalk.com/best-celebrity-gossip-websites/)
-- [sarah jessica parker south oark](https://celebs.allwomenstalk.com/favourite-south-park-celebrity-targets/)
-- [celebrity cancer survivors](https://celebs.allwomenstalk.com/wonderfully-remarkable-celebrity-cancer-survivor-stories/)
 - [Sexiest Men Alive up for Auction ...](https://celebs.allwomenstalk.com/sexiest-men-alive-up-for-auction/)
+- [celebrity news 2011](https://celebs.allwomenstalk.com/big-celebrity-news-of/)
+- [celebrity cancer survivors](https://celebs.allwomenstalk.com/wonderfully-remarkable-celebrity-cancer-survivor-stories/)
+- [sundance film festival outfits](https://allwomenstalk.com/star-sightings-at-the-sundance-film-festival-january-18-22/)
+- [sarah jessica parker south oark](https://celebs.allwomenstalk.com/favourite-south-park-celebrity-targets/)
 - [Top 10 Sexy Women in Hollywood ...](https://movies.allwomenstalk.com/top-10-sexy-women-in-hollywood/)
 - [15 Most Fabulous "Real Size" Celebrities ...](https://allwomenstalk.com/10-most-fabulous-real-size-celebrities/)
 
