@@ -3,7 +3,7 @@ title: "7 Celebrity Makeup Transformations That Will Make You Gasp ..."
 description: "Scarlett Johansson; Michael Jackson; Angelina Jolie; Three Johnny Depp Transformations; Taylor Swift; More ..."
 url: "https://celebs.allwomenstalk.com/celebrity-makeup-transformations-that-will-make-you-gasp/"
 category: "celebs"
-last_updated: "2026-07-25"
+last_updated: "2026-08-01"
 ---
 
 # 7 Celebrity Makeup Transformations That Will Make You Gasp ...
@@ -42,16 +42,16 @@ What do you say, ladies? Are these vides a) fun to watch but not your cup of tea
 
 ## Related Posts
 
-- [highlighter makeup](https://beauty.allwomenstalk.com/beauty-benefits-of-a-highlighter/)
-- [eyeliner for doe eyes](https://makeup.allwomenstalk.com/wicked-amazing-eyeliner-tips-for-almond-eyes/)
-- [lively hazel lens](https://beauty.allwomenstalk.com/best-beauty-tips-for-contact-lens-wearers/)
-- [loreal paris le stylo garnet](https://makeup.allwomenstalk.com/hot-eye-makeup-looks-inspired-by-the-runway/)
-- [is bat guano in mascara](https://makeup.allwomenstalk.com/intriguing-facts-about-makeup/)
-- [sultry makeup](https://makeup.allwomenstalk.com/amazing-sultry-makeup-tips/)
 - [ivory colour skin](https://makeup.allwomenstalk.com/clever-makeup-tips-for-ivory-skin/)
+- [lively hazel lens](https://beauty.allwomenstalk.com/best-beauty-tips-for-contact-lens-wearers/)
+- [is bat guano in mascara](https://makeup.allwomenstalk.com/intriguing-facts-about-makeup/)
+- [loreal paris le stylo garnet](https://makeup.allwomenstalk.com/hot-eye-makeup-looks-inspired-by-the-runway/)
 - [le stylo smoky eye always pink](https://makeup.allwomenstalk.com/awesome-makeup-makeover-tutorials/)
-- [owl eye makeup](https://travel.allwomenstalk.com/beauty-tips-for-how-to-stay-fresh-on-a-red-eye-flight/)
+- [sultry makeup](https://makeup.allwomenstalk.com/amazing-sultry-makeup-tips/)
 - [trends for teenagers](https://makeup.allwomenstalk.com/awesome-makeup-trends-for-teenagers/)
+- [eyeliner for doe eyes](https://makeup.allwomenstalk.com/wicked-amazing-eyeliner-tips-for-almond-eyes/)
+- [highlighter makeup](https://beauty.allwomenstalk.com/beauty-benefits-of-a-highlighter/)
+- [owl eye makeup](https://travel.allwomenstalk.com/beauty-tips-for-how-to-stay-fresh-on-a-red-eye-flight/)
 - [7 Summer Makeup Looks ...](https://makeup.allwomenstalk.com/summer-makeup-looks/)
 - [8 Celebrities with the Best Makeup ...](https://allwomenstalk.com/8-celebrities-with-the-best-makeup/)
 

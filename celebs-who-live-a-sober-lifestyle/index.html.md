@@ -3,7 +3,7 @@ title: "7 Celebs Who Live a Sober Lifestyle ..."
 description: "Demi Lovato; Bradley Cooper; Jennifer Hudson; Blake Lively; Russell Brand; More ..."
 url: "https://celebs.allwomenstalk.com/celebs-who-live-a-sober-lifestyle/"
 category: "celebs"
-last_updated: "2026-07-25"
+last_updated: "2026-08-01"
 ---
 
 # 7 Celebs Who Live a Sober Lifestyle ...
@@ -56,14 +56,14 @@ Well, there you have it! This is just seven out of MANY celebrities who live a s
 
 ## Related Posts
 
-- [who is ariana grande husband?](https://celebs.allwomenstalk.com/celebs-who-have-praised-ariana-grandes-talent/)
-- [that wish would go away](https://celebs.allwomenstalk.com/celebrities-we-wish-would-go-away/)
-- [celebs in nashville](https://movies.allwomenstalk.com/celebs-from-nashville-who-love-to-live-tweet-during-the-show/)
-- [the prettiest hair in the world](https://hair.allwomenstalk.com/male-celebrities-with-great-hair/)
-- [christian bale and rowan atkinson](https://movies.allwomenstalk.com/potential-actors-for-james-bonds-role-that-will-probably-never-happen/)
 - [who did scooter braun manage](https://celebs.allwomenstalk.com/celebs-who-have-scooter-braun-as-a-manager/)
+- [christian bale and rowan atkinson](https://movies.allwomenstalk.com/potential-actors-for-james-bonds-role-that-will-probably-never-happen/)
+- [who is ariana grande husband?](https://celebs.allwomenstalk.com/celebs-who-have-praised-ariana-grandes-talent/)
 - [how did tori kelly get famous](https://celebs.allwomenstalk.com/celebrities-who-have-praised-tori-kellys-talents/)
 - [jane kaczmarek husband](https://celebs.allwomenstalk.com/celebrity-mothers-who-had-their-first-baby-after-40/)
+- [the prettiest hair in the world](https://hair.allwomenstalk.com/male-celebrities-with-great-hair/)
+- [celebs in nashville](https://movies.allwomenstalk.com/celebs-from-nashville-who-love-to-live-tweet-during-the-show/)
+- [that wish would go away](https://celebs.allwomenstalk.com/celebrities-we-wish-would-go-away/)
 - [kristin davis adopted child](https://celebs.allwomenstalk.com/celebrities-who-have-adopted-kids/)
 - [obsession idris elba](https://celebs.allwomenstalk.com/celebs-who-are-obsessed-with-hbos-girls/)
 - [7 Celebrities with Addictions ...](https://celebs.allwomenstalk.com/celebrities-with-addictions/)

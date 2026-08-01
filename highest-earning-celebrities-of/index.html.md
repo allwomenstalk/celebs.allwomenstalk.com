@@ -3,7 +3,7 @@ title: "The Highest Earning Celebrities of 2010: A Look Back at the Year's Top E
 description: "Oprah: Estimated Earnings: $315 Million; James Cameron: Estimated Earnings: $210 Million; Tyler Perry: Estimated Earnings: $125 Million; Michael Bay: Estimated Earnings: $120 Million; Tiger Woods: Estimated Earnings: $105 Million; More ..."
 url: "https://celebs.allwomenstalk.com/highest-earning-celebrities-of/"
 category: "celebs"
-last_updated: "2026-07-25"
+last_updated: "2026-08-01"
 ---
 
 # The Highest Earning Celebrities of 2010: A Look Back at the Year's Top Earners
@@ -114,16 +114,16 @@ The courtroom queen proved that daytime television could be an absolute goldmine
 
 ## Related Posts
 
-- [Sexiest Men Alive up for Auction ...](https://celebs.allwomenstalk.com/sexiest-men-alive-up-for-auction/)
 - [most popular person](https://celebs.allwomenstalk.com/gorgeous-full-figured-celebrities/)
-- [sarah jessica parker south oark](https://celebs.allwomenstalk.com/favourite-south-park-celebrity-targets/)
 - [celebrity news 2011](https://celebs.allwomenstalk.com/big-celebrity-news-of/)
+- [sarah jessica parker south oark](https://celebs.allwomenstalk.com/favourite-south-park-celebrity-targets/)
 - [celebrity cancer survivors](https://celebs.allwomenstalk.com/wonderfully-remarkable-celebrity-cancer-survivor-stories/)
 - [most famous affairs](https://love.allwomenstalk.com/extraordinary-famous-love-affairs/)
-- [cute guys wearing skirts](https://celebs.allwomenstalk.com/sexiest-celebrity-men-in-skirts/)
-- [sundance film festival outfits](https://allwomenstalk.com/star-sightings-at-the-sundance-film-festival-january-18-22/)
-- [ray kroc's wives](https://celebs.allwomenstalk.com/celebrities-with-addictions/)
 - [current events with celebrities](https://celebs.allwomenstalk.com/best-celebrity-gossip-websites/)
+- [cute guys wearing skirts](https://celebs.allwomenstalk.com/sexiest-celebrity-men-in-skirts/)
+- [Sexiest Men Alive up for Auction ...](https://celebs.allwomenstalk.com/sexiest-men-alive-up-for-auction/)
+- [ray kroc's wives](https://celebs.allwomenstalk.com/celebrities-with-addictions/)
+- [sundance film festival outfits](https://allwomenstalk.com/star-sightings-at-the-sundance-film-festival-january-18-22/)
 - [The Most Overpaid Actors in Hollywood ...](https://celebs.allwomenstalk.com/the-most-overpaid-actors-in-hollywood/)
 - [The Best Dressed Women of 2010 ...](https://celebs.allwomenstalk.com/the-best-dressed-women-of/)
 
