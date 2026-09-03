@@ -3,7 +3,7 @@ title: "8 Fabulous It Girls of the 90s ..."
 description: "Winona Ryder; Chloe Sevigny; Cindy Crawford; Alicia Silverstone; Kate Moss; More ..."
 url: "https://celebs.allwomenstalk.com/fabulous-it-girls-of-the-90s/"
 category: "celebs"
-last_updated: "2026-08-01"
+last_updated: "2026-09-03"
 ---
 
 # 8 Fabulous It Girls of the 90s ...
@@ -64,16 +64,16 @@ Top Image Source: [pinterest.com](https://www.pinterest.com/pin/1308859328899494
 
 ## Related Posts
 
-- [fit famous women](https://celebs.allwomenstalk.com/most-fit-celebrity-women-to-be-inspired-by/)
-- [what is a female impersonator](https://lifestyle.allwomenstalk.com/most-divine-and-famous-drag-queens-and-female-impersonators/)
-- [disney princess valance](https://allwomenstalk.com/if-disney-princesses-were-real/)
-- [outrageous one](https://celebs.allwomenstalk.com/most-outrageous-women-of-the-20th-century/)
 - [90 heroines](https://lifestyle.allwomenstalk.com/amazing-television-heroines-from-the-90s/)
 - [best role models in movies](https://movies.allwomenstalk.com/top-movie-heroines-who-make-good-role-models/)
+- [disney princess valance](https://allwomenstalk.com/if-disney-princesses-were-real/)
 - [british actress female](https://movies.allwomenstalk.com/stunning-british-leading-ladies/)
-- [unique female musicians](https://fashion.allwomenstalk.com/current-style-setting-female-musicians/)
-- [movie strong female lead](https://movies.allwomenstalk.com/films-with-strong-female-leads-every-girl-should-see/)
+- [outrageous one](https://celebs.allwomenstalk.com/most-outrageous-women-of-the-20th-century/)
+- [fit famous women](https://celebs.allwomenstalk.com/most-fit-celebrity-women-to-be-inspired-by/)
 - [women's rights bank accounts uk](https://lifestyle.allwomenstalk.com/rights-women-didnt-have-a-century-ago/)
+- [movie strong female lead](https://movies.allwomenstalk.com/films-with-strong-female-leads-every-girl-should-see/)
+- [what is a female impersonator](https://lifestyle.allwomenstalk.com/most-divine-and-famous-drag-queens-and-female-impersonators/)
+- [unique female musicians](https://fashion.allwomenstalk.com/current-style-setting-female-musicians/)
 - [10 Stunning Leading Ladies ...](https://movies.allwomenstalk.com/stunning-leading-ladies/)
 - [8 Most Stylish Female Celebrities of 2011 ...](https://celebs.allwomenstalk.com/most-stylish-female-celebrities-of/)
 

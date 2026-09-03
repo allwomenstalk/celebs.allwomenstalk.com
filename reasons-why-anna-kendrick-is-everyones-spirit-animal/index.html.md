@@ -3,7 +3,7 @@ title: "9 Reasons Why Anna Kendrick is Everyone's Spirit Animal ..."
 description: "She'll Always Choose a Night in; She's Got Killer Moves; The Best Reaction Faces; She Loves Jamming to the Radio; She's Always down for Karaoke; More ..."
 url: "https://celebs.allwomenstalk.com/reasons-why-anna-kendrick-is-everyones-spirit-animal/"
 category: "celebs"
-last_updated: "2026-08-01"
+last_updated: "2026-09-03"
 ---
 
 # 9 Reasons Why Anna Kendrick is Everyone's Spirit Animal ...
@@ -68,14 +68,14 @@ Well, there you have it! These are just nine out of many many awesome reasons wh
 
 ## Related Posts
 
-- [how long should you hug](https://love.allwomenstalk.com/why-a-hug-is-better-than-a-kiss/)
-- [monica frizzy hair episode](https://movies.allwomenstalk.com/reasons-why-f-r-i-e-n-d-s-is-still-an-awesome-t-v-show/)
 - [beautiful biracial girls](https://inspiration.allwomenstalk.com/readerknows-this-is-why-its-beautiful-to-be-a-biracial-child/)
-- [the boyfriend netflix](https://funny.allwomenstalk.com/why-netflix-is-even-better-than-a-boyfriend/)
-- [rosamund pike height and weight](https://movies.allwomenstalk.com/reasons-why-rosamund-pike-should-win-best-actress-oscar/)
-- [why did we stop wearing capes](https://fashion.allwomenstalk.com/reasons-to-love-wearing-a-cape/)
 - [best ayn rand book](https://books.allwomenstalk.com/reasons-to-love-ayn-rand/)
 - [why are cupcakes so popular](https://food.allwomenstalk.com/reasons-we-love-cupcakes-so-much/)
+- [rosamund pike height and weight](https://movies.allwomenstalk.com/reasons-why-rosamund-pike-should-win-best-actress-oscar/)
+- [why did we stop wearing capes](https://fashion.allwomenstalk.com/reasons-to-love-wearing-a-cape/)
+- [how long should you hug](https://love.allwomenstalk.com/why-a-hug-is-better-than-a-kiss/)
+- [monica frizzy hair episode](https://movies.allwomenstalk.com/reasons-why-f-r-i-e-n-d-s-is-still-an-awesome-t-v-show/)
+- [the boyfriend netflix](https://funny.allwomenstalk.com/why-netflix-is-even-better-than-a-boyfriend/)
 - [chandler dance gif](https://lifestyle.allwomenstalk.com/why-its-oh-so-easy-to-relate-to-chandler-bing/)
 - [better than your boyfriend](https://funny.allwomenstalk.com/reasons-netflix-is-better-than-a-boyfriend/)
 - [10 Reasons to Love Jennifer Aniston ...](https://allwomenstalk.com/10-reasons-to-love-jennifer-aniston/)

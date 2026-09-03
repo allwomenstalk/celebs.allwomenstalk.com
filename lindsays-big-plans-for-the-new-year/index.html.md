@@ -3,7 +3,7 @@ title: "Lindsay's Big Plans for the New Year..."
 description: "Stay ahead, stay chic. Trusted guides on beauty, wellness, fashion, and everything that defines today's empowered woman."
 url: "https://celebs.allwomenstalk.com/lindsays-big-plans-for-the-new-year/"
 category: "celebs"
-last_updated: "2026-08-01"
+last_updated: "2026-09-03"
 ---
 
 # Lindsay's Big Plans for the New Year...
@@ -20,16 +20,16 @@ As to how that works out for Lilo, that is something we'll have to wait and watc
 
 ## Related Posts
 
-- [NY's Mom Speaks (& Should Meet Dina Lohan!) .....](https://allwomenstalk.com/nys-mom-speaks-should-meet-dina-lohan/)
 - [Lepaparazzi News Update: Lindsay Lohan's Broken He...](https://allwomenstalk.com/lepaparazzi-news-update-lindsay-lohans-broken-heart/)
+- [Jack Nicholson Will Not Work with Lindsay Lohan](https://allwomenstalk.com/jack-nicholson-will-not-work-with-lindsay-lohan/)
+- [laguna beach aa meetings](https://allwomenstalk.com/laguna-beach-star-will-go-to-jail/)
 - [Ignorant Slut of the Day: Dina Lohan](https://allwomenstalk.com/ignorant-slut-of-the-day-dina-lohan/)
+- [lindsay lohan passed out](https://allwomenstalk.com/lindsay-lohan-is-super-desperate-drunk/)
 - [lindsey lohan kissing mom](https://allwomenstalk.com/dina-lohan-lindsay-drags-me-to-clubs/)
 - [lindsay lohan blue dress](https://allwomenstalk.com/style-stealer-lindsay-lohans-blue-dress/)
-- [Jack Nicholson Will Not Work with Lindsay Lohan](https://allwomenstalk.com/jack-nicholson-will-not-work-with-lindsay-lohan/)
-- [hilary duff paris](https://allwomenstalk.com/hilary-duff-is-a-drunkard/)
+- [NY's Mom Speaks (& Should Meet Dina Lohan!) .....](https://allwomenstalk.com/nys-mom-speaks-should-meet-dina-lohan/)
 - [what is denise richards on drugs](https://allwomenstalk.com/denise-richards-snorts-some-cocaine-at-the-beach/)
-- [laguna beach aa meetings](https://allwomenstalk.com/laguna-beach-star-will-go-to-jail/)
-- [lindsay lohan passed out](https://allwomenstalk.com/lindsay-lohan-is-super-desperate-drunk/)
+- [hilary duff paris](https://allwomenstalk.com/hilary-duff-is-a-drunkard/)
 - [How Long Will Lindsay Stay in Prison?](https://celebs.allwomenstalk.com/lindsay-surrenders/)
 - [Lindsay in Another Legal Battle...](https://celebs.allwomenstalk.com/lindsay-in-another-legal-battle/)
 

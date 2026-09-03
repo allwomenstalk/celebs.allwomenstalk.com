@@ -3,7 +3,7 @@ title: "Chilean Miner Runs the NY Marathon ..."
 description: "Stay ahead, stay chic. Trusted guides on beauty, wellness, fashion, and everything that defines today's empowered woman."
 url: "https://celebs.allwomenstalk.com/chilean-miner-runs-the-ny-marathon/"
 category: "celebs"
-last_updated: "2026-08-01"
+last_updated: "2026-09-03"
 ---
 
 # Chilean Miner Runs the NY Marathon ...

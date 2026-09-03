@@ -3,7 +3,7 @@ title: "8 Most Eccentric Pop Stars ..."
 description: "Bjork; Lady GaGa; Elton John; Julian Cope; Michael Jackson; More ..."
 url: "https://celebs.allwomenstalk.com/most-eccentric-pop-stars/"
 category: "celebs"
-last_updated: "2026-08-01"
+last_updated: "2026-09-03"
 ---
 
 # 8 Most Eccentric Pop Stars ...
@@ -46,16 +46,16 @@ There are a lot more eccentric pop stars, but these are some who really stand ou
 
 ## Related Posts
 
-- [famous tv show families](https://movies.allwomenstalk.com/famous-tv-families/)
-- [hot irish actor](https://celebs.allwomenstalk.com/most-talented-irish-actors/)
 - [celebrity overexposure](https://celebs.allwomenstalk.com/overexposed-celebrities-im-sick-of/)
-- [girl celeb crushes](https://movies.allwomenstalk.com/celebrity-girl-crushes-on-tv/)
-- [role models for teenagers](https://celebs.allwomenstalk.com/best-tv-teen-role-models/)
-- [teen role model](https://celebs.allwomenstalk.com/good-celebrity-teen-role-models/)
-- [famous couples in tv](https://movies.allwomenstalk.com/of-the-best-tv-couples/)
-- [famous person who learned from their mistakes](https://celebs.allwomenstalk.com/celebrities-who-blew-it-and-how-not-to-repeat-their-mistakes/)
+- [hot irish actor](https://celebs.allwomenstalk.com/most-talented-irish-actors/)
 - [big easy baddies](https://movies.allwomenstalk.com/top-tv-baddies-we-love/)
 - [who looks like cillian murphy](https://lifestyle.allwomenstalk.com/famous-introverts/)
+- [role models for teenagers](https://celebs.allwomenstalk.com/best-tv-teen-role-models/)
+- [famous person who learned from their mistakes](https://celebs.allwomenstalk.com/celebrities-who-blew-it-and-how-not-to-repeat-their-mistakes/)
+- [teen role model](https://celebs.allwomenstalk.com/good-celebrity-teen-role-models/)
+- [girl celeb crushes](https://movies.allwomenstalk.com/celebrity-girl-crushes-on-tv/)
+- [famous tv show families](https://movies.allwomenstalk.com/famous-tv-families/)
+- [famous couples in tv](https://movies.allwomenstalk.com/of-the-best-tv-couples/)
 - [8 Surprising Music Video Stars ...](https://celebs.allwomenstalk.com/surprising-music-video-stars/)
 - [8 Most down to Earth Celebrities ...](https://celebs.allwomenstalk.com/most-down-to-earth-celebrities/)
 

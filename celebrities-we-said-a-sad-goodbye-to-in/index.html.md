@@ -3,7 +3,7 @@ title: "14 Celebrities We Said a Sad Goodbye to in 2014 ..."
 description: "Robin Williams, August 11; Joan Rivers, September 4; Philip Seymour Hoffman, February 2; Sir Richard Attenborough, August 24; Shirley Temple, February 10; More ..."
 url: "https://celebs.allwomenstalk.com/celebrities-we-said-a-sad-goodbye-to-in/"
 category: "celebs"
-last_updated: "2026-08-01"
+last_updated: "2026-09-03"
 ---
 
 # 14 Celebrities We Said a Sad Goodbye to in 2014 ...
@@ -145,16 +145,16 @@ All that’s left for me to say is thank you to them all for the great entertain
 
 ## Related Posts
 
-- [milo ventimiglia girlfriend](https://celebs.allwomenstalk.com/of-your-favorite-fictional-couples-who-dated-off-screen-too/)
+- [corey fogelmanis twitter](https://celebs.allwomenstalk.com/girl-meets-world-celebs-to-follow-on-twitter/)
 - [reese witherspoon as june carter](https://celebs.allwomenstalk.com/celebrities-who-look-exactly-like-who-they-portrayed-in-a-biopic/)
-- [paleo celebrities](https://celebs.allwomenstalk.com/celebs-that-follow-the-paleo-diet/)
-- [kate upton movie with adam sandler](https://celebs.allwomenstalk.com/celebrities-who-went-from-modeling-to-acting/)
-- [celebrity favorite holiday](https://celebs.allwomenstalk.com/see-how-your-favorite-celebs-spent-the-holidays-in-our-christmas-re-cap/)
-- [you are beautiful inside and out](https://celebs.allwomenstalk.com/celebrities-who-are-beautiful-inside-and-out/)
+- [milo ventimiglia girlfriend](https://celebs.allwomenstalk.com/of-your-favorite-fictional-couples-who-dated-off-screen-too/)
+- [carrie underwood prego](https://fashion.allwomenstalk.com/stars-with-the-best-baby-bump-style-of-all-time/)
 - [celebrities who hid their pregnancies while filmin...](https://celebs.allwomenstalk.com/celebrities-who-hid-their-baby-bumps-while-filming/)
 - [jack falahee weight gain](https://celebs.allwomenstalk.com/breakout-celebrities-of/)
-- [carrie underwood prego](https://fashion.allwomenstalk.com/stars-with-the-best-baby-bump-style-of-all-time/)
-- [corey fogelmanis twitter](https://celebs.allwomenstalk.com/girl-meets-world-celebs-to-follow-on-twitter/)
+- [celebrity favorite holiday](https://celebs.allwomenstalk.com/see-how-your-favorite-celebs-spent-the-holidays-in-our-christmas-re-cap/)
+- [kate upton movie with adam sandler](https://celebs.allwomenstalk.com/celebrities-who-went-from-modeling-to-acting/)
+- [you are beautiful inside and out](https://celebs.allwomenstalk.com/celebrities-who-are-beautiful-inside-and-out/)
+- [paleo celebrities](https://celebs.allwomenstalk.com/celebs-that-follow-the-paleo-diet/)
 - [7 Inspiring Celebrities of 2011 ...](https://celebs.allwomenstalk.com/inspiring-celebrities-of/)
 - [10 Big Celebrity News of 2011 ...](https://celebs.allwomenstalk.com/big-celebrity-news-of/)
 

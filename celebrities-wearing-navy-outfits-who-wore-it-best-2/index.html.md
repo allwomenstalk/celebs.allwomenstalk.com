@@ -3,7 +3,7 @@ title: "9 Celebrities Wearing Navy Blue Dresses & Outfits on the Red Carpet"
 description: "Dianna Agron; Amanda Seyfried; Selena Gomez; Jennifer Lawrence; Jennifer Garner; More ..."
 url: "https://celebs.allwomenstalk.com/celebrities-wearing-navy-outfits-who-wore-it-best-2/"
 category: "celebs"
-last_updated: "2026-08-01"
+last_updated: "2026-09-03"
 ---
 
 # 9 Celebrities Wearing Navy Blue Dresses & Outfits on the Red Carpet
@@ -80,16 +80,16 @@ These celebrity looks demonstrate just how versatile navy blue dresses and outer
 
 ## Related Posts
 
-- [oscar nominations 2014 best dress](https://celebs.allwomenstalk.com/of-the-best-dressed-celebs-at-the-oscars/)
-- [figure skating uniforms](https://fashion.allwomenstalk.com/of-the-most-gorgeous-ice-skating-costumes-of-the-sochi-winter-olympics/)
-- [sheer panels dress](https://fashion.allwomenstalk.com/sheer-panel-outfits-that-took-over-the-red-carpet/)
-- [best movie contenders 2014](https://movies.allwomenstalk.com/main-contenders-for-the-oscars/)
 - [celebrity travel outfits](https://celebs.allwomenstalk.com/stylish-and-wearable-celebrity-airport-outfits-who-wore-it-best/)
+- [best movie contenders 2014](https://movies.allwomenstalk.com/main-contenders-for-the-oscars/)
 - [best dressed couple](https://celebs.allwomenstalk.com/best-dressed-couples-at-the-oscars/)
+- [figure skating uniforms](https://fashion.allwomenstalk.com/of-the-most-gorgeous-ice-skating-costumes-of-the-sochi-winter-olympics/)
+- [oscar nominations 2014 best dress](https://celebs.allwomenstalk.com/of-the-best-dressed-celebs-at-the-oscars/)
 - [who are divas in music](https://music.allwomenstalk.com/best-musical-divas-in-the-last-decade/)
-- [celebrities in suit](https://celebs.allwomenstalk.com/celebs-who-rocked-a-suit-on-the-red-carpet/)
-- [famous band t shirts](https://celebs.allwomenstalk.com/celebrities-wearing-band-t-shirts-who-wore-it-best/)
 - [short celebrity sequin dress](https://celebs.allwomenstalk.com/celebrities-wearing-sparkly-sequin-dresses-who-wore-it-best/)
+- [famous band t shirts](https://celebs.allwomenstalk.com/celebrities-wearing-band-t-shirts-who-wore-it-best/)
+- [sheer panels dress](https://fashion.allwomenstalk.com/sheer-panel-outfits-that-took-over-the-red-carpet/)
+- [celebrities in suit](https://celebs.allwomenstalk.com/celebs-who-rocked-a-suit-on-the-red-carpet/)
 - [10 Celebrities in Red Dresses – Who Wore It Best?](https://celebs.allwomenstalk.com/celebrities-in-red-dresses-who-wore-it-best/)
 - [10 Celebrities in Chequered Clothes – Who Wore It ...](https://celebs.allwomenstalk.com/celebrities-in-chequered-clothes-who-wore-it-best/)
 

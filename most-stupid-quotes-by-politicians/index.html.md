@@ -3,7 +3,7 @@ title: "15 Most Stupid Quotes by Politicians ..."
 description: "Barack Obama on Bowling; Sarah Palin on the Koreas; Joe Biden on Hillary Clinton; More from Joe Biden; Donald Rumsfeld on Intelligence; More ..."
 url: "https://celebs.allwomenstalk.com/most-stupid-quotes-by-politicians/"
 category: "celebs"
-last_updated: "2026-08-01"
+last_updated: "2026-09-03"
 ---
 
 # 15 Most Stupid Quotes by Politicians ...
@@ -74,16 +74,16 @@ Well, this is just a very small selection of many – after having read this, yo
 
 ## Related Posts
 
-- [random expressions](https://lifestyle.allwomenstalk.com/commonly-misused-words-and-expressions/)
-- [the ball is in your court relationship](https://love.allwomenstalk.com/things-to-say-or-not-to-say-when-texting-boys/)
-- [cute apology](https://love.allwomenstalk.com/cute-ways-to-say-sorry/)
 - [sayings like awesome sauce](https://lifestyle.allwomenstalk.com/phrases-and-words-people-need-to-stop-using/)
+- [paris color primped previous](https://lifestyle.allwomenstalk.com/more-idioms-you-should-know/)
+- [cute apology](https://love.allwomenstalk.com/cute-ways-to-say-sorry/)
+- [j' adore meaning](https://parenting.allwomenstalk.com/unusual-baby-names/)
+- [the ball is in your court relationship](https://love.allwomenstalk.com/things-to-say-or-not-to-say-when-texting-boys/)
+- [random expressions](https://lifestyle.allwomenstalk.com/commonly-misused-words-and-expressions/)
+- [gheegle in a sentence](https://travel.allwomenstalk.com/fantastic-untranslatable-words/)
+- [wet blanket expression](https://lifestyle.allwomenstalk.com/idioms-you-need-to-know/)
 - [english words that come from other languages](https://books.allwomenstalk.com/common-english-words-adopted-from-other-languages/)
 - [absquatulate sentence](https://lifestyle.allwomenstalk.com/new-words-to-use-this-week/)
-- [j' adore meaning](https://parenting.allwomenstalk.com/unusual-baby-names/)
-- [wet blanket expression](https://lifestyle.allwomenstalk.com/idioms-you-need-to-know/)
-- [gheegle in a sentence](https://travel.allwomenstalk.com/fantastic-untranslatable-words/)
-- [paris color primped previous](https://lifestyle.allwomenstalk.com/more-idioms-you-should-know/)
 - [8 Worst Books Written by Celebs ...](https://celebs.allwomenstalk.com/8-worst-books-written-by-celebs/)
 - [The Kaiser of Quotable Quotes ...](https://allwomenstalk.com/the-kaiser-of-quotable-quotes/)
 

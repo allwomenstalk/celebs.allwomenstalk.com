@@ -3,7 +3,7 @@ title: "Kim Kardashian and Other Celebs with Killer Curves ..."
 description: "Kim Kardashian: Reality Star; Christina Hendricks: Actress; Amber Rose: Model; Christina Aguilera: Singer; Adele: Singer; More ..."
 url: "https://celebs.allwomenstalk.com/celebs-with-killer-curves/"
 category: "celebs"
-last_updated: "2026-08-01"
+last_updated: "2026-09-03"
 ---
 
 # Kim Kardashian and Other Celebs with Killer Curves ...
@@ -62,16 +62,16 @@ Curves make a woman irresistible. But based on the 8 gorgeous women above it als
 
 ## Related Posts
 
-- [good hearted celebrities](https://celebs.allwomenstalk.com/nicest-celebrities-who-have-a-heart-of-gold/)
-- [what celebrity named their kid pillow](https://celebs.allwomenstalk.com/off-the-wall-celebrity-baby-names/)
-- [embarrassing moments celebrities](https://celebs.allwomenstalk.com/most-embarrassing-celeb-moments-youve-got-to-hear-about/)
-- [7 Sexy Leading Men from Britain ...](https://movies.allwomenstalk.com/sexy-leading-men-from-britain/)
-- [disney fairytale weddings divorce](https://wedding.allwomenstalk.com/celeb-brides-youd-love-to-see-walk-down-the-aisle/)
-- [best mugshots ever](https://celebs.allwomenstalk.com/top-celebrity-mug-shots/)
-- [is nick cage a good actor](https://movies.allwomenstalk.com/worst-actors-of-our-time/)
-- [funny quotes celebrities](https://celebs.allwomenstalk.com/stupidest-quotes-celebrities-have-blurted-out/)
 - [omar epps skirt](https://celebs.allwomenstalk.com/adorable-celebs-that-should-be-together/)
+- [good hearted celebrities](https://celebs.allwomenstalk.com/nicest-celebrities-who-have-a-heart-of-gold/)
+- [is nick cage a good actor](https://movies.allwomenstalk.com/worst-actors-of-our-time/)
+- [disney fairytale weddings divorce](https://wedding.allwomenstalk.com/celeb-brides-youd-love-to-see-walk-down-the-aisle/)
 - [celebrity holiday cards](https://allwomenstalk.com/celebrity-holiday-cards-pick-your-favorite/)
+- [embarrassing moments celebrities](https://celebs.allwomenstalk.com/most-embarrassing-celeb-moments-youve-got-to-hear-about/)
+- [funny quotes celebrities](https://celebs.allwomenstalk.com/stupidest-quotes-celebrities-have-blurted-out/)
+- [what celebrity named their kid pillow](https://celebs.allwomenstalk.com/off-the-wall-celebrity-baby-names/)
+- [best mugshots ever](https://celebs.allwomenstalk.com/top-celebrity-mug-shots/)
+- [7 Sexy Leading Men from Britain ...](https://movies.allwomenstalk.com/sexy-leading-men-from-britain/)
 - [More on Celebs & Their Weight ...](https://allwomenstalk.com/more-on-celebs-their-weight/)
 - [Oh That Cellulite of the Stars ...](https://allwomenstalk.com/oh-that-cellulite-of-the-stars/)
 

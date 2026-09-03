@@ -3,7 +3,7 @@ title: "Whoa! Celebrity Doppelgängers from Different Generations ..."
 description: "Leelee Sobieski & Helen Hunt; Lily Collins & Audrey Hepburn; Julianne Hough & Meg Ryan; Harry Styles & Mick Jagger; Ian Somerhalder & Rob Lowe; More ..."
 url: "https://celebs.allwomenstalk.com/whoa-celebrity-doppelgangers-from-different-generations/"
 category: "celebs"
-last_updated: "2026-08-01"
+last_updated: "2026-09-03"
 ---
 
 # Whoa! Celebrity Doppelgängers from Different Generations ...
@@ -48,16 +48,16 @@ Which of these blew your mind the most? Can you think of any other celebrity dop
 
 ## Related Posts
 
-- [celebrities photobombing](https://celebs.allwomenstalk.com/celebrity-photobombs-thatll-make-you-lol/)
-- [florence welch natural hair color](https://hair.allwomenstalk.com/these-fiery-celeb-redheads-will-finally-convince-you-to-take-the-plunge/)
-- [cameron diaz snoop high school](https://celebs.allwomenstalk.com/celebrities-who-went-to-high-school-together/)
-- [selena gomez no makeup selfie](https://celebs.allwomenstalk.com/what-do-these-celebrities-look-like-without-makeup/)
-- [la maximalist eyeshadow primped previous](https://celebs.allwomenstalk.com/whoa-who-knew-these-celebs-are-the-same-age/)
-- [most influential teenagers](https://celebs.allwomenstalk.com/in-case-you-missed-it-these-are-times-most-influential-teens/)
-- [celebrities with cat](https://celebs.allwomenstalk.com/celebrities-who-are-major-cat-ladies/)
-- [what would you do if you meet your favourite celeb...](https://celebs.allwomenstalk.com/tricks-that-might-help-you-meet-your-favorite-celebrity/)
 - [celebrities just like us](https://celebs.allwomenstalk.com/just-like-us-celebrity-couples-who-love-a-little-pda/)
+- [cameron diaz snoop high school](https://celebs.allwomenstalk.com/celebrities-who-went-to-high-school-together/)
 - [barrie james o'neill height](https://celebs.allwomenstalk.com/celebrity-couples-who-split-in/)
+- [selena gomez no makeup selfie](https://celebs.allwomenstalk.com/what-do-these-celebrities-look-like-without-makeup/)
+- [celebrities photobombing](https://celebs.allwomenstalk.com/celebrity-photobombs-thatll-make-you-lol/)
+- [what would you do if you meet your favourite celeb...](https://celebs.allwomenstalk.com/tricks-that-might-help-you-meet-your-favorite-celebrity/)
+- [most influential teenagers](https://celebs.allwomenstalk.com/in-case-you-missed-it-these-are-times-most-influential-teens/)
+- [la maximalist eyeshadow primped previous](https://celebs.allwomenstalk.com/whoa-who-knew-these-celebs-are-the-same-age/)
+- [florence welch natural hair color](https://hair.allwomenstalk.com/these-fiery-celeb-redheads-will-finally-convince-you-to-take-the-plunge/)
+- [celebrities with cat](https://celebs.allwomenstalk.com/celebrities-who-are-major-cat-ladies/)
 - [Look-alikes: Angelina and Claire!](https://allwomenstalk.com/look-alikes-angelina-and-claire/)
 - [Smile like a Celebrity!](https://allwomenstalk.com/smile-like-a-celebrity/)
 

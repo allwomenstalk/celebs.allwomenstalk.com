@@ -3,7 +3,7 @@ title: "Hot Australian Hunks I Wouldn't Mind Getting down under ..."
 description: "Alex O’Loughlin; Chris Hemsworth; Liam Hemsworth; Hugh Jackman; Ryan Kwanten; More ..."
 url: "https://celebs.allwomenstalk.com/hot-australian-hunks-i-wouldnt-mind-getting-down-under/"
 category: "celebs"
-last_updated: "2026-08-01"
+last_updated: "2026-09-03"
 ---
 
 # Hot Australian Hunks I Wouldn't Mind Getting down under ...
@@ -68,13 +68,13 @@ I wouldn’t describe him as hot and hunky per se, but I happen to have a bit of
 
 ## Related Posts
 
-- [vikki carr songs](https://music.allwomenstalk.com/types-of-dances-to-learn-before-you-die/)
-- [martun luther king](https://lifestyle.allwomenstalk.com/great-leaders-in-history-who-have-changed-the-world/)
 - [2 disney characters](https://movies.allwomenstalk.com/disney-characters-who-would-make-the-best-dates/)
-- [scariest rollercoaster ride](https://travel.allwomenstalk.com/terrifying-theme-park-rides-most-people-wont-dare-to-go-on/)
 - [brain game shows](https://movies.allwomenstalk.com/watch-these-things-on-netflix-to-boost-your-brain-power/)
-- [funny bone youtube](https://funny.allwomenstalk.com/youtube-channels-guaranteed-to-tickle-your-funny-bone/)
 - [real wizards](https://lifestyle.allwomenstalk.com/real-wizards-who-would-have-been-a-match-for-harry-potter/)
+- [martun luther king](https://lifestyle.allwomenstalk.com/great-leaders-in-history-who-have-changed-the-world/)
+- [scariest rollercoaster ride](https://travel.allwomenstalk.com/terrifying-theme-park-rides-most-people-wont-dare-to-go-on/)
+- [funny bone youtube](https://funny.allwomenstalk.com/youtube-channels-guaranteed-to-tickle-your-funny-bone/)
+- [vikki carr songs](https://music.allwomenstalk.com/types-of-dances-to-learn-before-you-die/)
 - [harry potter bar toronto](https://movies.allwomenstalk.com/a-harry-potter-themed-bar-just-opened-its-doors/)
 - [game of thrones meme gif](https://fashion.allwomenstalk.com/here-are-the-game-of-thrones-gifs-thatll-describe-your-life-perfectly/)
 - [ambivantly](https://inspiration.allwomenstalk.com/im-forever-ambivalently-yours/)

@@ -3,7 +3,7 @@ title: "7 Actresses Who Should Play Disney Princesses in Live-Action Movies ..."
 description: "Zooey Deschanel as Snow White; Bella Thorne as Ariel; Ariel Winter or Selena Gomez as Belle; Miley Cyrus as Rapunzel; Rihanna as Tiana; More ..."
 url: "https://celebs.allwomenstalk.com/actresses-who-should-play-disney-princesses-in-live-action-movies/"
 category: "celebs"
-last_updated: "2026-08-01"
+last_updated: "2026-09-03"
 ---
 
 # 7 Actresses Who Should Play Disney Princesses in Live\-Action Movies ...
@@ -56,16 +56,16 @@ The TV series "Once Upon a Time" has done a pretty good job bringing some Disney
 
 ## Related Posts
 
-- [most loved disney princess](https://movies.allwomenstalk.com/of-the-best-disney-princesses-that-we-absolutely-adore/)
 - [glamorous jobs that pay well](https://lifestyle.allwomenstalk.com/glamorous-careers-wed-all-kill-to-have/)
-- [tvwomen r34](https://movies.allwomenstalk.com/funniest-tv-women-that-you-just-have-to-watch/)
 - [best tv moms of all time](https://movies.allwomenstalk.com/of-the-best-tv-moms-that-you-wish-were-yours/)
-- [tv shows with strong female leads](https://movies.allwomenstalk.com/strong-female-characters-on-tv-who-are-truly-inspiring/)
-- [best fashion magazine subscriptions](https://lifestyle.allwomenstalk.com/most-fabulous-lifestyle-magazines-for-women/)
-- [vera farmiga sister actress](https://celebs.allwomenstalk.com/underrated-actresses-who-deserve-more-attention/)
+- [tvwomen r34](https://movies.allwomenstalk.com/funniest-tv-women-that-you-just-have-to-watch/)
 - [supermodels on trampoline](https://celebs.allwomenstalk.com/amazing-supermodels-i-want-to-be-friends-with/)
 - [7 Kick-Ass Celebrities Who Support Women's Rights ...](https://celebs.allwomenstalk.com/kick-ass-celebrities-who-support-womens-rights/)
 - [margareta av anjou](https://celebs.allwomenstalk.com/controversial-queens-we-still-talk-about-today/)
+- [best fashion magazine subscriptions](https://lifestyle.allwomenstalk.com/most-fabulous-lifestyle-magazines-for-women/)
+- [most loved disney princess](https://movies.allwomenstalk.com/of-the-best-disney-princesses-that-we-absolutely-adore/)
+- [vera farmiga sister actress](https://celebs.allwomenstalk.com/underrated-actresses-who-deserve-more-attention/)
+- [tv shows with strong female leads](https://movies.allwomenstalk.com/strong-female-characters-on-tv-who-are-truly-inspiring/)
 - [7 Strong and Inspiring Female Characters from Movi...](https://movies.allwomenstalk.com/7-strong-and-inspiring-female-characters-from-movies/)
 - [7 Wonderful Black Actresses ...](https://celebs.allwomenstalk.com/7-wonderful-black-actresses/)
 

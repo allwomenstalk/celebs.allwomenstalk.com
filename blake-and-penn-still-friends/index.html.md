@@ -3,7 +3,7 @@ title: "3 Photos of Blake and Penn Still Friends ..."
 description: "Stay ahead, stay chic. Trusted guides on beauty, wellness, fashion, and everything that defines today's empowered woman."
 url: "https://celebs.allwomenstalk.com/blake-and-penn-still-friends/"
 category: "celebs"
-last_updated: "2026-08-01"
+last_updated: "2026-09-03"
 ---
 
 # 3 Photos of Blake and Penn Still Friends ...
@@ -19,16 +19,16 @@ City: [New York](https://celebs.allwomenstalk.com/tag/new-york/)
 
 ## Related Posts
 
-- [colleen locklear](https://celebs.allwomenstalk.com/heather-locklear-takes-sis-shopping/)
-- [christina aguilera kids](https://celebs.allwomenstalk.com/christina-takes-max-shopping/)
-- [justin holding selena's hand](https://celebs.allwomenstalk.com/selena-justin-hold-hands-almost/)
-- [4 Photos of Lilly Allen's Growing Belly ...](https://celebs.allwomenstalk.com/lilly-allens-growing-belly/)
-- [katy naughty](https://celebs.allwomenstalk.com/katy-perry-to-get-naughty-with-ted-mosby/)
-- [kanye and kim music video](https://celebs.allwomenstalk.com/kim-kardashian-makes-a-video-with-kanye-west/)
-- [katy perry snow white](https://celebs.allwomenstalk.com/katy-perry-channels-the-roaring-20s-for-ghd/)
-- [Justin the New Man in Olivia’s Life…](https://celebs.allwomenstalk.com/justin-the-new-man-in-olivias-life/)
 - [Angelina Reveals Her Latest Talent…](https://celebs.allwomenstalk.com/angelina-reveals-her-latest-talent/)
+- [Justin the New Man in Olivia’s Life…](https://celebs.allwomenstalk.com/justin-the-new-man-in-olivias-life/)
+- [katy perry snow white](https://celebs.allwomenstalk.com/katy-perry-channels-the-roaring-20s-for-ghd/)
+- [justin holding selena's hand](https://celebs.allwomenstalk.com/selena-justin-hold-hands-almost/)
+- [katy naughty](https://celebs.allwomenstalk.com/katy-perry-to-get-naughty-with-ted-mosby/)
 - [kristen stewart](https://celebs.allwomenstalk.com/kristen-stewart-gets-edgy-for-vogue-italia/)
+- [kanye and kim music video](https://celebs.allwomenstalk.com/kim-kardashian-makes-a-video-with-kanye-west/)
+- [4 Photos of Lilly Allen's Growing Belly ...](https://celebs.allwomenstalk.com/lilly-allens-growing-belly/)
+- [christina aguilera kids](https://celebs.allwomenstalk.com/christina-takes-max-shopping/)
+- [colleen locklear](https://celebs.allwomenstalk.com/heather-locklear-takes-sis-shopping/)
 - [1 Photos of Renee Leaves ...](https://celebs.allwomenstalk.com/renee-leaves/)
 - [3 Photos of Perry Leaves for Letterman ...](https://celebs.allwomenstalk.com/perry-leaves-for-letterman/)
 

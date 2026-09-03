@@ -3,7 +3,7 @@ title: "7 Amazing Supermodels I Want to Be Friends with ..."
 description: "Cara Delevingne; Miranda Kerr; Kate Upton; Karlie Kloss; Liu Wen; More ..."
 url: "https://celebs.allwomenstalk.com/amazing-supermodels-i-want-to-be-friends-with/"
 category: "celebs"
-last_updated: "2026-08-01"
+last_updated: "2026-09-03"
 ---
 
 # 7 Amazing Supermodels I Want to Be Friends with ...
@@ -58,14 +58,14 @@ These supermodels are redefining the type of girl that can make it in the fashio
 
 - [princess movie characters](https://movies.allwomenstalk.com/unofficial-disney-princesses-that-you-might-not-know-about/)
 - [tv shows with strong female leads](https://movies.allwomenstalk.com/strong-female-characters-on-tv-who-are-truly-inspiring/)
-- [is geena davis nice?](https://celebs.allwomenstalk.com/actresses-that-speak-their-minds/)
+- [50s models](https://celebs.allwomenstalk.com/most-beautiful-and-inspiring-over-50s-models/)
+- [on wednesdays we wear pink date](https://teen.allwomenstalk.com/mean-girls-references-you-need-to-be-aware-of-for-any-conversation/)
 - [most beautiful actresses under 25](https://celebs.allwomenstalk.com/wonderful-actresses-under-25-to-look-up-to/)
-- [red dress blair waldorf](https://movies.allwomenstalk.com/kick-ass-female-characters-that-are-truly-inspiring/)
 - [vera farmiga sister actress](https://celebs.allwomenstalk.com/underrated-actresses-who-deserve-more-attention/)
 - [best tv moms of all time](https://movies.allwomenstalk.com/of-the-best-tv-moms-that-you-wish-were-yours/)
-- [on wednesdays we wear pink date](https://teen.allwomenstalk.com/mean-girls-references-you-need-to-be-aware-of-for-any-conversation/)
-- [50s models](https://celebs.allwomenstalk.com/most-beautiful-and-inspiring-over-50s-models/)
+- [is geena davis nice?](https://celebs.allwomenstalk.com/actresses-that-speak-their-minds/)
 - [angelinia jolie](https://celebs.allwomenstalk.com/iconic-actresses-we-love-to-watch-on-the-big-screen/)
+- [red dress blair waldorf](https://movies.allwomenstalk.com/kick-ass-female-characters-that-are-truly-inspiring/)
 - [25 Hottest Supermodels ...](https://celebs.allwomenstalk.com/25-hottest-supermodels/)
 - [7 Celebrities I Would like to Hang with ...](https://celebs.allwomenstalk.com/7-celebrities-i-would-like-to-hang-with/)
 

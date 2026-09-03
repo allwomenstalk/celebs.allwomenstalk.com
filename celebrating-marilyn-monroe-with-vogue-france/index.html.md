@@ -3,7 +3,7 @@ title: "What Really Happened Behind-the-Scenes with Marilyn Monroe"
 description: "The Iconic Pink Satin Dress; Behind-the-Scenes Magic; Embracing Her Playful Side; The Timeless Red Dress; Relaxed Yet Glamorous; More ..."
 url: "https://celebs.allwomenstalk.com/celebrating-marilyn-monroe-with-vogue-france/"
 category: "celebs"
-last_updated: "2026-08-01"
+last_updated: "2026-09-03"
 ---
 
 # What Really Happened Behind\-the\-Scenes with Marilyn Monroe

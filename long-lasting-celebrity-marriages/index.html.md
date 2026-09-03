@@ -3,7 +3,7 @@ title: "15 Long Lasting Celebrity Marriages ..."
 description: "Sarah Jessica Parker and Matthew Broderick; Iman and David Bowie; Kevin Bacon and Kyra Sedgwick; Tom Hanks and Rita Wilson; Gwen Stefani and Gavin Rossdale; More ..."
 url: "https://celebs.allwomenstalk.com/long-lasting-celebrity-marriages/"
 category: "celebs"
-last_updated: "2026-08-01"
+last_updated: "2026-09-03"
 ---
 
 # 15 Long Lasting Celebrity Marriages ...
@@ -104,16 +104,16 @@ Long lasting celebrity marriages may not always make headlines, but whilst other
 
 ## Related Posts
 
-- [gordon rasmsay](https://celebs.allwomenstalk.com/celebs-youre-ashamed-to-admit-you-have-a-crush-on/)
-- [taurus celebrities male rappers](https://movies.allwomenstalk.com/rappers-turned-actors/)
-- [gamer celebrities](https://lifestyle.allwomenstalk.com/celebrity-girl-gamers/)
-- [site:fashion.allwomenstalk.com](https://fashion.allwomenstalk.com/unlikely-celebrity-style-icons/)
-- [male british actors in their 40s](https://celebs.allwomenstalk.com/sexiest-male-british-actors/)
-- [boys singer](https://celebs.allwomenstalk.com/hottest-male-singers/)
-- [trends started by celebrities](https://celebs.allwomenstalk.com/trends-started-by-celebrities/)
-- [amandla stenberg as a kid](https://movies.allwomenstalk.com/up-and-coming-actresses-to-look-out-for/)
 - [sky ferreira michael jackson](https://lifestyle.allwomenstalk.com/music-stars-to-watch-in/)
+- [gordon rasmsay](https://celebs.allwomenstalk.com/celebs-youre-ashamed-to-admit-you-have-a-crush-on/)
+- [site:fashion.allwomenstalk.com](https://fashion.allwomenstalk.com/unlikely-celebrity-style-icons/)
+- [trends started by celebrities](https://celebs.allwomenstalk.com/trends-started-by-celebrities/)
+- [male british actors in their 40s](https://celebs.allwomenstalk.com/sexiest-male-british-actors/)
+- [gamer celebrities](https://lifestyle.allwomenstalk.com/celebrity-girl-gamers/)
+- [boys singer](https://celebs.allwomenstalk.com/hottest-male-singers/)
+- [taurus celebrities male rappers](https://movies.allwomenstalk.com/rappers-turned-actors/)
 - [alanis morissette spouse](https://celebs.allwomenstalk.com/celebrity-couples-who-never-made-it-down-the-aisle/)
+- [amandla stenberg as a kid](https://movies.allwomenstalk.com/up-and-coming-actresses-to-look-out-for/)
 - [7 Biggest Celebrity Weddings ...](https://wedding.allwomenstalk.com/biggest-celebrity-weddings/)
 - [25 Most Expensive Celebrity Weddings of All Time ....](https://celebs.allwomenstalk.com/25-most-expensive-celebrity-weddings/)
 

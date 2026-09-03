@@ -3,7 +3,7 @@ title: "10 Surprising Fun Facts About John Oliver and His Hit Satirical Show"
 description: "John Oliver's Academic Pursuits Before Comedy; From Stand-up to 'The Daily Show': Oliver's Rise to Fame; The Origin of the 'Last Week Tonight' Concept; The Voice of Zazu: An Unexpected Disney Connection; Emmy Wins and Critical Acclaim; More ..."
 url: "https://celebs.allwomenstalk.com/fun-facts-john-oliver-last-week-tonight/"
 category: "celebs"
-last_updated: "2026-08-01"
+last_updated: "2026-09-03"
 ---
 
 # 10 Surprising Fun Facts About John Oliver and His Hit Satirical Show
@@ -59,14 +59,14 @@ the pinnacle arrival in satirical television with [Last Week Tonight](#3). Wheth
 
 ## Related Posts
 
-- [Short Story : Attack of the Foyer ...](https://books.allwomenstalk.com/short-story-called-attack-of-the-foyer/)
-- [twilight character names](https://twilight.allwomenstalk.com/5-interesting-twilight-characters/)
-- [ginger vampire twilight](https://twilight.allwomenstalk.com/5-cool-werewolves/)
-- [cheesy proposals](https://wedding.allwomenstalk.com/funny-proposals-went-wrong-videos/)
+- [5 Things about True Blood ...](https://twilight.allwomenstalk.com/5-things-about-true-blood/)
 - [mythical animals that can fly](https://twilight.allwomenstalk.com/5-amazing-creatures-that-fly/)
 - [5 Confessions of a Twilight Addict ...](https://twilight.allwomenstalk.com/5-confessions-of-a-twilight-addict/)
+- [twilight character names](https://twilight.allwomenstalk.com/5-interesting-twilight-characters/)
+- [cheesy proposals](https://wedding.allwomenstalk.com/funny-proposals-went-wrong-videos/)
 - [Fewer Flight Delays Due to Ash Clouds ...](https://travel.allwomenstalk.com/fewer-flight-delays-due-to-ash-clouds/)
-- [5 Things about True Blood ...](https://twilight.allwomenstalk.com/5-things-about-true-blood/)
+- [Short Story : Attack of the Foyer ...](https://books.allwomenstalk.com/short-story-called-attack-of-the-foyer/)
+- [ginger vampire twilight](https://twilight.allwomenstalk.com/5-cool-werewolves/)
 - [seth clearwater age](https://twilight.allwomenstalk.com/top-5-werewolves-in-twilight/)
 - [twilight confessions](https://twilight.allwomenstalk.com/5-confessions-from-twilight-fans/)
 - [Obama on Mythbusters ...](https://celebs.allwomenstalk.com/obama-on-mythbusters/)

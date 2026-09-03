@@ -3,7 +3,7 @@ title: "7 Celebrity Men That Look Better with Age ..."
 description: "George Clooney; Daniel Craig; Johnny Depp; Daniel Radcliffe; Pierce Brosnan; More ..."
 url: "https://celebs.allwomenstalk.com/celebrity-men-that-look-better-with-age/"
 category: "celebs"
-last_updated: "2026-08-01"
+last_updated: "2026-09-03"
 ---
 
 # 7 Celebrity Men That Look Better with Age ...
@@ -58,16 +58,16 @@ Top Photo Credit: [www.bourbonblog.com](https://www.bourbonblog.com/wp-content/u
 
 ## Related Posts
 
-- [celebrities with body parts insured](https://celebs.allwomenstalk.com/top-celebrity-insured-body-parts/)
-- [is mario lopez still married](https://celebs.allwomenstalk.com/extremely-short-celebrity-marriages/)
-- [series with hot male leads](https://celebs.allwomenstalk.com/hottest-actors-from-tv-shows/)
 - [famous people who smoke weed](https://celebs.allwomenstalk.com/celebrities-who-smoke-weed/)
-- [iq actors](https://celebs.allwomenstalk.com/25-smartest-celebrities/)
-- [alpha male example](https://celebs.allwomenstalk.com/adorable-and-incredibly-gorgeous-alpha-males-in-hollywood/)
-- [7 Celebrities I Would like to Hang with ...](https://celebs.allwomenstalk.com/7-celebrities-i-would-like-to-hang-with/)
-- [celebritytrends](https://celebs.allwomenstalk.com/awfully-outrageous-celebrity-trends-i-hate/)
-- [sexy men hollywood](https://celebs.allwomenstalk.com/hottest-men-in-hollywood/)
+- [series with hot male leads](https://celebs.allwomenstalk.com/hottest-actors-from-tv-shows/)
 - [celebrity sez tapes](https://celebs.allwomenstalk.com/most-infamous-celebrity-sex-tapes/)
+- [sexy men hollywood](https://celebs.allwomenstalk.com/hottest-men-in-hollywood/)
+- [iq actors](https://celebs.allwomenstalk.com/25-smartest-celebrities/)
+- [7 Celebrities I Would like to Hang with ...](https://celebs.allwomenstalk.com/7-celebrities-i-would-like-to-hang-with/)
+- [alpha male example](https://celebs.allwomenstalk.com/adorable-and-incredibly-gorgeous-alpha-males-in-hollywood/)
+- [celebritytrends](https://celebs.allwomenstalk.com/awfully-outrageous-celebrity-trends-i-hate/)
+- [is mario lopez still married](https://celebs.allwomenstalk.com/extremely-short-celebrity-marriages/)
+- [celebrities with body parts insured](https://celebs.allwomenstalk.com/top-celebrity-insured-body-parts/)
 - [40 and Fabulous: 7 Female Celebrities That Look Be...](https://celebs.allwomenstalk.com/and-fabulous-7-female-celebrities-that-look-better-than-ever/)
 - [8 Celebrities Who Have Aged Beautifully ...](https://celebs.allwomenstalk.com/celebrities-who-have-aged-beautifully/)
 

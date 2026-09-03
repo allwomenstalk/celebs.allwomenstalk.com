@@ -3,7 +3,7 @@ title: "9 Amazing Celebrity Wedding Dresses ..."
 description: "Grace Kelly; Nicole Richie; Princess Diana; Jacqueline Bouvier Kennedy; Katie Holmes; More ..."
 url: "https://celebs.allwomenstalk.com/amazing-celebrity-wedding-dresses/"
 category: "celebs"
-last_updated: "2026-08-01"
+last_updated: "2026-09-03"
 ---
 
 # 9 Amazing Celebrity Wedding Dresses ...
@@ -78,16 +78,16 @@ Top Photo Credit: instyle.com_
 
 ## Related Posts
 
-- [dress showing leg](https://fashion.allwomenstalk.com/sexy-leg-showing-dresses-to-try/)
-- [7 Sweet Tiered Dresses ...](https://fashion.allwomenstalk.com/sweet-tiered-dresses/)
-- [site:fashion.allwomenstalk.com](https://fashion.allwomenstalk.com/slip-dresses/)
-- [9 Cute Mod Dresses ...](https://fashion.allwomenstalk.com/cute-mod-dresses/)
 - [site:fashion.allwomenstalk.com](https://fashion.allwomenstalk.com/jersey-dresses/)
-- [wedding matron dresses](https://allwomenstalk.com/matron-of-honor-role-and-dress/)
-- [8 Beautiful Bustier Dresses ...](https://fashion.allwomenstalk.com/beautiful-bustier-dresses/)
 - [modcloth i love your dress](https://fashion.allwomenstalk.com/new-maxi-dresses-i-love/)
+- [wedding matron dresses](https://allwomenstalk.com/matron-of-honor-role-and-dress/)
+- [9 Cute Mod Dresses ...](https://fashion.allwomenstalk.com/cute-mod-dresses/)
 - [womens tank maxi dresses](https://fashion.allwomenstalk.com/maxi-tank-dresses/)
+- [site:fashion.allwomenstalk.com](https://fashion.allwomenstalk.com/slip-dresses/)
+- [8 Beautiful Bustier Dresses ...](https://fashion.allwomenstalk.com/beautiful-bustier-dresses/)
+- [7 Sweet Tiered Dresses ...](https://fashion.allwomenstalk.com/sweet-tiered-dresses/)
 - [8 Fabulous Classic Looks Kate Middleton Would Wear...](https://celebs.allwomenstalk.com/fabulous-classic-looks-kate-middleton-would-wear-to-a-holiday-party/)
+- [dress showing leg](https://fashion.allwomenstalk.com/sexy-leg-showing-dresses-to-try/)
 - [7 Wonderful Wedding Dresses from Etsy ...](https://wedding.allwomenstalk.com/7-wonderful-wedding-dresses-from-etsy/)
 - [Ten Most Fab Vera Wang Wedding Gowns ...](https://allwomenstalk.com/most-fabulous-vera-wang-wedding-gowns-bridal-collection/)
 
