@@ -1,9 +1,9 @@
 ---
 title: "7 Funkiest Celebrity Hairstyles ..."
-description: "Lady Gaga Everyday; Pink's Pretty in Pink Hair; Amy Winehouse's Beehive; Kelly Osbourne's Lavender Locks; Rihanna's Fire Red 'Hawk; More ..."
+description: "Lady Gaga Everyday; Pink's Pretty in Pink Hair; Amy Winehouse's Beehive; Kelly Osbourne's Lavender Locks; Rihanna's Fire Red 'Hawk"
 url: "https://celebs.allwomenstalk.com/7-funkiest-celebrity-hairstyles/"
 category: "celebs"
-last_updated: "2026-09-03"
+last_updated: "2026-11-13"
 ---
 
 # 7 Funkiest Celebrity Hairstyles ...
@@ -46,14 +46,14 @@ Top Photo Credit: [HouseofCole](https://www.flickr.com/photos/houseofcole/430380
 
 - [rock short hair](https://hair.allwomenstalk.com/ways-to-rock-a-pixie-cut/)
 - [ochre 7 comic](https://hair.allwomenstalk.com/7-ways-to-jazz-up-your-hair-color/)
-- [hairstyles for school trip](https://hair.allwomenstalk.com/7-fun-hairstyles-for-school/)
-- [princess hairstyle for little girl](https://hair.allwomenstalk.com/great-blogs-on-hairstyles-for-little-girls/)
-- [elegantly fashionable](https://hair.allwomenstalk.com/elegantly-fashionable-ways-to-style-your-curly-hair/)
-- [balayage hair](https://hair.allwomenstalk.com/top-celebrity-hair-styles-of-today/)
-- [celebrity haircuts](https://hair.allwomenstalk.com/fabulous-celebrity-hair-cuts/)
 - [wings in your hair](https://hair.allwomenstalk.com/pretty-things-for-your-hair-from-mod-cloth/)
 - [cute ponytails](https://hair.allwomenstalk.com/ponytails-that-look-adorable/)
 - [paris le smoky blinged and brilliant](https://hair.allwomenstalk.com/enchantingly-creative-ponytail-hair-styles/)
+- [elegantly fashionable](https://hair.allwomenstalk.com/elegantly-fashionable-ways-to-style-your-curly-hair/)
+- [hairstyles for school trip](https://hair.allwomenstalk.com/7-fun-hairstyles-for-school/)
+- [balayage hair](https://hair.allwomenstalk.com/top-celebrity-hair-styles-of-today/)
+- [celebrity haircuts](https://hair.allwomenstalk.com/fabulous-celebrity-hair-cuts/)
+- [princess hairstyle for little girl](https://hair.allwomenstalk.com/great-blogs-on-hairstyles-for-little-girls/)
 - [7 Classic Hairstyles to Try ...](https://hair.allwomenstalk.com/7-classic-hairstyles-to-try/)
 - [10 Hottest Celebrity Hairstyles ...](https://hair.allwomenstalk.com/hottest-celebrity-hairstyles/)
 

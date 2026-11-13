@@ -1,9 +1,9 @@
 ---
 title: "Chilean Miner Runs the NY Marathon ..."
-description: "Stay ahead, stay chic. Trusted guides on beauty, wellness, fashion, and everything that defines today's empowered woman."
+description: "The Chilean miner, Edison Pena, ran the NY Marathon today along with a host of other celebrities. Edison Pena, was one of the miners stuck underground for 69…"
 url: "https://celebs.allwomenstalk.com/chilean-miner-runs-the-ny-marathon/"
 category: "celebs"
-last_updated: "2026-09-03"
+last_updated: "2026-11-13"
 ---
 
 # Chilean Miner Runs the NY Marathon ...

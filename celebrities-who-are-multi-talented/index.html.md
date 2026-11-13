@@ -1,9 +1,9 @@
 ---
 title: "11 Multi-Talented Celebrities: Stars Who Are Actors, Singers, and Dancers"
-description: "Justin Timberlake; Prince; Ron Howard; Eddie Murphy; Penny Marshall; More ..."
+description: "Justin Timberlake; Prince; Ron Howard; Eddie Murphy; Penny Marshall"
 url: "https://celebs.allwomenstalk.com/celebrities-who-are-multi-talented/"
 category: "celebs"
-last_updated: "2026-09-03"
+last_updated: "2026-11-13"
 ---
 
 # 11 Multi\-Talented Celebrities: Stars Who Are Actors, Singers, and Dancers
@@ -100,16 +100,16 @@ It is always fascinating to discover that an entertainer you admire possesses ta
 
 ## Related Posts
 
-- [james blunt net worth](https://celebs.allwomenstalk.com/celebrities-who-have-praised-ed-sheerans-new-album/)
+- [actors and musicians](https://celebs.allwomenstalk.com/talented-actors-who-are-also-musicians/)
+- [celebrities who are best friends](https://celebs.allwomenstalk.com/celebrity-best-friends-we-should-aspire-to-be-like/)
 - [celebrity astrology signs](https://celebs.allwomenstalk.com/celebrities-and-their-astrological-signs/)
 - [actors who changed their names](https://celebs.allwomenstalk.com/celebrities-who-changed-their-appearance-for-a-role/)
-- [amy winehouse swimsuit](https://celebs.allwomenstalk.com/celebrity-faces-destroyed-by-drugs/)
-- [famous celebrities as kids](https://celebs.allwomenstalk.com/child-celebrities-who-are-no-longer-famous/)
+- [james blunt net worth](https://celebs.allwomenstalk.com/celebrities-who-have-praised-ed-sheerans-new-album/)
 - [miley cyrus scandal video](https://celebs.allwomenstalk.com/of-the-biggest-miley-cyrus-scandals/)
-- [celebrities who are best friends](https://celebs.allwomenstalk.com/celebrity-best-friends-we-should-aspire-to-be-like/)
-- [kesha cotton candy](https://celebs.allwomenstalk.com/celebrities-with-cotton-candy-hair/)
+- [famous celebrities as kids](https://celebs.allwomenstalk.com/child-celebrities-who-are-no-longer-famous/)
 - [pauly d child](https://celebs.allwomenstalk.com/celebrity-babies-who-seem-more-famous-than-their-parents/)
-- [actors and musicians](https://celebs.allwomenstalk.com/talented-actors-who-are-also-musicians/)
+- [amy winehouse swimsuit](https://celebs.allwomenstalk.com/celebrity-faces-destroyed-by-drugs/)
+- [kesha cotton candy](https://celebs.allwomenstalk.com/celebrities-with-cotton-candy-hair/)
 - [7 Inspiring Celebrities of 2011 ...](https://celebs.allwomenstalk.com/inspiring-celebrities-of/)
 - [17 Famous Celebrities Who Look Alike ...](https://allwomenstalk.com/celebrities-who-look-alike/)
 

@@ -1,9 +1,9 @@
 ---
 title: "7 Random Pairs of Celebrities You Didn't Know Were Friends ..."
-description: "Jim Parsons & Rihanna; Beyonce, Jay-z, & Jake Gyllenhaal; 50 Cent & Bette Midler; Elton John & Eminem; Jennifer Lawrence & Drew Barrymore; More ..."
+description: "Jim Parsons & Rihanna; Beyonce, Jay-z, & Jake Gyllenhaal; 50 Cent & Bette Midler; Elton John & Eminem; Jennifer Lawrence & Drew Barrymore"
 url: "https://celebs.allwomenstalk.com/random-pair-of-celebrities-you-didnt-know-were-friends/"
 category: "celebs"
-last_updated: "2026-09-03"
+last_updated: "2026-11-13"
 ---
 
 # 7 Random Pairs of Celebrities You Didn't Know Were Friends ...
@@ -56,16 +56,16 @@ Well, there you have it. How random are these pairs of celebrity friends?! Can y
 
 ## Related Posts
 
-- [sara ramirez on law and order svu](https://celebs.allwomenstalk.com/celebrities-who-guest-starred-on-law-order/)
-- [corey fogelmanis twitter](https://celebs.allwomenstalk.com/girl-meets-world-celebs-to-follow-on-twitter/)
 - [famous ryans in hollywood](https://funny.allwomenstalk.com/watch-ryan-cabrera-rank-other-famous-ryans-including-gosling-and-reynolds/)
 - [paleo celebrities](https://celebs.allwomenstalk.com/celebs-that-follow-the-paleo-diet/)
-- [kate upton movie with adam sandler](https://celebs.allwomenstalk.com/celebrities-who-went-from-modeling-to-acting/)
-- [tahlia hoskins](https://celebs.allwomenstalk.com/celebrities-we-said-a-sad-goodbye-to-in/)
 - [celebrities who hid their pregnancies while filmin...](https://celebs.allwomenstalk.com/celebrities-who-hid-their-baby-bumps-while-filming/)
+- [tahlia hoskins](https://celebs.allwomenstalk.com/celebrities-we-said-a-sad-goodbye-to-in/)
+- [celebrity favorite holiday](https://celebs.allwomenstalk.com/see-how-your-favorite-celebs-spent-the-holidays-in-our-christmas-re-cap/)
+- [sara ramirez on law and order svu](https://celebs.allwomenstalk.com/celebrities-who-guest-starred-on-law-order/)
 - [celebrities who love animals](https://celebs.allwomenstalk.com/celebrities-who-love-and-advocate-for-animals/)
 - [actor that sings](https://celebs.allwomenstalk.com/celebs-who-went-from-singing-to-acting/)
-- [celebrity favorite holiday](https://celebs.allwomenstalk.com/see-how-your-favorite-celebs-spent-the-holidays-in-our-christmas-re-cap/)
+- [corey fogelmanis twitter](https://celebs.allwomenstalk.com/girl-meets-world-celebs-to-follow-on-twitter/)
+- [kate upton movie with adam sandler](https://celebs.allwomenstalk.com/celebrities-who-went-from-modeling-to-acting/)
 - [5 Blogs by Celebrities You'd Love to Get to Know ....](https://allwomenstalk.com/5-blogs-by-celebrities-youd-love-to-get-to-know/)
 - [7 Very Strange Celebrity Couples ...](https://allwomenstalk.com/7-very-strange-celebrity-couples/)
 

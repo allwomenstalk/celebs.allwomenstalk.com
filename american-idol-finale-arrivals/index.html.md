@@ -1,9 +1,9 @@
 ---
 title: "And the Winner of American Idol 9 is ..."
-description: "Stay ahead, stay chic. Trusted guides on beauty, wellness, fashion, and everything that defines today's empowered woman."
+description: "Yes yes, the much deserving Lee DeWyze was crowned the winner at the American Idol 9 Finale 2010. Check out photos from the star studded arrivals at the Nokia…"
 url: "https://celebs.allwomenstalk.com/american-idol-finale-arrivals/"
 category: "celebs"
-last_updated: "2026-09-03"
+last_updated: "2026-11-13"
 ---
 
 # And the Winner of American Idol 9 is ...
@@ -145,15 +145,15 @@ Are you happy that Lee won or would you have rather had someone else win? Honest
 
 ## Related Posts
 
-- [gordon ramsay topless](https://celebs.allwomenstalk.com/ramsay-spots-a-nudist/)
-- [amy poehler pregnant?](https://celebs.allwomenstalk.com/pregnant-poehler-gets-groceries/)
-- [8 Photos of Miley Makes an Appearance ...](https://celebs.allwomenstalk.com/miley-makes-an-appearance/)
-- [jonah hex makeup](https://celebs.allwomenstalk.com/premiere-of-jonah-hex/)
 - [kimberly wyatt legs](https://celebs.allwomenstalk.com/wyatts-short-shorts/)
-- [paris hilton soles](https://celebs.allwomenstalk.com/paris-gets-a-lift/)
-- [kristen dunst](https://celebs.allwomenstalk.com/dunsts-bikini-body/)
 - [kelly brook tight dress](https://celebs.allwomenstalk.com/kellys-tight-dress/)
+- [gordon ramsay topless](https://celebs.allwomenstalk.com/ramsay-spots-a-nudist/)
+- [8 Photos of Miley Makes an Appearance ...](https://celebs.allwomenstalk.com/miley-makes-an-appearance/)
+- [paris hilton soles](https://celebs.allwomenstalk.com/paris-gets-a-lift/)
 - [megan fox in her 20s](https://celebs.allwomenstalk.com/megan-fox-and-her-pink-underwear/)
+- [kristen dunst](https://celebs.allwomenstalk.com/dunsts-bikini-body/)
+- [jonah hex makeup](https://celebs.allwomenstalk.com/premiere-of-jonah-hex/)
+- [amy poehler pregnant?](https://celebs.allwomenstalk.com/pregnant-poehler-gets-groceries/)
 - [peyton list short hair](https://celebs.allwomenstalk.com/ginnifer-and-peyton-head-to-work/)
 - [10 Big Celebrity News of 2011 ...](https://celebs.allwomenstalk.com/big-celebrity-news-of/)
 - [Men Disappoint on 'American Idol' ...](https://allwomenstalk.com/men-disappoint-on-american-idol/)

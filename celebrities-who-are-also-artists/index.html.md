@@ -1,9 +1,9 @@
 ---
 title: "7 Celebrities Who Are Also Artists ..."
-description: "Sylvester Stallone; Drew Barrymore; Pete Doherty; Paul McCartney; Bryan Adams; More ..."
+description: "Sylvester Stallone; Drew Barrymore; Pete Doherty; Paul McCartney; Bryan Adams"
 url: "https://celebs.allwomenstalk.com/celebrities-who-are-also-artists/"
 category: "celebs"
-last_updated: "2026-09-03"
+last_updated: "2026-11-13"
 ---
 
 # 7 Celebrities Who Are Also Artists ...
@@ -56,15 +56,15 @@ These are just some of the talented celebrities who are also artists. Which are 
 
 ## Related Posts
 
-- [what instruments can taylor swift play](https://music.allwomenstalk.com/pop-stars-who-can-also-play-an-instrument/)
-- [hollywood bachelors](https://celebs.allwomenstalk.com/of-hollywoods-hottest-bachelors-and-bachelorettes/)
-- [actors who haven't won an oscar](https://movies.allwomenstalk.com/amazing-actors-who-are-yet-to-win-an-oscar/)
-- [celebs on broadway](https://celebs.allwomenstalk.com/celebs-who-are-heading-to-broadway-this-year/)
 - [lisa kudrow iq](https://celebs.allwomenstalk.com/celebrities-who-are-more-intelligent-than-you-think/)
-- [kijjimb](https://celebs.allwomenstalk.com/of-the-cutest-celeb-throwback-photos/)
-- [javier bardem and jeffrey dean morgan meet](https://celebs.allwomenstalk.com/celebrity-couples-who-look-alike/)
-- [best celebrity interviews](https://celebs.allwomenstalk.com/best-celebrity-interviews-on-ellen/)
+- [actors who haven't won an oscar](https://movies.allwomenstalk.com/amazing-actors-who-are-yet-to-win-an-oscar/)
+- [what instruments can taylor swift play](https://music.allwomenstalk.com/pop-stars-who-can-also-play-an-instrument/)
 - [new york actresses over 50](https://celebs.allwomenstalk.com/actresses-over-50-who-are-still-fabulous/)
+- [javier bardem and jeffrey dean morgan meet](https://celebs.allwomenstalk.com/celebrity-couples-who-look-alike/)
+- [celebs on broadway](https://celebs.allwomenstalk.com/celebs-who-are-heading-to-broadway-this-year/)
+- [best celebrity interviews](https://celebs.allwomenstalk.com/best-celebrity-interviews-on-ellen/)
+- [kijjimb](https://celebs.allwomenstalk.com/of-the-cutest-celeb-throwback-photos/)
+- [hollywood bachelors](https://celebs.allwomenstalk.com/of-hollywoods-hottest-bachelors-and-bachelorettes/)
 - [brendan fraser sexiest man alive](https://celebs.allwomenstalk.com/celebrities-who-are-fading-quickly/)
 - [7 of My Favorite Celebrities ...](https://celebs.allwomenstalk.com/7-of-my-favorite-celebrities/)
 - [7 Celebrities Who Smoke Weed ...](https://celebs.allwomenstalk.com/celebrities-who-smoke-weed/)

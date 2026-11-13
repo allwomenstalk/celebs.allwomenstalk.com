@@ -1,9 +1,9 @@
 ---
 title: "7 Celebrities Who Were Left at the Altar ..."
-description: "Julia Roberts and Kiefer Sutherland; Jennifer Lopez and Ben Affleck; Carson Daly and Tara Reid; Demi Moore and Emilio Estevez; Alec Baldwin and Janine Turner; More ..."
+description: "Julia Roberts and Kiefer Sutherland; Jennifer Lopez and Ben Affleck; Carson Daly and Tara Reid; Demi Moore and Emilio Estevez"
 url: "https://celebs.allwomenstalk.com/celebrities-who-were-left-at-the-altar/"
 category: "celebs"
-last_updated: "2026-09-03"
+last_updated: "2026-11-13"
 ---
 
 # 7 Celebrities Who Were Left at the Altar ...
@@ -58,14 +58,14 @@ radaronline.com_
 
 ## Related Posts
 
-- [female tv cops](https://celebs.allwomenstalk.com/brilliant-actors-actresses-who-have-played-cops-on-tv/)
-- [celebrities with criminal records](https://celebs.allwomenstalk.com/celebrities-with-unexpected-criminal-records/)
-- [tyler posey and miley cyrus](https://celebs.allwomenstalk.com/celebrity-couples-that-you-probably-forgot-about/)
+- [cameron diaz armpit](https://celebs.allwomenstalk.com/celebrities-who-supposedly-have-bad-hygiene/)
+- [7 Hollywood Same-Sex Couples We Love ...](https://celebs.allwomenstalk.com/hollywood-same-sex-couples-we-love/)
+- [celebrities that were born rich](https://celebs.allwomenstalk.com/celebrities-who-were-born-rich/)
 - [river phoenix and anna nicole smith](https://celebs.allwomenstalk.com/amazing-actors-who-died-before-their-time/)
 - [who lives in the same neighborhood as oprah?](https://celebs.allwomenstalk.com/celebrities-who-are-neighbors-in-real-life/)
-- [7 Hollywood Same-Sex Couples We Love ...](https://celebs.allwomenstalk.com/hollywood-same-sex-couples-we-love/)
-- [cameron diaz armpit](https://celebs.allwomenstalk.com/celebrities-who-supposedly-have-bad-hygiene/)
-- [celebrities that were born rich](https://celebs.allwomenstalk.com/celebrities-who-were-born-rich/)
+- [celebrities with criminal records](https://celebs.allwomenstalk.com/celebrities-with-unexpected-criminal-records/)
+- [tyler posey and miley cyrus](https://celebs.allwomenstalk.com/celebrity-couples-that-you-probably-forgot-about/)
+- [female tv cops](https://celebs.allwomenstalk.com/brilliant-actors-actresses-who-have-played-cops-on-tv/)
 - [famous career changes](https://celebs.allwomenstalk.com/of-the-best-career-changes-in-hollywood/)
 - [extras celebrities](https://celebs.allwomenstalk.com/celebrities-who-started-out-as-extras/)
 - [7 Biggest Celebrity Weddings ...](https://wedding.allwomenstalk.com/biggest-celebrity-weddings/)

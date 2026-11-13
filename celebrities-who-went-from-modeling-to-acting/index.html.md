@@ -1,9 +1,9 @@
 ---
 title: "Strike a Pose: Celebs Who Went from Modeling to Acting ..."
-description: "Kate Upton; Cameron Diaz; Jamie Dornan; Rosie Huntington-whitely; Ashton Kutcher; More ..."
+description: "Kate Upton; Cameron Diaz; Jamie Dornan; Rosie Huntington-whitely; Ashton Kutcher"
 url: "https://celebs.allwomenstalk.com/celebrities-who-went-from-modeling-to-acting/"
 category: "celebs"
-last_updated: "2026-09-03"
+last_updated: "2026-11-13"
 ---
 
 # Strike a Pose: Celebs Who Went from Modeling to Acting ...
@@ -56,15 +56,15 @@ Well, there you have it. These are only seven (of many) celebrities who went fro
 
 ## Related Posts
 
-- [victoria justice and katharine mcphee](https://celebs.allwomenstalk.com/underrated-celebrities-that-should-be-more-famous/)
-- [carrie underwood prego](https://fashion.allwomenstalk.com/stars-with-the-best-baby-bump-style-of-all-time/)
-- [corey fogelmanis twitter](https://celebs.allwomenstalk.com/girl-meets-world-celebs-to-follow-on-twitter/)
-- [celebrity favorite holiday](https://celebs.allwomenstalk.com/see-how-your-favorite-celebs-spent-the-holidays-in-our-christmas-re-cap/)
-- [milo ventimiglia girlfriend](https://celebs.allwomenstalk.com/of-your-favorite-fictional-couples-who-dated-off-screen-too/)
 - [famous people on twitter](https://celebs.allwomenstalk.com/of-the-most-followed-celebrities-on-twitter/)
-- [jack falahee weight gain](https://celebs.allwomenstalk.com/breakout-celebrities-of/)
-- [you are beautiful inside and out](https://celebs.allwomenstalk.com/celebrities-who-are-beautiful-inside-and-out/)
+- [celebrity favorite holiday](https://celebs.allwomenstalk.com/see-how-your-favorite-celebs-spent-the-holidays-in-our-christmas-re-cap/)
+- [corey fogelmanis twitter](https://celebs.allwomenstalk.com/girl-meets-world-celebs-to-follow-on-twitter/)
 - [celebrities who hid their pregnancies while filmin...](https://celebs.allwomenstalk.com/celebrities-who-hid-their-baby-bumps-while-filming/)
+- [milo ventimiglia girlfriend](https://celebs.allwomenstalk.com/of-your-favorite-fictional-couples-who-dated-off-screen-too/)
+- [victoria justice and katharine mcphee](https://celebs.allwomenstalk.com/underrated-celebrities-that-should-be-more-famous/)
+- [jack falahee weight gain](https://celebs.allwomenstalk.com/breakout-celebrities-of/)
+- [carrie underwood prego](https://fashion.allwomenstalk.com/stars-with-the-best-baby-bump-style-of-all-time/)
+- [you are beautiful inside and out](https://celebs.allwomenstalk.com/celebrities-who-are-beautiful-inside-and-out/)
 - [reese witherspoon as june carter](https://celebs.allwomenstalk.com/celebrities-who-look-exactly-like-who-they-portrayed-in-a-biopic/)
 - [4 Celebs That Shot to Fame after Cosmetic Surgery....](https://celebs.allwomenstalk.com/celebs-that-shot-to-fame-after-cosmetic-surgery/)
 - [15 Celebrities Who Lost and/or Gained Weight for a...](https://allwomenstalk.com/15-celebrities-who-lost-andor-gained-weight-for-a-role/)

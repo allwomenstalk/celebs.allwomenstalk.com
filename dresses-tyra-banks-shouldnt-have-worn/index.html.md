@@ -1,9 +1,9 @@
 ---
 title: "7 Dresses Tyra Banks Shouldn't Have Worn ..."
-description: "The Purple Dress, the 72nd Oscars; The Red Jersey, Fashion Rocks 2008; The Gold Dress, 2009 Daytime Emmy's; The Rust Dress, 2007 Daytime Emmy's; The Black Dress, 2007 Fashion Rocks; More ..."
+description: "The Purple Dress, the 72nd Oscars; The Red Jersey, Fashion Rocks 2008; The Gold Dress, 2009 Daytime Emmy's; The Rust Dress, 2007 Daytime Emmy's"
 url: "https://celebs.allwomenstalk.com/dresses-tyra-banks-shouldnt-have-worn/"
 category: "celebs"
-last_updated: "2026-09-03"
+last_updated: "2026-11-13"
 ---
 
 # 7 Dresses Tyra Banks Shouldn't Have Worn ...
@@ -54,20 +54,18 @@ This dress, frankly, just made her boobs look really saggy. Like, super saggy. T
 
 Now, although I think these are **dresses Tyra banks shouldn't have worn**, you might disagree with me, and that's totally okay. Like say, with some of these, the dresses were theoretically great, but there was just something about the way she wore them that rubbed me the wrong way. Just because I think they're dresses Tyra Banks shouldn't have worn doesn't mean you have to agree, but if you want to do a bit of Googling and take a look at some of these, I'd love to know what you think. She's gotten lots better in the past few years in choosing really gorgeous, flattering dresses, but you never know -- there might be another slip! So, about the **dresses Tyra Banks shouldn't have worn** -- do you have some opinions on Tyra's best and worst fashions?
 
-Top Photo Credit: [andy_57](https://www.flickr.com/photos/poupart/1487620751/)
-
 ## Related Posts
 
-- [Sample Sales as Shopping Parties, Yahoo! News, Fas...](https://allwomenstalk.com/sample-sales-as-shopping-parties-yahoo-news-fashion-wire-daily/)
 - [2006 hair styles](https://allwomenstalk.com/fashionable-hair-styles-eyes-on-stars/)
-- [Tv Dilema, Fall Beauty and a New Look ...](https://allwomenstalk.com/tv-dilema-fall-beauty-and-a-new-look/)
-- [marc bouwer dresses shop](https://allwomenstalk.com/fashion-week-marc-bouwer/)
-- [The State of the Fashion Union ...](https://allwomenstalk.com/the-state-of-the-fashion-union/)
-- [It's Harper's Bazaar Week...](https://allwomenstalk.com/its-harpers-bazaar-week/)
-- [hottest designers](https://allwomenstalk.com/3-10/)
-- [Fashion Week: Jenni Kayne ...](https://allwomenstalk.com/fashion-week-jenni-kayne-2/)
 - [Gwen and Kingston End NYFW in Style ...](https://celebs.allwomenstalk.com/gwen-and-kingston-end-nyfw-in-style/)
 - [Christian Louboutin Fall 2011 Lookbook ...](https://celebs.allwomenstalk.com/christian-louboutin-fall-lookbook/)
+- [The State of the Fashion Union ...](https://allwomenstalk.com/the-state-of-the-fashion-union/)
+- [Sample Sales as Shopping Parties, Yahoo! News, Fas...](https://allwomenstalk.com/sample-sales-as-shopping-parties-yahoo-news-fashion-wire-daily/)
+- [It's Harper's Bazaar Week...](https://allwomenstalk.com/its-harpers-bazaar-week/)
+- [Tv Dilema, Fall Beauty and a New Look ...](https://allwomenstalk.com/tv-dilema-fall-beauty-and-a-new-look/)
+- [marc bouwer dresses shop](https://allwomenstalk.com/fashion-week-marc-bouwer/)
+- [Fashion Week: Jenni Kayne ...](https://allwomenstalk.com/fashion-week-jenni-kayne-2/)
+- [hottest designers](https://allwomenstalk.com/3-10/)
 - [7 Biggest Celebrity Fashion Faux Pas of 2011 ...](https://celebs.allwomenstalk.com/biggest-celebrity-fashion-faux-pas-of/)
 - [7 Successful Celebrity Fashion Lines ...](https://fashion.allwomenstalk.com/successful-celebrity-fashion-lines/)
 

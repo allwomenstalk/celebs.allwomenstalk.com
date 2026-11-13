@@ -1,9 +1,9 @@
 ---
 title: "38 Photos of \"Easy a\" Premiere ..."
-description: "Stay ahead, stay chic. Trusted guides on beauty, wellness, fashion, and everything that defines today's empowered woman."
+description: "Los Angeles Premiere of \"Easy A\". Grauman's Chinese Theatre, Hollywood, CA. September 13, 2010. City: Los Angeles Penn Badgley looked cute in black and white…"
 url: "https://celebs.allwomenstalk.com/easy-a-premiere/"
 category: "celebs"
-last_updated: "2026-09-03"
+last_updated: "2026-11-13"
 ---
 
 # 38 Photos of "Easy a" Premiere ...
@@ -115,16 +115,16 @@ Ah yes! The two best dressed of the night striking a pose together! What a perfe
 
 ## Related Posts
 
+- [vma celebrities](https://celebs.allwomenstalk.com/best-dressed-celebrities-at-the-mtv-video-music-awards/)
+- [katy perry smurfette dress](https://celebs.allwomenstalk.com/ugliest-celebrity-fashion-faux-pas-of/)
 - [celebrities who turned down knighthood](https://celebs.allwomenstalk.com/7-people-who-have-refused-a-major-award/)
+- [emma watson harry potter premiere outfits](https://celebs.allwomenstalk.com/emma-watsons-red-carpet-looks-for-harry-potter/)
+- [nf face makeup](https://celebs.allwomenstalk.com/celebrity-fashion-face-off-pick-your-winners/)
+- [who wore it better celebrities](https://celebs.allwomenstalk.com/same-celebrity-outfits-who-wore-it-better/)
+- [celebrity fashion mistakes](https://celebs.allwomenstalk.com/biggest-celebrity-fashion-faux-pas-of/)
 - [2010 Hollywood Style Awards ...](https://celebs.allwomenstalk.com/hollywood-style-awards/)
 - [golden globes 2011](https://celebs.allwomenstalk.com/golden-globe-nominations/)
-- [celebrity fashion mistakes](https://celebs.allwomenstalk.com/biggest-celebrity-fashion-faux-pas-of/)
-- [emma watson harry potter premiere outfits](https://celebs.allwomenstalk.com/emma-watsons-red-carpet-looks-for-harry-potter/)
-- [who wore it better celebrities](https://celebs.allwomenstalk.com/same-celebrity-outfits-who-wore-it-better/)
 - [The Best Dressed Women of 2010 ...](https://celebs.allwomenstalk.com/the-best-dressed-women-of/)
-- [vma celebrities](https://celebs.allwomenstalk.com/best-dressed-celebrities-at-the-mtv-video-music-awards/)
-- [nf face makeup](https://celebs.allwomenstalk.com/celebrity-fashion-face-off-pick-your-winners/)
-- [katy perry smurfette dress](https://celebs.allwomenstalk.com/ugliest-celebrity-fashion-faux-pas-of/)
 - [10 Stunning Leading Ladies ...](https://movies.allwomenstalk.com/stunning-leading-ladies/)
 - [9 Photos of Kristen Stewart at "the Runaways" Prem...](https://celebs.allwomenstalk.com/9-photos-of-kristen-arrives/)
 

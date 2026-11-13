@@ -1,9 +1,9 @@
 ---
 title: "Amy Poehler Will Keep You Laughing in New 'Parks & Rec' Gag Reel ..."
-description: "Stay ahead, stay chic. Trusted guides on beauty, wellness, fashion, and everything that defines today's empowered woman."
+description: "Ready for the best ten minutes of your weekend? The season six gag reel of NBC's \"Parks and Recreation\" has been released and I cannot stop watching it! This…"
 url: "https://celebs.allwomenstalk.com/amy-poehler-will-keep-you-laughing-in-new-parks-rec-gag-reel/"
 category: "celebs"
-last_updated: "2026-09-03"
+last_updated: "2026-11-13"
 ---
 
 # Amy Poehler Will Keep You Laughing in New 'Parks & Rec' Gag Reel ...
@@ -15,15 +15,15 @@ Which part made you LOL the most?
 ## Related Posts
 
 - [emma watson elle](https://celebs.allwomenstalk.com/emma-watson-shines-on-new-elle-cover-while-discussing-feminism/)
-- [dave grohl ice bucket challenge](https://celebs.allwomenstalk.com/the-foo-fighters-re-enact-carrie-for-the-als-challenge-and-its-awesome/)
-- [Kudos to Keira for Taking a Stand ...](https://celebs.allwomenstalk.com/kudos-to-keira-for-taking-a-stand/)
-- [eminem date rihanna](https://music.allwomenstalk.com/eminem-and-rihanna-kill-it-in-detroit/)
-- [disney breast cancer awareness](https://inspiration.allwomenstalk.com/talented-artist-uses-disney-princesses-to-promote-breast-cancer-awareness/)
-- [liam hemsworth stuff](https://celebs.allwomenstalk.com/lol-watch-the-hunger-games-liam-hemsworth-strut-his-stuff-in-high-heels/)
-- [lolnews](https://funny.allwomenstalk.com/lol-news-anchor-goes-viral-after-dancing-to-taylor-swift-t-i/)
-- [lorde without makeup](https://celebs.allwomenstalk.com/dare-to-go-bare-with-inspiration-from-lordes-makeup-free-selfies/)
-- [mindy kaling tom cruise](https://celebs.allwomenstalk.com/mindy-kalings-behind-the-scenes-set-photos/)
 - [vanessa hudgens cute](https://celebs.allwomenstalk.com/sibling-love-vanessa-hudgens-cutest-pics-with-stella/)
+- [mindy kaling tom cruise](https://celebs.allwomenstalk.com/mindy-kalings-behind-the-scenes-set-photos/)
+- [eminem date rihanna](https://music.allwomenstalk.com/eminem-and-rihanna-kill-it-in-detroit/)
+- [lorde without makeup](https://celebs.allwomenstalk.com/dare-to-go-bare-with-inspiration-from-lordes-makeup-free-selfies/)
+- [Kudos to Keira for Taking a Stand ...](https://celebs.allwomenstalk.com/kudos-to-keira-for-taking-a-stand/)
+- [lolnews](https://funny.allwomenstalk.com/lol-news-anchor-goes-viral-after-dancing-to-taylor-swift-t-i/)
+- [liam hemsworth stuff](https://celebs.allwomenstalk.com/lol-watch-the-hunger-games-liam-hemsworth-strut-his-stuff-in-high-heels/)
+- [disney breast cancer awareness](https://inspiration.allwomenstalk.com/talented-artist-uses-disney-princesses-to-promote-breast-cancer-awareness/)
+- [dave grohl ice bucket challenge](https://celebs.allwomenstalk.com/the-foo-fighters-re-enact-carrie-for-the-als-challenge-and-its-awesome/)
 - [Backstage Buzz at the SAG Awards ...](https://bilbr.com/backstage-buzz-at-the-sag-awards/)
 - [“She Appeared in Several Movies, among Them “the H...](https://allwomenstalk.com/she-appeared-in-several-movies-among-them-the-h/)
 

@@ -1,9 +1,9 @@
 ---
 title: "7 Celebrities with Parkinson's Disease ..."
-description: "Michael J. Fox; Muhammad Ali; Billy Connolly; Estelle Getty; Pope John Paul II; More ..."
+description: "Michael J. Fox; Muhammad Ali; Billy Connolly; Estelle Getty; Pope John Paul II"
 url: "https://celebs.allwomenstalk.com/celebrities-with-parkinsons-disease/"
 category: "celebs"
-last_updated: "2026-09-03"
+last_updated: "2026-11-13"
 ---
 
 # 7 Celebrities with Parkinson's Disease ...
@@ -60,16 +60,16 @@ For more info on Parkinson’s Disease see [apdaparkinson.org](https://www.apdap
 
 ## Related Posts
 
+- [selena gomez no makeup selfie](https://celebs.allwomenstalk.com/what-do-these-celebrities-look-like-without-makeup/)
+- [bromances](https://celebs.allwomenstalk.com/of-the-cutest-celebrity-bromances-of-all-time/)
+- [strange facts about celebrities](https://celebs.allwomenstalk.com/little-known-facts-about-your-favorite-celebrities/)
+- [celebrities with weird kid names](https://celebs.allwomenstalk.com/celebrities-explain-their-reasoning-behind-their-strange-baby-names/)
 - [cameron diaz snoop high school](https://celebs.allwomenstalk.com/celebrities-who-went-to-high-school-together/)
 - [celebrities photobombing](https://celebs.allwomenstalk.com/celebrity-photobombs-thatll-make-you-lol/)
-- [selena gomez no makeup selfie](https://celebs.allwomenstalk.com/what-do-these-celebrities-look-like-without-makeup/)
-- [pregnant celebrities on red carpet](https://fashion.allwomenstalk.com/celebrities-that-made-red-carpet-baby-bumps-look-amazing/)
-- [strange facts about celebrities](https://celebs.allwomenstalk.com/little-known-facts-about-your-favorite-celebrities/)
-- [bromances](https://celebs.allwomenstalk.com/of-the-cutest-celebrity-bromances-of-all-time/)
-- [most influential teenagers](https://celebs.allwomenstalk.com/in-case-you-missed-it-these-are-times-most-influential-teens/)
-- [celebrities giving back](https://inspiration.allwomenstalk.com/these-charitable-celebrity-couples-are-all-about-giving-back/)
-- [celebrities with weird kid names](https://celebs.allwomenstalk.com/celebrities-explain-their-reasoning-behind-their-strange-baby-names/)
 - [julianna hough plastic surgery](https://celebs.allwomenstalk.com/whoa-celebrity-doppelgangers-from-different-generations/)
+- [pregnant celebrities on red carpet](https://fashion.allwomenstalk.com/celebrities-that-made-red-carpet-baby-bumps-look-amazing/)
+- [celebrities giving back](https://inspiration.allwomenstalk.com/these-charitable-celebrity-couples-are-all-about-giving-back/)
+- [most influential teenagers](https://celebs.allwomenstalk.com/in-case-you-missed-it-these-are-times-most-influential-teens/)
 - [7 of My Favorite Celebrities ...](https://celebs.allwomenstalk.com/7-of-my-favorite-celebrities/)
 - [7 Celebrities Who Smoke Weed ...](https://celebs.allwomenstalk.com/celebrities-who-smoke-weed/)
 

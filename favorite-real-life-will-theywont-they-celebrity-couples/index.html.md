@@ -1,9 +1,9 @@
 ---
 title: "7 Favorite Real-Life Will They/Won't They Celebrity Couples ..."
-description: "Mindy Kaling and B.J. Novak; Michael Douglas and Catherine Zeta Jones; Taylor Swift and Ed Sheeran; Ryan Gosling and Rachel McAdams; Josh Hutcherson and Jennifer Lawrence; More ..."
+description: "Mindy Kaling and B.J. Novak; Michael Douglas and Catherine Zeta Jones; Taylor Swift and Ed Sheeran; Ryan Gosling and Rachel McAdams"
 url: "https://celebs.allwomenstalk.com/favorite-real-life-will-theywont-they-celebrity-couples/"
 category: "celebs"
-last_updated: "2026-09-03"
+last_updated: "2026-11-13"
 ---
 
 # 7 Favorite Real\-Life Will They/Won't They Celebrity Couples ...
@@ -56,16 +56,16 @@ Who’s your favorite real-life will they/won’t they celebrity couple? Mine’
 
 ## Related Posts
 
+- [harry styles vines](https://funny.allwomenstalk.com/silliest-celebrity-vines-you-have-to-see-at-least-once/)
+- [jane kaczmarek husband](https://celebs.allwomenstalk.com/celebrity-mothers-who-had-their-first-baby-after-40/)
+- [celebs on tour](https://celebs.allwomenstalk.com/celebs-who-have-shown-their-support-at-mileys-tour/)
+- [male actors 60 years old](https://celebs.allwomenstalk.com/celebrities-who-only-get-better-with-age/)
 - [comedian with red hat](https://celebs.allwomenstalk.com/stars-who-died-whilst-doing-what-they-loved/)
 - [camilla luddington twitter](https://celebs.allwomenstalk.com/greys-anatomy-celebrities-who-are-social-on-twitter/)
-- [ashton klein](https://celebs.allwomenstalk.com/celebrities-who-used-to-model-before-getting-their-big-break/)
 - [ezra fitz brother](https://celebs.allwomenstalk.com/abc-celebrities-who-are-totally-crush-worthy/)
-- [jane kaczmarek husband](https://celebs.allwomenstalk.com/celebrity-mothers-who-had-their-first-baby-after-40/)
-- [male actors 60 years old](https://celebs.allwomenstalk.com/celebrities-who-only-get-better-with-age/)
-- [christian bale and rowan atkinson](https://movies.allwomenstalk.com/potential-actors-for-james-bonds-role-that-will-probably-never-happen/)
-- [harry styles vines](https://funny.allwomenstalk.com/silliest-celebrity-vines-you-have-to-see-at-least-once/)
-- [celebs on tour](https://celebs.allwomenstalk.com/celebs-who-have-shown-their-support-at-mileys-tour/)
 - [blake lively sobriety](https://celebs.allwomenstalk.com/celebs-who-live-a-sober-lifestyle/)
+- [ashton klein](https://celebs.allwomenstalk.com/celebrities-who-used-to-model-before-getting-their-big-break/)
+- [christian bale and rowan atkinson](https://movies.allwomenstalk.com/potential-actors-for-james-bonds-role-that-will-probably-never-happen/)
 - [7 Biggest Celebrity Weddings ...](https://wedding.allwomenstalk.com/biggest-celebrity-weddings/)
 - [7 Recent Celebrity Breakups ...](https://celebs.allwomenstalk.com/recent-celebrity-breakups/)
 

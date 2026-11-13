@@ -1,9 +1,9 @@
 ---
 title: "7 Celebrities with Unexpected Criminal Records ..."
-description: "Jay-Z; Cheryl Cole; Stephen Fry; Tim Allen; Hugh Grant; More ..."
+description: "Jay-Z; Cheryl Cole; Stephen Fry; Tim Allen; Hugh Grant"
 url: "https://celebs.allwomenstalk.com/celebrities-with-unexpected-criminal-records/"
 category: "celebs"
-last_updated: "2026-09-03"
+last_updated: "2026-11-13"
 ---
 
 # 7 Celebrities with Unexpected Criminal Records ...
@@ -56,16 +56,16 @@ How many of these criminal records were you aware of? I certainly wasn’t expec
 
 ## Related Posts
 
-- [tyler posey and miley cyrus](https://celebs.allwomenstalk.com/celebrity-couples-that-you-probably-forgot-about/)
-- [extras celebrities](https://celebs.allwomenstalk.com/celebrities-who-started-out-as-extras/)
-- [who lives in the same neighborhood as oprah?](https://celebs.allwomenstalk.com/celebrities-who-are-neighbors-in-real-life/)
-- [kesha cotton candy](https://celebs.allwomenstalk.com/celebrities-with-cotton-candy-hair/)
-- [famous celebrities you didn't know were related](https://celebs.allwomenstalk.com/pairs-of-celebrities-you-didnt-know-were-related/)
-- [celebrities with same name](https://celebs.allwomenstalk.com/celebrities-who-changed-their-names-when-they-attained-stardom/)
-- [actors who changed their names](https://celebs.allwomenstalk.com/celebrities-who-changed-their-appearance-for-a-role/)
-- [talented famous person](https://celebs.allwomenstalk.com/celebrities-who-are-multi-talented/)
 - [brian austin green megan fox age](https://celebs.allwomenstalk.com/cute-celebrity-couples-who-eloped/)
+- [extras celebrities](https://celebs.allwomenstalk.com/celebrities-who-started-out-as-extras/)
+- [actors who changed their names](https://celebs.allwomenstalk.com/celebrities-who-changed-their-appearance-for-a-role/)
+- [kesha cotton candy](https://celebs.allwomenstalk.com/celebrities-with-cotton-candy-hair/)
+- [who lives in the same neighborhood as oprah?](https://celebs.allwomenstalk.com/celebrities-who-are-neighbors-in-real-life/)
+- [famous celebrities you didn't know were related](https://celebs.allwomenstalk.com/pairs-of-celebrities-you-didnt-know-were-related/)
+- [talented famous person](https://celebs.allwomenstalk.com/celebrities-who-are-multi-talented/)
 - [river phoenix and anna nicole smith](https://celebs.allwomenstalk.com/amazing-actors-who-died-before-their-time/)
+- [tyler posey and miley cyrus](https://celebs.allwomenstalk.com/celebrity-couples-that-you-probably-forgot-about/)
+- [celebrities with same name](https://celebs.allwomenstalk.com/celebrities-who-changed-their-names-when-they-attained-stardom/)
 - [7 Celebrities Who Smoke Weed ...](https://celebs.allwomenstalk.com/celebrities-who-smoke-weed/)
 - [7 Celebrities with Addictions ...](https://celebs.allwomenstalk.com/celebrities-with-addictions/)
 

@@ -1,9 +1,9 @@
 ---
 title: "For These Celebs, Age Ain't Nothing but a Number!"
-description: "Katy Perry & John Mayer; Nina Dobrev & Ian Somerhalder; Demi Lovato and Wilmer Valderrama; Nick Jonas and Delta Goodrem; Blake Lively and Ryan Reynolds; More ..."
+description: "Katy Perry & John Mayer; Nina Dobrev & Ian Somerhalder; Demi Lovato and Wilmer Valderrama; Nick Jonas and Delta Goodrem; Blake Lively and Ryan Reynolds"
 url: "https://celebs.allwomenstalk.com/for-these-celebs-age-aint-nothing-but-a-number/"
 category: "celebs"
-last_updated: "2026-09-03"
+last_updated: "2026-11-13"
 ---
 
 # For These Celebs, Age Ain't Nothing but a Number!
@@ -68,16 +68,16 @@ What do you think about age gaps? How old is TOO old for you?
 
 ## Related Posts
 
-- [cast of twilight dancers](https://movies.allwomenstalk.com/worst-dancers-on-tv-and-in-the-movies/)
-- [celebrities on bereal](https://celebs.allwomenstalk.com/celebrities-and-their-honest-opinions-on-motherhood/)
-- [how did mike tysons daughter die](https://celebs.allwomenstalk.com/male-celebrities-who-lost-children/)
-- [stars of the 1940s](https://celebs.allwomenstalk.com/reasons-to-emulate-1940s-movie-stars/)
-- [dennis rodman belly button](https://celebs.allwomenstalk.com/celebrities-you-may-have-forgotten-had-facial-piercings/)
 - [flynn rider irl](https://celebs.allwomenstalk.com/celebs-you-probably-forgot-voiced-disney-characters/)
+- [stars of the 1940s](https://celebs.allwomenstalk.com/reasons-to-emulate-1940s-movie-stars/)
 - [kaley cuoco bowling movie](https://celebs.allwomenstalk.com/celebrity-throwbacks-dcom-edition/)
-- [funny ice bucket challenge](https://celebs.allwomenstalk.com/funniest-celebrity-ice-bucket-challenge-videos/)
-- [celebrities who support gender equality](https://celebs.allwomenstalk.com/heforshe-male-celebs-supporting-gender-equality/)
+- [celebrities on bereal](https://celebs.allwomenstalk.com/celebrities-and-their-honest-opinions-on-motherhood/)
+- [dennis rodman belly button](https://celebs.allwomenstalk.com/celebrities-you-may-have-forgotten-had-facial-piercings/)
+- [cast of twilight dancers](https://movies.allwomenstalk.com/worst-dancers-on-tv-and-in-the-movies/)
+- [how did mike tysons daughter die](https://celebs.allwomenstalk.com/male-celebrities-who-lost-children/)
 - [disney look alikes](https://celebs.allwomenstalk.com/whoa-celebrities-and-their-disney-lookalikes/)
+- [celebrities who support gender equality](https://celebs.allwomenstalk.com/heforshe-male-celebs-supporting-gender-equality/)
+- [funny ice bucket challenge](https://celebs.allwomenstalk.com/funniest-celebrity-ice-bucket-challenge-videos/)
 - [Play Catch-up with Your Favorite Reality Stars!](https://allwomenstalk.com/play-catch-up-with-your-favorite-reality-stars/)
 - [More on Celebs & Their Weight ...](https://allwomenstalk.com/more-on-celebs-their-weight/)
 

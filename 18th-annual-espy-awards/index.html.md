@@ -1,9 +1,9 @@
 ---
 title: "56 Photos of 18th Annual ESPY Awards ..."
-description: "Stay ahead, stay chic. Trusted guides on beauty, wellness, fashion, and everything that defines today's empowered woman."
+description: "The EPSY Awards are handed out for excellence in sports performance and achievements but just because it's sports related, didn't make the 18th Annual ESPY…"
 url: "https://celebs.allwomenstalk.com/18th-annual-espy-awards/"
 category: "celebs"
-last_updated: "2026-09-03"
+last_updated: "2026-11-13"
 ---
 
 # 56 Photos of 18th Annual ESPY Awards ...
@@ -167,16 +167,16 @@ What was your favorite look of the night? Who do you think is the hottest sports
 
 ## Related Posts
 
-- [71 Photos of AmfAR Party ...](https://celebs.allwomenstalk.com/amfar-party/)
-- [mischa barton nip slip](https://celebs.allwomenstalk.com/artists-for-peace-and-justice-benefit-party/)
-- [kimberly wyatt feet](https://celebs.allwomenstalk.com/teen-choice-awards/)
 - [national movie awards 2010](https://celebs.allwomenstalk.com/national-movie-awards/)
 - [is charlie st cloud based on a true story](https://celebs.allwomenstalk.com/charlie-st-cloud-world-premiere/)
-- [Who Was Best Dressed at the "Sex and the City 2" i...](https://celebs.allwomenstalk.com/sex-and-the-city-2-in-london/)
+- [71 Photos of AmfAR Party ...](https://celebs.allwomenstalk.com/amfar-party/)
 - [salt premiere](https://celebs.allwomenstalk.com/salt-premiere/)
 - [96 Photos of 2010 MTV Video Music Awards - Arrival...](https://celebs.allwomenstalk.com/mtv-video-music-awards-arrivals/)
-- [women in film crystal award](https://celebs.allwomenstalk.com/women-in-film-crystal-lucy-awards/)
+- [mischa barton nip slip](https://celebs.allwomenstalk.com/artists-for-peace-and-justice-benefit-party/)
 - [inception photos](https://celebs.allwomenstalk.com/inception-premiere/)
+- [Who Was Best Dressed at the "Sex and the City 2" i...](https://celebs.allwomenstalk.com/sex-and-the-city-2-in-london/)
+- [women in film crystal award](https://celebs.allwomenstalk.com/women-in-film-crystal-lucy-awards/)
+- [kimberly wyatt feet](https://celebs.allwomenstalk.com/teen-choice-awards/)
 - [36 Photos of the "GLEE" Spring Premiere Soiree ...](https://celebs.allwomenstalk.com/glee-premiere/)
 - [27 Photos of 21st Annual GLAAD Media Awards ...](https://celebs.allwomenstalk.com/21st-annual-glaad-media-awards/)
 

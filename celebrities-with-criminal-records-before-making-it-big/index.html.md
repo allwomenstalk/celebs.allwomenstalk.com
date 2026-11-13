@@ -1,9 +1,9 @@
 ---
 title: "7 Celebrities with Criminal Records before Making It Big ..."
-description: "Matthew Broderick; Tim Allen; Bill Gates; Jay Z; Matthew McConaughey; More ..."
+description: "Matthew Broderick; Tim Allen; Bill Gates; Jay Z; Matthew McConaughey"
 url: "https://celebs.allwomenstalk.com/celebrities-with-criminal-records-before-making-it-big/"
 category: "celebs"
-last_updated: "2026-09-03"
+last_updated: "2026-11-13"
 ---
 
 # 7 Celebrities with Criminal Records before Making It Big ...
@@ -56,16 +56,16 @@ Did you know that some of these stars had serious offenses? While some of their 
 
 ## Related Posts
 
-- [90's celebrities](https://celebs.allwomenstalk.com/celebrities-who-were-in-90s-commercials/)
 - [instagram melinda shankar](https://celebs.allwomenstalk.com/degrassi-celebrities-to-follow-on-instagram/)
-- [celebs board](https://celebs.allwomenstalk.com/celebrity-pinterest-boards-youll-want-to-follow/)
-- [surprising celebrity couples](https://celebs.allwomenstalk.com/celebrity-couples-that-you-never-knew-about/)
-- [mickey mouse club mouseketeers list](https://celebs.allwomenstalk.com/former-disney-mouseketeers-who-now-made-names-for-themselves/)
-- [actresses of the silver screen](https://movies.allwomenstalk.com/totally-ace-actors-from-scandinavia/)
-- [does zac efron have a sister](https://celebs.allwomenstalk.com/celebrities-with-attractive-siblings/)
-- [images of celebrities](https://celebs.allwomenstalk.com/stunning-celebrity-black-white-photos/)
-- [famous actress in bikini](https://celebs.allwomenstalk.com/celebrities-bikini-ready-bodies/)
 - [julia roberts jon bon jovi](https://celebs.allwomenstalk.com/celebrities-who-are-terrible-to-work-with/)
+- [surprising celebrity couples](https://celebs.allwomenstalk.com/celebrity-couples-that-you-never-knew-about/)
+- [90's celebrities](https://celebs.allwomenstalk.com/celebrities-who-were-in-90s-commercials/)
+- [does zac efron have a sister](https://celebs.allwomenstalk.com/celebrities-with-attractive-siblings/)
+- [mickey mouse club mouseketeers list](https://celebs.allwomenstalk.com/former-disney-mouseketeers-who-now-made-names-for-themselves/)
+- [celebs board](https://celebs.allwomenstalk.com/celebrity-pinterest-boards-youll-want-to-follow/)
+- [famous actress in bikini](https://celebs.allwomenstalk.com/celebrities-bikini-ready-bodies/)
+- [images of celebrities](https://celebs.allwomenstalk.com/stunning-celebrity-black-white-photos/)
+- [actresses of the silver screen](https://movies.allwomenstalk.com/totally-ace-actors-from-scandinavia/)
 - [7 Celebrities with Addictions ...](https://celebs.allwomenstalk.com/celebrities-with-addictions/)
 - [7 Greatly Astonishing Celebrity Scandals ...](https://celebs.allwomenstalk.com/greatly-astonishing-celebrity-scandals/)
 

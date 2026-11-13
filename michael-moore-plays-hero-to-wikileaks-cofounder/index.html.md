@@ -1,9 +1,9 @@
 ---
 title: "Michael Moore Plays Hero to WikiLeaks Cofounder..."
-description: "Stay ahead, stay chic. Trusted guides on beauty, wellness, fashion, and everything that defines today's empowered woman."
+description: "Michael Moore has come to the aid of WikiLeaks cofounder Julian Assange who is currently held up at a British jail. The filmmaker has coughed up $20,000 to…"
 url: "https://celebs.allwomenstalk.com/michael-moore-plays-hero-to-wikileaks-cofounder/"
 category: "celebs"
-last_updated: "2026-09-03"
+last_updated: "2026-11-13"
 ---
 
 # Michael Moore Plays Hero to WikiLeaks Cofounder...
@@ -22,16 +22,16 @@ Julian though will not be released from jail just yet, as the Swedish prosecutor
 
 ## Related Posts
 
+- [Elton John Surprised by His Royal Invite…](https://celebs.allwomenstalk.com/elton-john-surprised-by-his-royal-invite/)
 - [kate michelman](https://allwomenstalk.com/i-really-really-hope-that-kate-michelman-doesnt-run-for-the-senate-in-pennsylvania/)
 - [Lionel Richie Calls Himself 'the Greatest Porn Sta...](https://allwomenstalk.com/lionel-richie-calls-himself-the-greatest-porn-star/)
-- [sara evans tattoo](https://allwomenstalk.com/kenny-chesney-denies-he-had-an-affair-with-sara-evans/)
-- [wedding lauren miller rogen](https://celebs.allwomenstalk.com/seth-rogen-bares-his-soul-to-stern/)
-- [Constant Fighting Ended Richie and Jenner's Relati...](https://allwomenstalk.com/constant-fighting-ended-richie-and-jenners-relationship/)
 - [Ashley Judd Now Treads a Little More Carefully…](https://celebs.allwomenstalk.com/ashley-judd-rape-culture-apology/)
-- [Johnny Never to Marry Vanessa ...](https://celebs.allwomenstalk.com/johnny-never-to-marry-vanessa/)
-- ["Fuck You, Bitch"](https://allwomenstalk.com/fuck-you-bitch-2/)
-- [Elton John Surprised by His Royal Invite…](https://celebs.allwomenstalk.com/elton-john-surprised-by-his-royal-invite/)
 - [elin nordegren pics](https://allwomenstalk.com/tiger-may-sue-irish-mag-for-elin-nordegren-nude-pics/)
+- [wedding lauren miller rogen](https://celebs.allwomenstalk.com/seth-rogen-bares-his-soul-to-stern/)
+- [Johnny Never to Marry Vanessa ...](https://celebs.allwomenstalk.com/johnny-never-to-marry-vanessa/)
+- [Constant Fighting Ended Richie and Jenner's Relati...](https://allwomenstalk.com/constant-fighting-ended-richie-and-jenners-relationship/)
+- [sara evans tattoo](https://allwomenstalk.com/kenny-chesney-denies-he-had-an-affair-with-sara-evans/)
+- ["Fuck You, Bitch"](https://allwomenstalk.com/fuck-you-bitch-2/)
 - [Mark Wahlberg to Give Bieber a Wedgie ...](https://celebs.allwomenstalk.com/mark-wahlberg-to-give-bieber-a-wedgie/)
 - [Kevin Spacey: It's Gossip, Bottom Line...](https://celebs.allwomenstalk.com/kevin-spacey-its-gossip-bottom-line/)
 

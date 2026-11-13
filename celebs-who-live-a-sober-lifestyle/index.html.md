@@ -1,9 +1,9 @@
 ---
 title: "7 Celebs Who Live a Sober Lifestyle ..."
-description: "Demi Lovato; Bradley Cooper; Jennifer Hudson; Blake Lively; Russell Brand; More ..."
+description: "Demi Lovato; Bradley Cooper; Jennifer Hudson; Blake Lively; Russell Brand"
 url: "https://celebs.allwomenstalk.com/celebs-who-live-a-sober-lifestyle/"
 category: "celebs"
-last_updated: "2026-09-03"
+last_updated: "2026-11-13"
 ---
 
 # 7 Celebs Who Live a Sober Lifestyle ...
@@ -56,16 +56,16 @@ Well, there you have it! This is just seven out of MANY celebrities who live a s
 
 ## Related Posts
 
-- [jane kaczmarek husband](https://celebs.allwomenstalk.com/celebrity-mothers-who-had-their-first-baby-after-40/)
-- [that wish would go away](https://celebs.allwomenstalk.com/celebrities-we-wish-would-go-away/)
-- [obsession idris elba](https://celebs.allwomenstalk.com/celebs-who-are-obsessed-with-hbos-girls/)
-- [kristin davis adopted child](https://celebs.allwomenstalk.com/celebrities-who-have-adopted-kids/)
-- [christian bale and rowan atkinson](https://movies.allwomenstalk.com/potential-actors-for-james-bonds-role-that-will-probably-never-happen/)
 - [how did tori kelly get famous](https://celebs.allwomenstalk.com/celebrities-who-have-praised-tori-kellys-talents/)
-- [the prettiest hair in the world](https://hair.allwomenstalk.com/male-celebrities-with-great-hair/)
-- [who is ariana grande husband?](https://celebs.allwomenstalk.com/celebs-who-have-praised-ariana-grandes-talent/)
-- [celebs in nashville](https://movies.allwomenstalk.com/celebs-from-nashville-who-love-to-live-tweet-during-the-show/)
 - [who did scooter braun manage](https://celebs.allwomenstalk.com/celebs-who-have-scooter-braun-as-a-manager/)
+- [jane kaczmarek husband](https://celebs.allwomenstalk.com/celebrity-mothers-who-had-their-first-baby-after-40/)
+- [the prettiest hair in the world](https://hair.allwomenstalk.com/male-celebrities-with-great-hair/)
+- [kristin davis adopted child](https://celebs.allwomenstalk.com/celebrities-who-have-adopted-kids/)
+- [celebs in nashville](https://movies.allwomenstalk.com/celebs-from-nashville-who-love-to-live-tweet-during-the-show/)
+- [obsession idris elba](https://celebs.allwomenstalk.com/celebs-who-are-obsessed-with-hbos-girls/)
+- [christian bale and rowan atkinson](https://movies.allwomenstalk.com/potential-actors-for-james-bonds-role-that-will-probably-never-happen/)
+- [that wish would go away](https://celebs.allwomenstalk.com/celebrities-we-wish-would-go-away/)
+- [who is ariana grande husband?](https://celebs.allwomenstalk.com/celebs-who-have-praised-ariana-grandes-talent/)
 - [7 Celebrities with Addictions ...](https://celebs.allwomenstalk.com/celebrities-with-addictions/)
 - [7 Sure Ways to Have Fun without Drinking ...](https://allwomenstalk.com/8-sure-ways-to-have-fun-without-drinking/)
 

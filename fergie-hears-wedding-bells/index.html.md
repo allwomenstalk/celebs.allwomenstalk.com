@@ -1,9 +1,9 @@
 ---
 title: "Does Alice Ferguson Make a Gorgeous Bride?"
-description: "Stay ahead, stay chic. Trusted guides on beauty, wellness, fashion, and everything that defines today's empowered woman."
+description: "Sarah, Duchess of York, attends the wedding of her half-sister, Alice, to banker Nick Stileman in Dummer. Alice looked gorgeous in a traditional white dress…"
 url: "https://celebs.allwomenstalk.com/fergie-hears-wedding-bells/"
 category: "celebs"
-last_updated: "2026-09-03"
+last_updated: "2026-11-13"
 ---
 
 # Does Alice Ferguson Make a Gorgeous Bride?
@@ -27,16 +27,16 @@ I have nothing to say about Sarah's outfit...What the hell is that!
 
 ## Related Posts
 
-- [season 9 winner american idol](https://celebs.allwomenstalk.com/american-idol-finale-arrivals/)
-- [nip slip on plane](https://celebs.allwomenstalk.com/genevieves-nip-slip/)
-- [gordon ramsay topless](https://celebs.allwomenstalk.com/ramsay-spots-a-nudist/)
+- [kelly brook tight dress](https://celebs.allwomenstalk.com/kellys-tight-dress/)
 - [shauna sand bikini](https://celebs.allwomenstalk.com/lifes-a-beach-for-shauna-sand/)
 - [kristen dunst](https://celebs.allwomenstalk.com/dunsts-bikini-body/)
+- [nip slip on plane](https://celebs.allwomenstalk.com/genevieves-nip-slip/)
 - [elisabetta canalis bikini](https://celebs.allwomenstalk.com/elisabetta-canalis-shows-off-her-ass-ets/)
-- [trinny woodall height](https://celebs.allwomenstalk.com/trinny-in-blue/)
 - [8 Photos of Miley Makes an Appearance ...](https://celebs.allwomenstalk.com/miley-makes-an-appearance/)
+- [trinny woodall height](https://celebs.allwomenstalk.com/trinny-in-blue/)
+- [season 9 winner american idol](https://celebs.allwomenstalk.com/american-idol-finale-arrivals/)
+- [gordon ramsay topless](https://celebs.allwomenstalk.com/ramsay-spots-a-nudist/)
 - [jonah hex makeup](https://celebs.allwomenstalk.com/premiere-of-jonah-hex/)
-- [kelly brook tight dress](https://celebs.allwomenstalk.com/kellys-tight-dress/)
 - [How Did Alice Become a Vampire?](https://twilight.allwomenstalk.com/how-did-alice-become-a-vampire/)
 - [Does Serena Williams Have a Hot Body?](https://celebs.allwomenstalk.com/serenas-day-at-the-beach/)
 

@@ -1,9 +1,9 @@
 ---
 title: "38 Photos of CBS Summer Press Tour Party ..."
-description: "Stay ahead, stay chic. Trusted guides on beauty, wellness, fashion, and everything that defines today's empowered woman."
+description: "Time for photos from the CBS Summer Press Tour Party. The Tent, Beverly Hills, CA. July 28, 2010. Who nailed it and who failed? Scroll down and find out!…"
 url: "https://celebs.allwomenstalk.com/cbs-summer-press-tour-party/"
 category: "celebs"
-last_updated: "2026-09-03"
+last_updated: "2026-11-13"
 ---
 
 # 38 Photos of CBS Summer Press Tour Party ...
@@ -117,16 +117,16 @@ I've always thought of Madeline Zima as sweet and demure and that's what I still
 
 ## Related Posts
 
-- [kourtney kardashian mude](https://celebs.allwomenstalk.com/kourtney-keeps-it-fashionable/)
-- [cast of the backup plan movie](https://celebs.allwomenstalk.com/the-back-up-plan-premiere/)
-- [6 Photos of Happy Birthday Claire!](https://celebs.allwomenstalk.com/happy-birthday-claire-2/)
 - [bethenny frankel pregnancy](https://celebs.allwomenstalk.com/bethenny-pregnant-in-the-city/)
+- [kourtney kardashian mude](https://celebs.allwomenstalk.com/kourtney-keeps-it-fashionable/)
 - [spunk shooting](https://wedding.allwomenstalk.com/a-spunk-filled-engagement-shoot-in-nyc/)
-- [kristen stewart brother cameron](https://twilight.allwomenstalk.com/a-biography-on-kristen-stewart/)
+- [6 Photos of Happy Birthday Claire!](https://celebs.allwomenstalk.com/happy-birthday-claire-2/)
 - [ringless finger](https://celebs.allwomenstalk.com/winslets-ringless-finger/)
-- [yasmine zeroc](https://celebs.allwomenstalk.com/camilla-gets-a-push/)
+- [kristen stewart brother cameron](https://twilight.allwomenstalk.com/a-biography-on-kristen-stewart/)
 - [twilight characters powers](https://twilight.allwomenstalk.com/a-biography-on-bella-swan-the-twilight-character-not-kristen-stewert/)
 - [amandah dominic](https://celebs.allwomenstalk.com/amanda-and-dominic-check-in/)
+- [yasmine zeroc](https://celebs.allwomenstalk.com/camilla-gets-a-push/)
+- [cast of the backup plan movie](https://celebs.allwomenstalk.com/the-back-up-plan-premiere/)
 - [38 Photos of CBS Summer Press Tour Party ...](https://celebs.allwomenstalk.com/cbs-summer-press-tour-party/)
 - [23 Photos of Cannes Film Festival 2010 - "on Tour"...](https://celebs.allwomenstalk.com/cannes-film-festival-on-tour-premiere/)
 

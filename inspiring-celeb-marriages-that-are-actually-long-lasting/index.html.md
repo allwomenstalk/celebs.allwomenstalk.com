@@ -1,9 +1,9 @@
 ---
 title: "Inspiring Celeb Marriages That Are Actually Long Lasting ..."
-description: "Kevin Bacon & Kyra Sedgwick; John Travolta & Kelly Preston; Tom Hanks & Rita Wilson; Will Smith & Jada Pinkett Smith; Ozzy & Sharon Osbourne; More ..."
+description: "Kevin Bacon & Kyra Sedgwick; John Travolta & Kelly Preston; Tom Hanks & Rita Wilson; Will Smith & Jada Pinkett Smith; Ozzy & Sharon Osbourne"
 url: "https://celebs.allwomenstalk.com/inspiring-celeb-marriages-that-are-actually-long-lasting/"
 category: "celebs"
-last_updated: "2026-09-03"
+last_updated: "2026-11-13"
 ---
 
 # Inspiring Celeb Marriages That Are Actually Long Lasting ...
@@ -62,16 +62,16 @@ Marriage takes work. And for those couples who are willing to do the work, marri
 
 ## Related Posts
 
-- [how old is gabby union](https://movies.allwomenstalk.com/adult-actors-who-have-played-teenagers/)
-- [gardening celebrities](https://gardening.allwomenstalk.com/celebrity-gardens-you-have-to-see-to-believe/)
-- [whoopi goldberg avpd](https://celebs.allwomenstalk.com/successful-stars-with-mental-disorders/)
-- [sensational beginnings](https://movies.allwomenstalk.com/actors-with-terrible-tv-beginnings/)
-- [harrison ford tom hanks](https://lifestyle.allwomenstalk.com/celebs-that-would-make-a-better-president-than-kanye/)
 - [ariana grande workout clothes](https://fitness.allwomenstalk.com/sweat-in-style-check-out-these-celebs-in-workout-gear/)
-- [david beckham swag](https://celebs.allwomenstalk.com/times-david-beckham-proved-hes-hot-hot-hot/)
-- [heidi gum](https://celebs.allwomenstalk.com/celebrity-bubble-gum-girls/)
+- [gardening celebrities](https://gardening.allwomenstalk.com/celebrity-gardens-you-have-to-see-to-believe/)
+- [harrison ford tom hanks](https://lifestyle.allwomenstalk.com/celebs-that-would-make-a-better-president-than-kanye/)
+- [sensational beginnings](https://movies.allwomenstalk.com/actors-with-terrible-tv-beginnings/)
+- [how old is gabby union](https://movies.allwomenstalk.com/adult-actors-who-have-played-teenagers/)
 - [middle aged male actors](https://movies.allwomenstalk.com/these-hot-british-actors-will-get-your-pulse-racing/)
+- [whoopi goldberg avpd](https://celebs.allwomenstalk.com/successful-stars-with-mental-disorders/)
+- [david beckham swag](https://celebs.allwomenstalk.com/times-david-beckham-proved-hes-hot-hot-hot/)
 - [riche le stylo glistening](https://hair.allwomenstalk.com/check-out-these-gorg-celebs-whove-rocked-rainbow-hair/)
+- [heidi gum](https://celebs.allwomenstalk.com/celebrity-bubble-gum-girls/)
 - [20 Shortest Celebrity Marriages ...](https://allwomenstalk.com/20-shortest-celebrity-marriages/)
 - [12 Celebrity Couples Still Going Strong ...](https://allwomenstalk.com/12-celebrity-couples-still-going-strong/)
 

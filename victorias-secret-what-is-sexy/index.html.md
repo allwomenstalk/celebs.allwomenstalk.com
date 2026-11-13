@@ -1,9 +1,9 @@
 ---
 title: "29 Photos of Victoria's Secret \"What is Sexy?\" ..."
-description: "Stay ahead, stay chic. Trusted guides on beauty, wellness, fashion, and everything that defines today's empowered woman."
+description: "Check out photos from the Victoria's Secret 5th Annual \"What Is Sexy?\" List: Bombshell Edition event held at Drai's at West Hollywood, Los Angeles . May 11th…"
 url: "https://celebs.allwomenstalk.com/victorias-secret-what-is-sexy/"
 category: "celebs"
-last_updated: "2026-09-03"
+last_updated: "2026-11-13"
 ---
 
 # 29 Photos of Victoria's Secret "What is Sexy?" ...
@@ -94,14 +94,14 @@ Looks like a fun event with gorgeous women! Who's look did you like best?
 
 ## Related Posts
 
-- [boobieday](https://allwomenstalk.com/its-a-boobie-dayim-a-huge-fan-of-burgers-i/)
 - [figleaves free shipping](https://allwomenstalk.com/figleaves-a-rant/)
-- [Figleaves Fixes up](https://allwomenstalk.com/figleaves-fixes-up/)
-- [strap on strap off](https://allwomenstalk.com/strap-onstrap-off/)
+- [Corsets ...](https://allwomenstalk.com/corsets/)
 - [look 10 pounds thinner bathing suit](https://allwomenstalk.com/humor-for-women-buying-bathing-suits/)
 - [site:love.allwomenstalk.com](https://love.allwomenstalk.com/sexiest-lingerie-garments/)
-- [Corsets ...](https://allwomenstalk.com/corsets/)
+- [strap on strap off](https://allwomenstalk.com/strap-onstrap-off/)
 - [Find the Right Bra ...](https://allwomenstalk.com/find-the-right-bra-2/)
+- [boobieday](https://allwomenstalk.com/its-a-boobie-dayim-a-huge-fan-of-burgers-i/)
+- [Figleaves Fixes up](https://allwomenstalk.com/figleaves-fixes-up/)
 - [bodymetrics](https://allwomenstalk.com/bodymetrics-a-quest-for-the-perfect-jean/)
 - [wear liners](https://health.allwomenstalk.com/ways-to-use-a-panty-liner/)
 - [49 Photos of Taste of Beverly Hills ...](https://celebs.allwomenstalk.com/taste-of-beverly-hills/)

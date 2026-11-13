@@ -1,9 +1,9 @@
 ---
 title: "7 Celebrities Who Are Vegan ..."
-description: "Carrie Underwood; Natalie Portman; Ellen Degeneres; Alicia Silverstone; Joaquin Phoenix; More ..."
+description: "Carrie Underwood; Natalie Portman; Ellen Degeneres; Alicia Silverstone; Joaquin Phoenix"
 url: "https://celebs.allwomenstalk.com/celebrities-who-are-vegan/"
 category: "celebs"
-last_updated: "2026-09-03"
+last_updated: "2026-11-13"
 ---
 
 # 7 Celebrities Who Are Vegan ...
@@ -56,16 +56,16 @@ Well, there you have it. Who knew so many celebrities had made the change to a v
 
 ## Related Posts
 
-- [vince vaughn spouse](https://celebs.allwomenstalk.com/celebrities-who-are-married-to-non-celebrities/)
-- [taylor and jake gyllenhaal age difference](https://celebs.allwomenstalk.com/for-these-celebs-age-aint-nothing-but-a-number/)
 - [aileen wuornos movie actress](https://movies.allwomenstalk.com/best-transformations-for-movies/)
-- [famous sidekicks in literature](https://movies.allwomenstalk.com/amazing-sidekicks-who-can-be-lead-stars/)
-- [celebrities who love food](https://celebs.allwomenstalk.com/celebrity-foodies-that-love-food-as-much-as-you-do/)
-- [alec baldwin looks like millard fillmore](https://celebs.allwomenstalk.com/whoa-do-these-celebs-have-a-historical-twin/)
-- [ryan gosling tagine](https://celebs.allwomenstalk.com/celebrities-who-own-restaurants-and-bars/)
 - [celebrities who went to college](https://celebs.allwomenstalk.com/hollywood-celebrities-with-college-degrees/)
+- [famous sidekicks in literature](https://movies.allwomenstalk.com/amazing-sidekicks-who-can-be-lead-stars/)
+- [taylor and jake gyllenhaal age difference](https://celebs.allwomenstalk.com/for-these-celebs-age-aint-nothing-but-a-number/)
 - [siblings best friends](https://celebs.allwomenstalk.com/these-celeb-siblings-also-double-as-best-friends/)
+- [alec baldwin looks like millard fillmore](https://celebs.allwomenstalk.com/whoa-do-these-celebs-have-a-historical-twin/)
 - [romance real life](https://movies.allwomenstalk.com/some-of-the-best-real-life-romances-that-started-on-set/)
+- [vince vaughn spouse](https://celebs.allwomenstalk.com/celebrities-who-are-married-to-non-celebrities/)
+- [ryan gosling tagine](https://celebs.allwomenstalk.com/celebrities-who-own-restaurants-and-bars/)
+- [celebrities who love food](https://celebs.allwomenstalk.com/celebrity-foodies-that-love-food-as-much-as-you-do/)
 - [7 of My Favorite Celebrities ...](https://celebs.allwomenstalk.com/7-of-my-favorite-celebrities/)
 - [7 Women Celebrities Who Smoke ...](https://celebs.allwomenstalk.com/women-celebrities-who-smoke/)
 

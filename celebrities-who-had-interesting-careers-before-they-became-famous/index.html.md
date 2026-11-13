@@ -1,9 +1,9 @@
 ---
 title: "13 Celebrities Who Had Surprising Careers Before They Were Famous"
-description: "Jennifer Aniston; Madonna; Jon Bon Jovi; James Franco; Kanye West; More ..."
+description: "Jennifer Aniston; Madonna; Jon Bon Jovi; James Franco; Kanye West"
 url: "https://celebs.allwomenstalk.com/celebrities-who-had-interesting-careers-before-they-became-famous/"
 category: "celebs"
-last_updated: "2026-09-03"
+last_updated: "2026-11-13"
 ---
 
 # 13 Celebrities Who Had Surprising Careers Before They Were Famous
@@ -107,16 +107,16 @@ Not every celebrity had an easy route to stardom. It is genuinely inspiring to r
 
 ## Related Posts
 
-- [louise lasser banned from snl](https://celebs.allwomenstalk.com/stars-banned-from-saturday-night-live/)
-- [jim carrey hairstyles](https://movies.allwomenstalk.com/roles-that-would-have-gone-to-other-actors/)
-- [smile book characters](https://celebs.allwomenstalk.com/of-the-best-female-celebrity-smiles/)
-- [cloris leachman boy meets world](https://celebs.allwomenstalk.com/celebrities-who-will-be-guest-starring-on-girl-meets-world/)
-- [sean faris and robbie amell](https://celebs.allwomenstalk.com/celebs-from-cws-arrow-that-are-social-on-twitter/)
-- [andy samberg plastic surgery](https://celebs.allwomenstalk.com/celebs-who-are-obsessed-with-true-detective/)
-- [does will smith have dyslexia](https://celebs.allwomenstalk.com/famous-people-with-dyslexia/)
-- [ezra fitz shirtless](https://movies.allwomenstalk.com/celebs-from-pretty-little-liars-who-love-to-live-tweet-during-the-show/)
 - [riche le stylo eye shadow glistening garnet](https://celebs.allwomenstalk.com/celebrities-and-their-godparents/)
+- [louise lasser banned from snl](https://celebs.allwomenstalk.com/stars-banned-from-saturday-night-live/)
+- [sean faris and robbie amell](https://celebs.allwomenstalk.com/celebs-from-cws-arrow-that-are-social-on-twitter/)
+- [does will smith have dyslexia](https://celebs.allwomenstalk.com/famous-people-with-dyslexia/)
+- [jim carrey hairstyles](https://movies.allwomenstalk.com/roles-that-would-have-gone-to-other-actors/)
+- [andy samberg plastic surgery](https://celebs.allwomenstalk.com/celebs-who-are-obsessed-with-true-detective/)
+- [ezra fitz shirtless](https://movies.allwomenstalk.com/celebs-from-pretty-little-liars-who-love-to-live-tweet-during-the-show/)
 - [pics of celebs](https://funny.allwomenstalk.com/adorably-funny-pictures-of-celebs-with-their-kids/)
+- [cloris leachman boy meets world](https://celebs.allwomenstalk.com/celebrities-who-will-be-guest-starring-on-girl-meets-world/)
+- [smile book characters](https://celebs.allwomenstalk.com/of-the-best-female-celebrity-smiles/)
 - [8 Previous Jobs Done by Celebrities ...](https://celebs.allwomenstalk.com/previous-jobs-done-by-celebrities/)
 - [7 Celebrities Who Starred in Commercials before Th...](https://celebs.allwomenstalk.com/celebrities-who-starred-in-commercials-before-they-were-famous/)
 

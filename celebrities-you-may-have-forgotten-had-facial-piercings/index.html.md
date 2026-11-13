@@ -1,9 +1,9 @@
 ---
 title: "7 Celebrities You May Have Forgotten Had Facial Piercings ..."
-description: "Christina Aguilera; Alyssa Milano; Tyrese; Scarlett Johansson; Lenny Kravitz; More ..."
+description: "Christina Aguilera; Alyssa Milano; Tyrese; Scarlett Johansson; Lenny Kravitz"
 url: "https://celebs.allwomenstalk.com/celebrities-you-may-have-forgotten-had-facial-piercings/"
 category: "celebs"
-last_updated: "2026-09-03"
+last_updated: "2026-11-13"
 ---
 
 # 7 Celebrities You May Have Forgotten Had Facial Piercings ...
@@ -56,15 +56,15 @@ From Tupac's nose stud to Chris Brown's nose ring hoop, facial piercings will al
 
 ## Related Posts
 
-- [strange facts about celebrities](https://celebs.allwomenstalk.com/little-known-facts-about-your-favorite-celebrities/)
-- [ellen pompeo and patrick dempsey bts](https://celebs.allwomenstalk.com/tgit-shondaland-celebrities-you-should-be-following-on-twitter/)
-- [celebrities with weird kid names](https://celebs.allwomenstalk.com/celebrities-explain-their-reasoning-behind-their-strange-baby-names/)
-- [famous actors with parkinson's](https://celebs.allwomenstalk.com/celebrities-with-parkinsons-disease/)
 - [cute pairings](https://celebs.allwomenstalk.com/adorable-pairings-of-celebrity-best-friends/)
+- [celebrities with weird kid names](https://celebs.allwomenstalk.com/celebrities-explain-their-reasoning-behind-their-strange-baby-names/)
+- [ellen pompeo and patrick dempsey bts](https://celebs.allwomenstalk.com/tgit-shondaland-celebrities-you-should-be-following-on-twitter/)
+- [famous actors with parkinson's](https://celebs.allwomenstalk.com/celebrities-with-parkinsons-disease/)
 - [handsome david beckham](https://celebs.allwomenstalk.com/of-the-hunkiest-celebrity-dads-around/)
-- [celebrities giving back](https://inspiration.allwomenstalk.com/these-charitable-celebrity-couples-are-all-about-giving-back/)
-- [wedding dress magazines free](https://wedding.allwomenstalk.com/gorgeous-celebrities-who-have-covered-wedding-magazines/)
 - [bromances](https://celebs.allwomenstalk.com/of-the-cutest-celebrity-bromances-of-all-time/)
+- [strange facts about celebrities](https://celebs.allwomenstalk.com/little-known-facts-about-your-favorite-celebrities/)
+- [wedding dress magazines free](https://wedding.allwomenstalk.com/gorgeous-celebrities-who-have-covered-wedding-magazines/)
+- [celebrities giving back](https://inspiration.allwomenstalk.com/these-charitable-celebrity-couples-are-all-about-giving-back/)
 - [pregnant celebrities on red carpet](https://fashion.allwomenstalk.com/celebrities-that-made-red-carpet-baby-bumps-look-amazing/)
 - [7 Cool Celebrities with Dimples ...](https://celebs.allwomenstalk.com/cool-celebrities-with-dimples/)
 - [7 Celebrities with the Best Hair ...](https://allwomenstalk.com/top-7-celebrities-with-the-best-hair/)

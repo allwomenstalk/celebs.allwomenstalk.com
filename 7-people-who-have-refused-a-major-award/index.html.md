@@ -1,9 +1,9 @@
 ---
 title: "7 People Who Have Refused a Major Award ..."
-description: "Oscar – George C. Scott; Nobel Prize – Boris Posternak; Pulitzer Prize – Sinclair Lewis; Knighthood – David Bowie; Nobel Prize – Jean Paul Sartre; More ..."
+description: "Oscar – George C. Scott; Nobel Prize – Boris Posternak; Pulitzer Prize – Sinclair Lewis; Knighthood – David Bowie; Nobel Prize – Jean Paul Sartre"
 url: "https://celebs.allwomenstalk.com/7-people-who-have-refused-a-major-award/"
 category: "celebs"
-last_updated: "2026-09-03"
+last_updated: "2026-11-13"
 ---
 
 # 7 People Who Have Refused a Major Award ...
@@ -44,16 +44,16 @@ Top Photo Credit: [Samer Farha](https://www.flickr.com/photos/samer/516593823/)
 
 ## Related Posts
 
-- [emma watson harry potter premiere outfits](https://celebs.allwomenstalk.com/emma-watsons-red-carpet-looks-for-harry-potter/)
-- [Grammy 2011 Nominations: Eminem's Leads the Way .....](https://celebs.allwomenstalk.com/grammy-nominations-eminems-leads-the-way/)
+- [The King's Speech Leads the SAG Nominations...](https://celebs.allwomenstalk.com/the-kings-speech-leads-the-sag-nominations/)
 - [25 Oscar Nominees Who Should Win This Year ...](https://bilbr.com/25-oscar-nominees-who-should-win-this-year/)
+- [nf face makeup](https://celebs.allwomenstalk.com/celebrity-fashion-face-off-pick-your-winners/)
+- [katy perry smurfette dress](https://celebs.allwomenstalk.com/ugliest-celebrity-fashion-faux-pas-of/)
+- [most stylish actresses](https://celebs.allwomenstalk.com/most-stylish-female-celebrities-of/)
+- [Grammy 2011 Nominations: Eminem's Leads the Way .....](https://celebs.allwomenstalk.com/grammy-nominations-eminems-leads-the-way/)
+- [celebrity fashion mistakes](https://celebs.allwomenstalk.com/biggest-celebrity-fashion-faux-pas-of/)
+- [emma watson harry potter premiere outfits](https://celebs.allwomenstalk.com/emma-watsons-red-carpet-looks-for-harry-potter/)
 - [golden globes 2011](https://celebs.allwomenstalk.com/golden-globe-nominations/)
 - [vma celebrities](https://celebs.allwomenstalk.com/best-dressed-celebrities-at-the-mtv-video-music-awards/)
-- [The King's Speech Leads the SAG Nominations...](https://celebs.allwomenstalk.com/the-kings-speech-leads-the-sag-nominations/)
-- [celebrity fashion mistakes](https://celebs.allwomenstalk.com/biggest-celebrity-fashion-faux-pas-of/)
-- [most stylish actresses](https://celebs.allwomenstalk.com/most-stylish-female-celebrities-of/)
-- [katy perry smurfette dress](https://celebs.allwomenstalk.com/ugliest-celebrity-fashion-faux-pas-of/)
-- [nf face makeup](https://celebs.allwomenstalk.com/celebrity-fashion-face-off-pick-your-winners/)
 - [7 Actors Who Are Overrated ...](https://movies.allwomenstalk.com/7-actors-who-are-overrated/)
 - [7 Worst Awards-Show Hosts ...](https://movies.allwomenstalk.com/7-worst-awards-show-hosts/)
 

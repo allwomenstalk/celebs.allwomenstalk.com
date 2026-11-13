@@ -1,9 +1,9 @@
 ---
 title: "15 Celebrities That Turned Their Lives around after Using Drugs ..."
-description: "Robert Downey Jr; Angelina Jolie; Robin Williams; Oprah; Samuel L. Jackson; More ..."
+description: "Robert Downey Jr; Angelina Jolie; Robin Williams; Oprah; Samuel L. Jackson"
 url: "https://celebs.allwomenstalk.com/celebrities-that-turned-their-life-around-after-using-drugs/"
 category: "celebs"
-last_updated: "2026-09-03"
+last_updated: "2026-11-13"
 ---
 
 # 15 Celebrities That Turned Their Lives around after Using Drugs ...
@@ -104,15 +104,15 @@ Everyone has the potential to change their life. Any addiction can be beaten. Wh
 
 ## Related Posts
 
-- [blonde male actors](https://movies.allwomenstalk.com/top-actors-with-oh-so-kissable-lips/)
-- [14 year old actresses female](https://celebs.allwomenstalk.com/celebrities-who-starred-in-commercials-before-they-were-famous/)
-- [famous people tweets](https://celebs.allwomenstalk.com/celebrities-who-are-known-to-tweet-back-their-followers/)
-- [celebrity couples who met on set](https://celebs.allwomenstalk.com/super-adorable-celebrity-couples-that-met-on-set/)
 - [why are celebrities stripping down](https://celebs.allwomenstalk.com/inspiring-celebrities-whove-stripped-off-for-charity/)
-- [tabloid celebrities](https://celebs.allwomenstalk.com/of-our-favorite-celebs-that-are-always-in-the-tabloids/)
-- [top celebrity endorsements](https://celebs.allwomenstalk.com/of-the-biggest-celebrity-endorsement-deals-of-all-time/)
 - [joel madden children](https://celebs.allwomenstalk.com/cute-and-stylish-celebrity-kids-we-adore/)
+- [tabloid celebrities](https://celebs.allwomenstalk.com/of-our-favorite-celebs-that-are-always-in-the-tabloids/)
 - [el pollo loco mascot](https://celebs.allwomenstalk.com/previous-jobs-done-by-celebrities/)
+- [blonde male actors](https://movies.allwomenstalk.com/top-actors-with-oh-so-kissable-lips/)
+- [celebrity couples who met on set](https://celebs.allwomenstalk.com/super-adorable-celebrity-couples-that-met-on-set/)
+- [famous people tweets](https://celebs.allwomenstalk.com/celebrities-who-are-known-to-tweet-back-their-followers/)
+- [14 year old actresses female](https://celebs.allwomenstalk.com/celebrities-who-starred-in-commercials-before-they-were-famous/)
+- [top celebrity endorsements](https://celebs.allwomenstalk.com/of-the-biggest-celebrity-endorsement-deals-of-all-time/)
 - [celebrities crop top](https://celebs.allwomenstalk.com/fabulous-celebrities-wearing-crop-tops-and-rocking-it/)
 - [Britney Spears Hits Rock Bottom ...](https://allwomenstalk.com/britney-spears-hits-rock-bottom/)
 - [7 Celebrity Self-Help Books You Probably Shouldn't...](https://allwomenstalk.com/7-celebrity-self-help-books-you-probably-shouldnt-take-seriously/)

@@ -1,9 +1,9 @@
 ---
 title: "Courteney Proud of David for Checking into Rehab..."
-description: "Stay ahead, stay chic. Trusted guides on beauty, wellness, fashion, and everything that defines today's empowered woman."
+description: "One of the weirdest couples in Tinsel Town today is definitely Courteney Cox and David Arquette. Although separated, Courteney is still standing by her…"
 url: "https://celebs.allwomenstalk.com/courteney-proud-of-david-for-checking-into-rehab/"
 category: "celebs"
-last_updated: "2026-09-03"
+last_updated: "2026-11-13"
 ---
 
 # Courteney Proud of David for Checking into Rehab...
@@ -22,16 +22,16 @@ I just hope these two can sort their mess out and work things out. For some reas
 
 ## Related Posts
 
-- [Kyle Richards Not Sure about Being a Housewife…](https://celebs.allwomenstalk.com/kyle-richards-not-sure-about-being-a-housewife/)
-- [Britney Tweets about Jason's Beatings ...](https://celebs.allwomenstalk.com/britney-tweets-about-jasons-beatings/)
 - [twitter leann rimes](https://celebs.allwomenstalk.com/leann-rimes-cibrian-tweets-her-happiness/)
-- [Elton John Surprised by His Royal Invite…](https://celebs.allwomenstalk.com/elton-john-surprised-by-his-royal-invite/)
-- [wedding lauren miller rogen](https://celebs.allwomenstalk.com/seth-rogen-bares-his-soul-to-stern/)
-- [Johnny Never to Marry Vanessa ...](https://celebs.allwomenstalk.com/johnny-never-to-marry-vanessa/)
+- [Britney Tweets about Jason's Beatings ...](https://celebs.allwomenstalk.com/britney-tweets-about-jasons-beatings/)
 - [Michael Moore Plays Hero to WikiLeaks Cofounder...](https://celebs.allwomenstalk.com/michael-moore-plays-hero-to-wikileaks-cofounder/)
 - [Howard K Stern Freed by the Law ...](https://celebs.allwomenstalk.com/howard-k-stern-freed-by-the-law/)
-- [take a risk chris brown](https://celebs.allwomenstalk.com/chris-brown-to-collaborate-with-justin-bieber/)
+- [wedding lauren miller rogen](https://celebs.allwomenstalk.com/seth-rogen-bares-his-soul-to-stern/)
+- [Johnny Never to Marry Vanessa ...](https://celebs.allwomenstalk.com/johnny-never-to-marry-vanessa/)
 - [LeAnn & Eddie Not Allowed to Party....](https://celebs.allwomenstalk.com/leann-eddie-not-allowed-to-party/)
+- [Elton John Surprised by His Royal Invite…](https://celebs.allwomenstalk.com/elton-john-surprised-by-his-royal-invite/)
+- [take a risk chris brown](https://celebs.allwomenstalk.com/chris-brown-to-collaborate-with-justin-bieber/)
+- [Kyle Richards Not Sure about Being a Housewife…](https://celebs.allwomenstalk.com/kyle-richards-not-sure-about-being-a-housewife/)
 - [Tawny Kitean Enters Drug Rehab Program](https://allwomenstalk.com/tawny-kitean-enters-drug-rehab-program/)
 - [Who'll Be Forced into Rehab Next?!?](https://allwomenstalk.com/wholl-be-forced-into-rehab-next/)
 

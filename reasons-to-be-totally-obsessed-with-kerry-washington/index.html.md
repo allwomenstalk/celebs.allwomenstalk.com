@@ -1,9 +1,9 @@
 ---
 title: "7 Reasons to Be Totally Obsessed with Kerry Washington ..."
-description: "Her Sense of Style; Scandal; Loyalty; She's Involved in Politics; Keeps Her Mystery; More ..."
+description: "Her Sense of Style; Scandal; Loyalty; She's Involved in Politics; Keeps Her Mystery"
 url: "https://celebs.allwomenstalk.com/reasons-to-be-totally-obsessed-with-kerry-washington/"
 category: "celebs"
-last_updated: "2026-09-03"
+last_updated: "2026-11-13"
 ---
 
 # 7 Reasons to Be Totally Obsessed with Kerry Washington ...
@@ -56,16 +56,16 @@ Well, there you have it! These are just seven of MANY reasons why you should lov
 
 ## Related Posts
 
-- [emo adam lambert](https://celebs.allwomenstalk.com/reasons-im-obsessed-with-adam-lambert/)
-- [tina fey height and weight](https://celebs.allwomenstalk.com/awesome-reasons-to-love-tina-fey/)
-- [is ghost adventures fake](https://movies.allwomenstalk.com/reasons-i-love-watching-ghost-adventures/)
-- [demi lovato neon lights tour](https://music.allwomenstalk.com/reasons-i-loved-demis-neon-lights-tour/)
-- [willow summers actor](https://movies.allwomenstalk.com/reasons-why-buffy-summers-is-the-best-female-tv-character-of-all-time/)
 - [francofest](https://movies.allwomenstalk.com/reasons-why-franco-fest-was-the-best-thing-to-have-happened-in-a-while/)
-- [tv shows like orphan black](https://movies.allwomenstalk.com/reasons-why-orphan-black-is-a-show-you-should-be-watching/)
-- [geeks are cool](https://lifestyle.allwomenstalk.com/reasons-why-its-awesome-to-be-a-geek/)
+- [emo adam lambert](https://celebs.allwomenstalk.com/reasons-im-obsessed-with-adam-lambert/)
 - [demi lovato voice type](https://music.allwomenstalk.com/reasons-you-should-see-demi-lovato-in-concert/)
+- [tina fey height and weight](https://celebs.allwomenstalk.com/awesome-reasons-to-love-tina-fey/)
+- [willow summers actor](https://movies.allwomenstalk.com/reasons-why-buffy-summers-is-the-best-female-tv-character-of-all-time/)
+- [tv shows like orphan black](https://movies.allwomenstalk.com/reasons-why-orphan-black-is-a-show-you-should-be-watching/)
 - [7 Awesome Reasons to Love Madelaine Hasson ...](https://celebs.allwomenstalk.com/awesome-reasons-to-love-madelaine-hasson/)
+- [demi lovato neon lights tour](https://music.allwomenstalk.com/reasons-i-loved-demis-neon-lights-tour/)
+- [is ghost adventures fake](https://movies.allwomenstalk.com/reasons-i-love-watching-ghost-adventures/)
+- [geeks are cool](https://lifestyle.allwomenstalk.com/reasons-why-its-awesome-to-be-a-geek/)
 - [10 Reasons to Love Jennifer Aniston ...](https://allwomenstalk.com/10-reasons-to-love-jennifer-aniston/)
 - [10 Reasons to Love Kate Winslet ...](https://allwomenstalk.com/10-reasons-to-love-kate-winslet/)
 

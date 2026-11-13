@@ -1,9 +1,9 @@
 ---
 title: "Who's Excited to See the Prince of Persia?"
-description: "Stay ahead, stay chic. Trusted guides on beauty, wellness, fashion, and everything that defines today's empowered woman."
+description: "I am I am! And not just because of Jake Gyllenhaal. I just loved the game! Here are photos from the Los Angeles Premiere of \"Prince Of Persia\". Grauman's…"
 url: "https://celebs.allwomenstalk.com/prince-of-persia-premiere/"
 category: "celebs"
-last_updated: "2026-09-03"
+last_updated: "2026-11-13"
 ---
 
 # Who's Excited to See the Prince of Persia?

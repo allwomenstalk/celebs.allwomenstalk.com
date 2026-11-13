@@ -1,9 +1,9 @@
 ---
 title: "26 Gay Actors Who Totally Rock 🤘 Straight Characters ..."
-description: "Neil Patrick Harris; Kristian Nairn; Jane Lynch; Cynthia Nixon; Jim Parsons; More ..."
+description: "Neil Patrick Harris; Kristian Nairn; Jane Lynch; Cynthia Nixon; Jim Parsons"
 url: "https://celebs.allwomenstalk.com/gay-actors-who-aced-their-straight-roles/"
 category: "celebs"
-last_updated: "2026-09-03"
+last_updated: "2026-11-13"
 ---
 
 # 26 Gay Actors Who Totally Rock 🤘 Straight Characters ...
@@ -128,16 +128,16 @@ Do any of these names surprise you?
 
 ## Related Posts
 
-- [how old was dakota culkin when she died?](https://celebs.allwomenstalk.com/child-stars-then-and-now/)
 - [how to snap celebrities](https://celebs.allwomenstalk.com/the-hottest-celebs-to-follow-on-snapchat/)
-- [it was sexier in the nineties](https://celebs.allwomenstalk.com/90s-stars-who-are-even-sexier-today/)
-- [halle berry sarah palin](https://celebs.allwomenstalk.com/did-you-know-these-celebs-were-beauty-queens-before-they-became-stars/)
-- [best celebrity workouts](https://fitness.allwomenstalk.com/celeb-workouts-for-women-who-want-to-look-like-stars/)
-- [morgana mcnelis jewelry](https://celebs.allwomenstalk.com/celebrities-wed-love-to-swap-boyfriends-with-for-a-day/)
-- [full frontal movie stars](https://celebs.allwomenstalk.com/hot-actors-whove-gone-full-frontal-on-screen/)
-- [social media food trends](https://food.allwomenstalk.com/foods-that-broke-the-internet-as-much-as-kim/)
-- [celebrity face swap](https://celebs.allwomenstalk.com/these-are-the-best-face-swaps-celebs-have-ever-posted/)
 - [ryan reynolds crush](https://funny.allwomenstalk.com/everyone-who-has-a-crush-on-ryan-reynolds-needs-to-see-these-tweets/)
+- [it was sexier in the nineties](https://celebs.allwomenstalk.com/90s-stars-who-are-even-sexier-today/)
+- [best celebrity workouts](https://fitness.allwomenstalk.com/celeb-workouts-for-women-who-want-to-look-like-stars/)
+- [social media food trends](https://food.allwomenstalk.com/foods-that-broke-the-internet-as-much-as-kim/)
+- [full frontal movie stars](https://celebs.allwomenstalk.com/hot-actors-whove-gone-full-frontal-on-screen/)
+- [morgana mcnelis jewelry](https://celebs.allwomenstalk.com/celebrities-wed-love-to-swap-boyfriends-with-for-a-day/)
+- [celebrity face swap](https://celebs.allwomenstalk.com/these-are-the-best-face-swaps-celebs-have-ever-posted/)
+- [how old was dakota culkin when she died?](https://celebs.allwomenstalk.com/child-stars-then-and-now/)
+- [halle berry sarah palin](https://celebs.allwomenstalk.com/did-you-know-these-celebs-were-beauty-queens-before-they-became-stars/)
 - [9 Random Movie Characters I Adore ...](https://movies.allwomenstalk.com/random-movie-characters-i-adore/)
 - [18 Blonde Actresses We All Know and Love ...](https://celebs.allwomenstalk.com/25-hottest-blonde-celebrities/)
 

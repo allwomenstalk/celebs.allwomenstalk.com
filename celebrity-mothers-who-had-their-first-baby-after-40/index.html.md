@@ -1,9 +1,9 @@
 ---
 title: "7 Celebrity Mothers Who Had Their First Baby after 40 ..."
-description: "Mariah Carey; Nicole Kidman; Marcia Cross; Salma Hayek; Mary Stewart Masterson; More ..."
+description: "Mariah Carey; Nicole Kidman; Marcia Cross; Salma Hayek; Mary Stewart Masterson"
 url: "https://celebs.allwomenstalk.com/celebrity-mothers-who-had-their-first-baby-after-40/"
 category: "celebs"
-last_updated: "2026-09-03"
+last_updated: "2026-11-13"
 ---
 
 # 7 Celebrity Mothers Who Had Their First Baby after 40 ...
@@ -56,16 +56,16 @@ I don't know if it's just me, but it seems that 41 is the lucky age to have babi
 
 ## Related Posts
 
-- [christian bale and rowan atkinson](https://movies.allwomenstalk.com/potential-actors-for-james-bonds-role-that-will-probably-never-happen/)
-- [who did scooter braun manage](https://celebs.allwomenstalk.com/celebs-who-have-scooter-braun-as-a-manager/)
-- [how did tori kelly get famous](https://celebs.allwomenstalk.com/celebrities-who-have-praised-tori-kellys-talents/)
-- [celebs in nashville](https://movies.allwomenstalk.com/celebs-from-nashville-who-love-to-live-tweet-during-the-show/)
-- [that wish would go away](https://celebs.allwomenstalk.com/celebrities-we-wish-would-go-away/)
-- [obsession idris elba](https://celebs.allwomenstalk.com/celebs-who-are-obsessed-with-hbos-girls/)
-- [kristin davis adopted child](https://celebs.allwomenstalk.com/celebrities-who-have-adopted-kids/)
-- [who is ariana grande husband?](https://celebs.allwomenstalk.com/celebs-who-have-praised-ariana-grandes-talent/)
 - [the prettiest hair in the world](https://hair.allwomenstalk.com/male-celebrities-with-great-hair/)
+- [who did scooter braun manage](https://celebs.allwomenstalk.com/celebs-who-have-scooter-braun-as-a-manager/)
+- [that wish would go away](https://celebs.allwomenstalk.com/celebrities-we-wish-would-go-away/)
+- [christian bale and rowan atkinson](https://movies.allwomenstalk.com/potential-actors-for-james-bonds-role-that-will-probably-never-happen/)
 - [types of celebrities jobs](https://celebs.allwomenstalk.com/celebrities-who-had-interesting-careers-before-they-became-famous/)
+- [who is ariana grande husband?](https://celebs.allwomenstalk.com/celebs-who-have-praised-ariana-grandes-talent/)
+- [celebs in nashville](https://movies.allwomenstalk.com/celebs-from-nashville-who-love-to-live-tweet-during-the-show/)
+- [kristin davis adopted child](https://celebs.allwomenstalk.com/celebrities-who-have-adopted-kids/)
+- [how did tori kelly get famous](https://celebs.allwomenstalk.com/celebrities-who-have-praised-tori-kellys-talents/)
+- [obsession idris elba](https://celebs.allwomenstalk.com/celebs-who-are-obsessed-with-hbos-girls/)
 - [7 Most Recent Celebrity Moms ...](https://celebs.allwomenstalk.com/most-recent-celebrity-moms/)
 - [8 Celebrities Who Have Aged Beautifully ...](https://celebs.allwomenstalk.com/celebrities-who-have-aged-beautifully/)
 

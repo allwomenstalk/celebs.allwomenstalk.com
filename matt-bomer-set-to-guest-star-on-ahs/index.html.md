@@ -1,9 +1,9 @@
 ---
 title: "Matt Bomer Set to Guest Star on AHS ..."
-description: "Stay ahead, stay chic. Trusted guides on beauty, wellness, fashion, and everything that defines today's empowered woman."
+description: "If you're obsessed with American Horror Story (*cough cough* like me), and you're also a fan of USA Network's White Collar, then boy are you in for a special…"
 url: "https://celebs.allwomenstalk.com/matt-bomer-set-to-guest-star-on-ahs/"
 category: "celebs"
-last_updated: "2026-09-03"
+last_updated: "2026-11-13"
 ---
 
 # Matt Bomer Set to Guest Star on AHS ...
@@ -16,16 +16,16 @@ Are you excited to see Matt guest-star?
 
 ## Related Posts
 
-- [lolnews](https://funny.allwomenstalk.com/lol-news-anchor-goes-viral-after-dancing-to-taylor-swift-t-i/)
-- [vanessa hudgens cute](https://celebs.allwomenstalk.com/sibling-love-vanessa-hudgens-cutest-pics-with-stella/)
-- [emma watson elle](https://celebs.allwomenstalk.com/emma-watson-shines-on-new-elle-cover-while-discussing-feminism/)
-- [lorde without makeup](https://celebs.allwomenstalk.com/dare-to-go-bare-with-inspiration-from-lordes-makeup-free-selfies/)
-- [disney breast cancer awareness](https://inspiration.allwomenstalk.com/talented-artist-uses-disney-princesses-to-promote-breast-cancer-awareness/)
-- [dave grohl ice bucket challenge](https://celebs.allwomenstalk.com/the-foo-fighters-re-enact-carrie-for-the-als-challenge-and-its-awesome/)
-- [mindy kaling tom cruise](https://celebs.allwomenstalk.com/mindy-kalings-behind-the-scenes-set-photos/)
 - [parks and recreation bloopers season 3](https://celebs.allwomenstalk.com/amy-poehler-will-keep-you-laughing-in-new-parks-rec-gag-reel/)
+- [dave grohl ice bucket challenge](https://celebs.allwomenstalk.com/the-foo-fighters-re-enact-carrie-for-the-als-challenge-and-its-awesome/)
 - [eminem date rihanna](https://music.allwomenstalk.com/eminem-and-rihanna-kill-it-in-detroit/)
+- [mindy kaling tom cruise](https://celebs.allwomenstalk.com/mindy-kalings-behind-the-scenes-set-photos/)
+- [lorde without makeup](https://celebs.allwomenstalk.com/dare-to-go-bare-with-inspiration-from-lordes-makeup-free-selfies/)
+- [lolnews](https://funny.allwomenstalk.com/lol-news-anchor-goes-viral-after-dancing-to-taylor-swift-t-i/)
+- [disney breast cancer awareness](https://inspiration.allwomenstalk.com/talented-artist-uses-disney-princesses-to-promote-breast-cancer-awareness/)
 - [Kudos to Keira for Taking a Stand ...](https://celebs.allwomenstalk.com/kudos-to-keira-for-taking-a-stand/)
+- [emma watson elle](https://celebs.allwomenstalk.com/emma-watson-shines-on-new-elle-cover-while-discussing-feminism/)
+- [vanessa hudgens cute](https://celebs.allwomenstalk.com/sibling-love-vanessa-hudgens-cutest-pics-with-stella/)
 - [Harry Potter to Cast a Spell in Southern Californi...](https://travel.allwomenstalk.com/could-it-be-magic-harry-potter-to-cast-a-spell-in-southern-california/)
 - [Seth Rogen Bares His Soul to Stern...](https://celebs.allwomenstalk.com/seth-rogen-bares-his-soul-to-stern/)
 

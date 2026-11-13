@@ -1,9 +1,9 @@
 ---
 title: "6 Photos of Kardashians Shop in Soho ..."
-description: "Stay ahead, stay chic. Trusted guides on beauty, wellness, fashion, and everything that defines today's empowered woman."
+description: "Kourtney and Kim Kardashian shop for underwear at the Wolford store in Soho. City: New York"
 url: "https://celebs.allwomenstalk.com/kardashians-shop-in-soho/"
 category: "celebs"
-last_updated: "2026-09-03"
+last_updated: "2026-11-13"
 ---
 
 # 6 Photos of Kardashians Shop in Soho ...
@@ -25,16 +25,16 @@ City: [New York](https://celebs.allwomenstalk.com/tag/new-york/)
 
 ## Related Posts
 
-- [tyra banks 2000](https://celebs.allwomenstalk.com/dresses-tyra-banks-shouldnt-have-worn/)
-- [Christian Louboutin Fall 2011 Lookbook ...](https://celebs.allwomenstalk.com/christian-louboutin-fall-lookbook/)
-- [hottest designers](https://allwomenstalk.com/3-10/)
-- [Tv Dilema, Fall Beauty and a New Look ...](https://allwomenstalk.com/tv-dilema-fall-beauty-and-a-new-look/)
-- [marc bouwer dresses shop](https://allwomenstalk.com/fashion-week-marc-bouwer/)
-- [It's Harper's Bazaar Week...](https://allwomenstalk.com/its-harpers-bazaar-week/)
 - [Gwen and Kingston End NYFW in Style ...](https://celebs.allwomenstalk.com/gwen-and-kingston-end-nyfw-in-style/)
+- [Tv Dilema, Fall Beauty and a New Look ...](https://allwomenstalk.com/tv-dilema-fall-beauty-and-a-new-look/)
 - [The State of the Fashion Union ...](https://allwomenstalk.com/the-state-of-the-fashion-union/)
-- [2006 hair styles](https://allwomenstalk.com/fashionable-hair-styles-eyes-on-stars/)
+- [Christian Louboutin Fall 2011 Lookbook ...](https://celebs.allwomenstalk.com/christian-louboutin-fall-lookbook/)
+- [tyra banks 2000](https://celebs.allwomenstalk.com/dresses-tyra-banks-shouldnt-have-worn/)
 - [Sample Sales as Shopping Parties, Yahoo! News, Fas...](https://allwomenstalk.com/sample-sales-as-shopping-parties-yahoo-news-fashion-wire-daily/)
+- [It's Harper's Bazaar Week...](https://allwomenstalk.com/its-harpers-bazaar-week/)
+- [hottest designers](https://allwomenstalk.com/3-10/)
+- [marc bouwer dresses shop](https://allwomenstalk.com/fashion-week-marc-bouwer/)
+- [2006 hair styles](https://allwomenstalk.com/fashionable-hair-styles-eyes-on-stars/)
 - [16 Photos of Ralph Lauren Shop Opening ...](https://celebs.allwomenstalk.com/ralph-lauren-opens-up-new-shop/)
 - [4 Photos of Jessica Szohr in Soho ...](https://celebs.allwomenstalk.com/szohr-in-soho/)
 

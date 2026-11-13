@@ -1,9 +1,9 @@
 ---
 title: "See How Your Favorite Celebs Spent the Holidays in Our Christmas Re-cap!"
-description: "Cameron Dallas; Oprah; Jesse Tyler Ferguson; Ansel Elgort; Vanessa Hudgens; More ..."
+description: "Cameron Dallas; Oprah; Jesse Tyler Ferguson; Ansel Elgort; Vanessa Hudgens"
 url: "https://celebs.allwomenstalk.com/see-how-your-favorite-celebs-spent-the-holidays-in-our-christmas-re-cap/"
 category: "celebs"
-last_updated: "2026-09-03"
+last_updated: "2026-11-13"
 ---
 
 # See How Your Favorite Celebs Spent the Holidays in Our Christmas Re\-cap!
@@ -128,16 +128,16 @@ How did YOU celebrate the holidays?
 
 ## Related Posts
 
+- [reese witherspoon as june carter](https://celebs.allwomenstalk.com/celebrities-who-look-exactly-like-who-they-portrayed-in-a-biopic/)
 - [milo ventimiglia girlfriend](https://celebs.allwomenstalk.com/of-your-favorite-fictional-couples-who-dated-off-screen-too/)
 - [jack falahee weight gain](https://celebs.allwomenstalk.com/breakout-celebrities-of/)
-- [hemsworth brothers shirtless](https://celebs.allwomenstalk.com/photos-of-the-hemsworth-brothers-to-make-your-ovaries-explode/)
 - [carrie underwood prego](https://fashion.allwomenstalk.com/stars-with-the-best-baby-bump-style-of-all-time/)
+- [victoria justice and katharine mcphee](https://celebs.allwomenstalk.com/underrated-celebrities-that-should-be-more-famous/)
 - [celebrities who hid their pregnancies while filmin...](https://celebs.allwomenstalk.com/celebrities-who-hid-their-baby-bumps-while-filming/)
+- [you are beautiful inside and out](https://celebs.allwomenstalk.com/celebrities-who-are-beautiful-inside-and-out/)
 - [famous people on twitter](https://celebs.allwomenstalk.com/of-the-most-followed-celebrities-on-twitter/)
 - [kelly osbourne skinny](https://celebs.allwomenstalk.com/celebrities-that-had-a-major-weight-loss-transformation/)
-- [victoria justice and katharine mcphee](https://celebs.allwomenstalk.com/underrated-celebrities-that-should-be-more-famous/)
-- [reese witherspoon as june carter](https://celebs.allwomenstalk.com/celebrities-who-look-exactly-like-who-they-portrayed-in-a-biopic/)
-- [you are beautiful inside and out](https://celebs.allwomenstalk.com/celebrities-who-are-beautiful-inside-and-out/)
+- [hemsworth brothers shirtless](https://celebs.allwomenstalk.com/photos-of-the-hemsworth-brothers-to-make-your-ovaries-explode/)
 - [Hallows Eve!](https://allwomenstalk.com/hallows-eve/)
 - [The Holiday](https://allwomenstalk.com/the-holiday/)
 

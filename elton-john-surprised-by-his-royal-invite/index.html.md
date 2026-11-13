@@ -1,9 +1,9 @@
 ---
 title: "Elton John Surprised by His Royal Invite…"
-description: "Stay ahead, stay chic. Trusted guides on beauty, wellness, fashion, and everything that defines today's empowered woman."
+description: "The date for the Royal Wedding is getting closer and everyone with an invite is talking about their plans for the big day. Elton John too, spoke to Barbara…"
 url: "https://celebs.allwomenstalk.com/elton-john-surprised-by-his-royal-invite/"
 category: "celebs"
-last_updated: "2026-09-03"
+last_updated: "2026-11-13"
 ---
 
 # Elton John Surprised by His Royal Invite…
@@ -24,16 +24,16 @@ Though of course, his outburst was short lived.
 
 ## Related Posts
 
-- [A Fellow Author Clued Me in That Gawker Was Having...](https://allwomenstalk.com/a-fellow-author-clued-me-in-that-gawker-was-having/)
-- [elin nordegren pics](https://allwomenstalk.com/tiger-may-sue-irish-mag-for-elin-nordegren-nude-pics/)
-- [britney spears sec tape](https://allwomenstalk.com/celebrity-porn-peddler-offers-100-million-for-britney-spears-sex-tape/)
-- [Lionel Richie Calls Himself 'the Greatest Porn Sta...](https://allwomenstalk.com/lionel-richie-calls-himself-the-greatest-porn-star/)
-- [sara evans tattoo](https://allwomenstalk.com/kenny-chesney-denies-he-had-an-affair-with-sara-evans/)
 - [simon mills journalist](https://allwomenstalk.com/posh-spice-is-no-style-icon/)
 - ["Fuck You, Bitch"](https://allwomenstalk.com/fuck-you-bitch-2/)
-- [kate michelman](https://allwomenstalk.com/i-really-really-hope-that-kate-michelman-doesnt-run-for-the-senate-in-pennsylvania/)
 - [Constant Fighting Ended Richie and Jenner's Relati...](https://allwomenstalk.com/constant-fighting-ended-richie-and-jenners-relationship/)
+- [A Fellow Author Clued Me in That Gawker Was Having...](https://allwomenstalk.com/a-fellow-author-clued-me-in-that-gawker-was-having/)
+- [Lionel Richie Calls Himself 'the Greatest Porn Sta...](https://allwomenstalk.com/lionel-richie-calls-himself-the-greatest-porn-star/)
+- [sara evans tattoo](https://allwomenstalk.com/kenny-chesney-denies-he-had-an-affair-with-sara-evans/)
+- [kate michelman](https://allwomenstalk.com/i-really-really-hope-that-kate-michelman-doesnt-run-for-the-senate-in-pennsylvania/)
+- [elin nordegren pics](https://allwomenstalk.com/tiger-may-sue-irish-mag-for-elin-nordegren-nude-pics/)
 - [Ashley Judd Now Treads a Little More Carefully…](https://celebs.allwomenstalk.com/ashley-judd-rape-culture-apology/)
+- [britney spears sec tape](https://allwomenstalk.com/celebrity-porn-peddler-offers-100-million-for-britney-spears-sex-tape/)
 - [Ed O'Neill is Jane's Biggest Fan ...](https://celebs.allwomenstalk.com/ed-oneill-is-janes-biggest-fan/)
 - [LeAnn & Eddie Not Allowed to Party....](https://celebs.allwomenstalk.com/leann-eddie-not-allowed-to-party/)
 

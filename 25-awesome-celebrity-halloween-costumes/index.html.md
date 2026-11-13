@@ -1,9 +1,9 @@
 ---
 title: "25 Awesome Celebrity Halloween Costumes ..."
-description: "Jenny McCarthy; Kate Beckinsale; Lydia Hearst; Tyra Banks; Katerina Graham; More ..."
+description: "Jenny McCarthy; Kate Beckinsale; Lydia Hearst; Tyra Banks; Katerina Graham"
 url: "https://celebs.allwomenstalk.com/25-awesome-celebrity-halloween-costumes/"
 category: "celebs"
-last_updated: "2026-09-03"
+last_updated: "2026-11-13"
 ---
 
 # 25 Awesome Celebrity Halloween Costumes ...

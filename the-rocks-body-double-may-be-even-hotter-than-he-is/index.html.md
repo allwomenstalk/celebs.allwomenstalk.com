@@ -1,9 +1,9 @@
 ---
 title: "The Rock's Body Double May Be Even Hotter than He is ..."
-description: "Stay ahead, stay chic. Trusted guides on beauty, wellness, fashion, and everything that defines today's empowered woman."
+description: "Look at that resemblance! Wondering why they look so similar? It's because The Rock's body double for the last 13 years has been his own cousin, Tanoai Reed…"
 url: "https://celebs.allwomenstalk.com/the-rocks-body-double-may-be-even-hotter-than-he-is/"
 category: "celebs"
-last_updated: "2026-09-03"
+last_updated: "2026-11-13"
 ---
 
 # The Rock's Body Double May Be Even Hotter than He is ...
@@ -26,16 +26,16 @@ Do you find Tanoai hotter than Dwayne, or should The Rock keep his title as the 
 
 ## Related Posts
 
-- [amy poehler plastic surgery](https://lifestyle.allwomenstalk.com/times-you-wanted-tina-fey-and-amy-poehler-for-your-bffs/)
-- [make up disney princess](https://makeup.allwomenstalk.com/what-would-your-favorite-disney-princess-look-like-without-makeup/)
-- [emma roberts in coven](https://celebs.allwomenstalk.com/look-to-steal-from-american-horror-storys-emma-roberts/)
-- [gold dress jennifer lawrence](https://celebs.allwomenstalk.com/times-jennifer-lawrence-looked-hot-at-a-hunger-games-premiere/)
 - [snapchat usernames search](https://apps.allwomenstalk.com/the-snap-chat-co-host-search-is-in-full-swing/)
+- [emma roberts in coven](https://celebs.allwomenstalk.com/look-to-steal-from-american-horror-storys-emma-roberts/)
 - [sexy viking men](https://lifestyle.allwomenstalk.com/this-navy-officer-looks-like-thor-and-every-woman-wants-to-surrender/)
-- [youtube gorgeous](https://makeup.allwomenstalk.com/beyond-gorgeous-youtube-star-to-steal-tips-from/)
-- [ashley tisdale wedding](https://wedding.allwomenstalk.com/what-would-you-rate-ashley-tisdales-wedding-dress/)
 - [bond girl makeup](https://celebs.allwomenstalk.com/its-unbelievable-how-beautiful-these-bond-girls-look-now/)
 - [throwback looks](https://fashion.allwomenstalk.com/throwback-looks-from-the-lovable-hilary-duff/)
+- [ashley tisdale wedding](https://wedding.allwomenstalk.com/what-would-you-rate-ashley-tisdales-wedding-dress/)
+- [make up disney princess](https://makeup.allwomenstalk.com/what-would-your-favorite-disney-princess-look-like-without-makeup/)
+- [amy poehler plastic surgery](https://lifestyle.allwomenstalk.com/times-you-wanted-tina-fey-and-amy-poehler-for-your-bffs/)
+- [youtube gorgeous](https://makeup.allwomenstalk.com/beyond-gorgeous-youtube-star-to-steal-tips-from/)
+- [gold dress jennifer lawrence](https://celebs.allwomenstalk.com/times-jennifer-lawrence-looked-hot-at-a-hunger-games-premiere/)
 - [A Biography on Robert Pattinson ...](https://twilight.allwomenstalk.com/a-biography-on-robert-pattinson/)
 - [Mark Wahlberg to Give Bieber a Wedgie ...](https://celebs.allwomenstalk.com/mark-wahlberg-to-give-bieber-a-wedgie/)
 

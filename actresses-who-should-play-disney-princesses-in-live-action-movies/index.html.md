@@ -1,9 +1,9 @@
 ---
 title: "7 Actresses Who Should Play Disney Princesses in Live-Action Movies ..."
-description: "Zooey Deschanel as Snow White; Bella Thorne as Ariel; Ariel Winter or Selena Gomez as Belle; Miley Cyrus as Rapunzel; Rihanna as Tiana; More ..."
+description: "Zooey Deschanel as Snow White; Bella Thorne as Ariel; Ariel Winter or Selena Gomez as Belle; Miley Cyrus as Rapunzel; Rihanna as Tiana"
 url: "https://celebs.allwomenstalk.com/actresses-who-should-play-disney-princesses-in-live-action-movies/"
 category: "celebs"
-last_updated: "2026-09-03"
+last_updated: "2026-11-13"
 ---
 
 # 7 Actresses Who Should Play Disney Princesses in Live\-Action Movies ...
@@ -56,16 +56,16 @@ The TV series "Once Upon a Time" has done a pretty good job bringing some Disney
 
 ## Related Posts
 
-- [glamorous jobs that pay well](https://lifestyle.allwomenstalk.com/glamorous-careers-wed-all-kill-to-have/)
-- [best tv moms of all time](https://movies.allwomenstalk.com/of-the-best-tv-moms-that-you-wish-were-yours/)
-- [tvwomen r34](https://movies.allwomenstalk.com/funniest-tv-women-that-you-just-have-to-watch/)
-- [supermodels on trampoline](https://celebs.allwomenstalk.com/amazing-supermodels-i-want-to-be-friends-with/)
-- [7 Kick-Ass Celebrities Who Support Women's Rights ...](https://celebs.allwomenstalk.com/kick-ass-celebrities-who-support-womens-rights/)
-- [margareta av anjou](https://celebs.allwomenstalk.com/controversial-queens-we-still-talk-about-today/)
-- [best fashion magazine subscriptions](https://lifestyle.allwomenstalk.com/most-fabulous-lifestyle-magazines-for-women/)
-- [most loved disney princess](https://movies.allwomenstalk.com/of-the-best-disney-princesses-that-we-absolutely-adore/)
 - [vera farmiga sister actress](https://celebs.allwomenstalk.com/underrated-actresses-who-deserve-more-attention/)
+- [glamorous jobs that pay well](https://lifestyle.allwomenstalk.com/glamorous-careers-wed-all-kill-to-have/)
+- [best fashion magazine subscriptions](https://lifestyle.allwomenstalk.com/most-fabulous-lifestyle-magazines-for-women/)
+- [tvwomen r34](https://movies.allwomenstalk.com/funniest-tv-women-that-you-just-have-to-watch/)
+- [best tv moms of all time](https://movies.allwomenstalk.com/of-the-best-tv-moms-that-you-wish-were-yours/)
+- [margareta av anjou](https://celebs.allwomenstalk.com/controversial-queens-we-still-talk-about-today/)
+- [most loved disney princess](https://movies.allwomenstalk.com/of-the-best-disney-princesses-that-we-absolutely-adore/)
 - [tv shows with strong female leads](https://movies.allwomenstalk.com/strong-female-characters-on-tv-who-are-truly-inspiring/)
+- [7 Kick-Ass Celebrities Who Support Women's Rights ...](https://celebs.allwomenstalk.com/kick-ass-celebrities-who-support-womens-rights/)
+- [supermodels on trampoline](https://celebs.allwomenstalk.com/amazing-supermodels-i-want-to-be-friends-with/)
 - [7 Strong and Inspiring Female Characters from Movi...](https://movies.allwomenstalk.com/7-strong-and-inspiring-female-characters-from-movies/)
 - [7 Wonderful Black Actresses ...](https://celebs.allwomenstalk.com/7-wonderful-black-actresses/)
 

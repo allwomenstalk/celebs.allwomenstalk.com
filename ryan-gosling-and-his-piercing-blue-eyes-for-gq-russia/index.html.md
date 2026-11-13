@@ -1,9 +1,9 @@
 ---
 title: "Does Ryan Gosling Have Blue Eyes? Inside His Iconic GQ Russia Photoshoot"
-description: "Stay ahead, stay chic. Trusted guides on beauty, wellness, fashion, and everything that defines today's empowered woman."
+description: "I must warn you right at the beginning that once I start gushing about the force that is Ryan Gosling, I won't be able to stop. Fans often ask, does Ryan…"
 url: "https://celebs.allwomenstalk.com/ryan-gosling-and-his-piercing-blue-eyes-for-gq-russia/"
 category: "celebs"
-last_updated: "2026-09-03"
+last_updated: "2026-11-13"
 ---
 
 # Does Ryan Gosling Have Blue Eyes? Inside His Iconic GQ Russia Photoshoot
@@ -45,16 +45,16 @@ Sigh. This entire photoshoot seems to be one of those where a brilliant idea wit
 
 ## Related Posts
 
+- [Rihanna Wants You to See Everything...](https://celebs.allwomenstalk.com/rihanna-wants-you-to-see-everything/)
 - [Lady Gaga Goes Country…](https://celebs.allwomenstalk.com/lady-gaga-goes-country/)
+- [bess bistro austin](https://celebs.allwomenstalk.com/could-ryan-and-sandra-be-the-flavor-of/)
+- [taylor lautner jawline](https://celebs.allwomenstalk.com/taylor-lautner-looks-refined-for-gq-australia/)
 - [melissa mccarthy mother](https://lifestyle.allwomenstalk.com/moms-are-talking-with-melissa-mccarthy-over-at-ivorys-the-soap-dish/)
+- [Racy Snaps Were Meant for Christina's Stylist ...](https://celebs.allwomenstalk.com/racy-snaps-were-meant-for-christinas-stylist/)
+- [Another Photo Shoot in NY ...](https://allwomenstalk.com/another-photo-shoot-in-ny/)
+- [The Fabulous Fanning Sisters for W Magazine ...](https://celebs.allwomenstalk.com/the-fabulous-fanning-sisters-for-w-magazine/)
 - [Mariah’s Just Not There Yet…](https://celebs.allwomenstalk.com/mariahs-just-not-there-yet/)
 - [And Just like That, I'm 19 Entertainment's Bitch a...](https://allwomenstalk.com/and-just-like-that-im-19-entertainments-bitch-a/)
-- [taylor lautner jawline](https://celebs.allwomenstalk.com/taylor-lautner-looks-refined-for-gq-australia/)
-- [Racy Snaps Were Meant for Christina's Stylist ...](https://celebs.allwomenstalk.com/racy-snaps-were-meant-for-christinas-stylist/)
-- [bess bistro austin](https://celebs.allwomenstalk.com/could-ryan-and-sandra-be-the-flavor-of/)
-- [The Fabulous Fanning Sisters for W Magazine ...](https://celebs.allwomenstalk.com/the-fabulous-fanning-sisters-for-w-magazine/)
-- [Another Photo Shoot in NY ...](https://allwomenstalk.com/another-photo-shoot-in-ny/)
-- [Rihanna Wants You to See Everything...](https://celebs.allwomenstalk.com/rihanna-wants-you-to-see-everything/)
 - [Kate Winslet for Harper's Bazaar UK ...](https://celebs.allwomenstalk.com/kate-winslet-for-harpers-bazaar-uk/)
 - [From Russia with Love ...](https://allwomenstalk.com/from-russia-with-love/)
 

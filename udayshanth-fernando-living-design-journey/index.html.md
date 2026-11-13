@@ -1,9 +1,9 @@
 ---
 title: "The Creative Journey of Udayshanth Fernando Begins With..."
-description: "The Timeless Interiors of Udayshanth Fernando; Striking a Balance: Art and Craftsmanship; An Artistic Haven; Embracing Traditional Sri Lankan Design; Iconic Projects and Unforgettable Spaces; More ..."
+description: "The Timeless Interiors of Udayshanth Fernando; Striking a Balance: Art and Craftsmanship; An Artistic Haven; Embracing Traditional Sri Lankan Design"
 url: "https://celebs.allwomenstalk.com/udayshanth-fernando-living-design-journey/"
 category: "celebs"
-last_updated: "2026-09-03"
+last_updated: "2026-11-13"
 ---
 
 # The Creative Journey of Udayshanth Fernando Begins With...

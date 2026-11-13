@@ -1,9 +1,9 @@
 ---
 title: "7 People Who Shouldn't Have Been Assassinated ..."
-description: "Mahatma Gandhi; John F. Kennedy; Anwar Sadat; Leon Trotsky; Martin Luther King; More ..."
+description: "Mahatma Gandhi; John F. Kennedy; Anwar Sadat; Leon Trotsky; Martin Luther King"
 url: "https://celebs.allwomenstalk.com/7-people-who-shouldnt-have-been-assassinated/"
 category: "celebs"
-last_updated: "2026-09-03"
+last_updated: "2026-11-13"
 ---
 
 # 7 People Who Shouldn't Have Been Assassinated ...
@@ -46,16 +46,16 @@ Top Photo Credit: [cliff1066™](https://www.flickr.com/photos/nostri-imago/3085
 
 ## Related Posts
 
-- [7 Predictions That Might Come True ...](https://lifestyle.allwomenstalk.com/predictions-that-might-come-true/)
-- [awesome birds](https://gardening.allwomenstalk.com/5-awesome-birds/)
-- [bangles definition](https://jewelry.allwomenstalk.com/8-statement-bangles/)
 - [charlie lifestyle](https://celebs.allwomenstalk.com/this-is-charlies-lifestyle-and-it-is-what-it-is/)
 - [amazing butterflies](https://gardening.allwomenstalk.com/5-amazing-butterflies/)
-- [rare and unusual types of phobias](https://health.allwomenstalk.com/extraordinary-rare-phobias-and-their-meaning/)
+- [bangles definition](https://jewelry.allwomenstalk.com/8-statement-bangles/)
+- [7 Predictions That Might Come True ...](https://lifestyle.allwomenstalk.com/predictions-that-might-come-true/)
+- [weird implants](https://lifestyle.allwomenstalk.com/8-most-bizarre-body-implants/)
+- [awesome birds](https://gardening.allwomenstalk.com/5-awesome-birds/)
 - [7 Interesting YouTube Channels ...](https://7fun.net/interesting-youtube-channels/)
 - [Larry King Live Ends after 25 Years ...](https://celebs.allwomenstalk.com/larry-king-live-ends-after-25-years/)
 - [Fat: a Love Story ...](https://health.allwomenstalk.com/fat-a-love-story/)
-- [weird implants](https://lifestyle.allwomenstalk.com/8-most-bizarre-body-implants/)
+- [rare and unusual types of phobias](https://health.allwomenstalk.com/extraordinary-rare-phobias-and-their-meaning/)
 - [Top 7 Actors That Should Get More Work ...](https://movies.allwomenstalk.com/top-7-actors-that-should-get-more-work/)
 - [7 Movies That Shouldn't Be Remade ...](https://movies.allwomenstalk.com/movies-that-shouldnt-be-remade/)
 

@@ -1,9 +1,9 @@
 ---
 title: "20 Gorgeous Celebrities Both Men and Women Drool over ..."
-description: "Johnny Depp; Olivia Wilde; Brad Pitt; Kim Kardashian; Will Smith; More ..."
+description: "Johnny Depp; Olivia Wilde; Brad Pitt; Kim Kardashian; Will Smith"
 url: "https://celebs.allwomenstalk.com/gorgeous-celebrities-both-men-and-women-drool-over/"
 category: "celebs"
-last_updated: "2026-09-03"
+last_updated: "2026-11-13"
 ---
 
 # 20 Gorgeous Celebrities Both Men and Women Drool over ...
@@ -134,16 +134,16 @@ Did you find your favorite celeb on this list of gorgeous celebrities? It was ha
 
 ## Related Posts
 
-- [best front men](https://celebs.allwomenstalk.com/hottest-band-front-men/)
-- [edward cullen sixpack](https://celebs.allwomenstalk.com/top-hot-actors-who-should-play-christian-grey/)
-- [long haired british comedian](https://celebs.allwomenstalk.com/hottest-famous-guys-brits-vs-americans/)
 - [bezos wife](https://celebs.allwomenstalk.com/famous-people-who-are-beautiful-on-the-inside/)
-- [is natalie portman smart](https://celebs.allwomenstalk.com/super-smart-celebrities/)
-- [celebrity girl crush list](https://celebs.allwomenstalk.com/fabulous-celebrities-its-okay-to-have-a-girl-crush-on/)
-- [celebs with rosacea](https://skincare.allwomenstalk.com/hot-celebs-with-skincare-issues/)
-- [glitter bodysuits](https://celebs.allwomenstalk.com/best-sparkly-bodysuits-on-celebrities/)
-- [sexiest comedian](https://celebs.allwomenstalk.com/hottest-comedians/)
+- [long haired british comedian](https://celebs.allwomenstalk.com/hottest-famous-guys-brits-vs-americans/)
 - [celebrities in trouble with the law](https://celebs.allwomenstalk.com/celebrities-who-have-been-in-trouble-with-the-law/)
+- [sexiest comedian](https://celebs.allwomenstalk.com/hottest-comedians/)
+- [is natalie portman smart](https://celebs.allwomenstalk.com/super-smart-celebrities/)
+- [best front men](https://celebs.allwomenstalk.com/hottest-band-front-men/)
+- [celebrity girl crush list](https://celebs.allwomenstalk.com/fabulous-celebrities-its-okay-to-have-a-girl-crush-on/)
+- [edward cullen sixpack](https://celebs.allwomenstalk.com/top-hot-actors-who-should-play-christian-grey/)
+- [glitter bodysuits](https://celebs.allwomenstalk.com/best-sparkly-bodysuits-on-celebrities/)
+- [celebs with rosacea](https://skincare.allwomenstalk.com/hot-celebs-with-skincare-issues/)
 - [10 Hottest Men in Hollywood ...](https://celebs.allwomenstalk.com/hottest-men-in-hollywood/)
 - [10 Gorgeous Full-Figured Celebrities ...](https://celebs.allwomenstalk.com/gorgeous-full-figured-celebrities/)
 

@@ -1,9 +1,9 @@
 ---
 title: "5 Top Bizarre Celebrity Diets..."
-description: "The Baby Food Diet...; The Grapefruit Diet...; The Cookie Diet...; Master Cleanse...; Raw Veggie Diet...; More ..."
+description: "The Baby Food Diet...; The Grapefruit Diet...; The Cookie Diet...; Master Cleanse...; Raw Veggie Diet..."
 url: "https://celebs.allwomenstalk.com/top-bizarre-celebrity-diets/"
 category: "celebs"
-last_updated: "2026-09-03"
+last_updated: "2026-11-13"
 ---
 
 # 5 Top Bizarre Celebrity Diets...
@@ -38,20 +38,18 @@ So there you have it, 5 of the strangest celeb diets. Are you brave enough to gi
 
 Bella has been beauty blogging since her university days,now writing for [cosmeticsurgeryguru.com](http://dan.cosmeticsurgeryguru.com/)she takes an interest in all cosmeticsurgery topics, from botched celeb surgery to ins and outs of procedures.
 
-_Top Photo Credit_
-
 ## Related Posts
 
-- [celebritytrends](https://celebs.allwomenstalk.com/awfully-outrageous-celebrity-trends-i-hate/)
 - [sexy men hollywood](https://celebs.allwomenstalk.com/hottest-men-in-hollywood/)
-- [men who look better with age](https://celebs.allwomenstalk.com/celebrity-men-that-look-better-with-age/)
 - [7 Celebrities I Would like to Hang with ...](https://celebs.allwomenstalk.com/7-celebrities-i-would-like-to-hang-with/)
-- [alpha male example](https://celebs.allwomenstalk.com/adorable-and-incredibly-gorgeous-alpha-males-in-hollywood/)
-- [celebrities with body parts insured](https://celebs.allwomenstalk.com/top-celebrity-insured-body-parts/)
-- [is mario lopez still married](https://celebs.allwomenstalk.com/extremely-short-celebrity-marriages/)
-- [famous people who smoke weed](https://celebs.allwomenstalk.com/celebrities-who-smoke-weed/)
+- [men who look better with age](https://celebs.allwomenstalk.com/celebrity-men-that-look-better-with-age/)
 - [celebrity sez tapes](https://celebs.allwomenstalk.com/most-infamous-celebrity-sex-tapes/)
+- [alpha male example](https://celebs.allwomenstalk.com/adorable-and-incredibly-gorgeous-alpha-males-in-hollywood/)
+- [is mario lopez still married](https://celebs.allwomenstalk.com/extremely-short-celebrity-marriages/)
+- [celebrities with body parts insured](https://celebs.allwomenstalk.com/top-celebrity-insured-body-parts/)
 - [series with hot male leads](https://celebs.allwomenstalk.com/hottest-actors-from-tv-shows/)
+- [famous people who smoke weed](https://celebs.allwomenstalk.com/celebrities-who-smoke-weed/)
+- [celebritytrends](https://celebs.allwomenstalk.com/awfully-outrageous-celebrity-trends-i-hate/)
 - [10 Insane Celebrity Fad Diets ...](https://celebs.allwomenstalk.com/insane-celebrity-fad-diets/)
 - [10 Biggest Celebrity Weight Losers ...](https://allwomenstalk.com/10-biggest-celebrity-weight-losers/)
 

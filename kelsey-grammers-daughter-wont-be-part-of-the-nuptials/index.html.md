@@ -1,9 +1,9 @@
 ---
 title: "Kelsey Grammer's Daughter Won't Be Part of the Nuptials ..."
-description: "Stay ahead, stay chic. Trusted guides on beauty, wellness, fashion, and everything that defines today's empowered woman."
+description: "Just as we thought that the Kelsey-Camille Grammer drama was over with the divorce, Camille seems to want to draw out the issue some more. As it turns out…"
 url: "https://celebs.allwomenstalk.com/kelsey-grammers-daughter-wont-be-part-of-the-nuptials/"
 category: "celebs"
-last_updated: "2026-09-03"
+last_updated: "2026-11-13"
 ---
 
 # Kelsey Grammer's Daughter Won't Be Part of the Nuptials ...
@@ -22,16 +22,16 @@ Wonder what Jude – Mason’s younger brother – will be upto on the day of th
 
 ## Related Posts
 
-- [daughter wedgie](https://celebs.allwomenstalk.com/mark-wahlberg-to-give-bieber-a-wedgie/)
-- [twitter leann rimes](https://celebs.allwomenstalk.com/leann-rimes-cibrian-tweets-her-happiness/)
-- [claire miley](https://celebs.allwomenstalk.com/miley-sorry-for-not-being-a-better-role-model/)
-- [Britney Tweets about Jason's Beatings ...](https://celebs.allwomenstalk.com/britney-tweets-about-jasons-beatings/)
-- [Courteney Proud of David for Checking into Rehab.....](https://celebs.allwomenstalk.com/courteney-proud-of-david-for-checking-into-rehab/)
-- [LeAnn & Eddie Not Allowed to Party....](https://celebs.allwomenstalk.com/leann-eddie-not-allowed-to-party/)
 - [take a risk chris brown](https://celebs.allwomenstalk.com/chris-brown-to-collaborate-with-justin-bieber/)
-- [r patz](https://celebs.allwomenstalk.com/kristen-sucks-the-blood-out-of-r-patz/)
+- [Courteney Proud of David for Checking into Rehab.....](https://celebs.allwomenstalk.com/courteney-proud-of-david-for-checking-into-rehab/)
+- [daughter wedgie](https://celebs.allwomenstalk.com/mark-wahlberg-to-give-bieber-a-wedgie/)
+- [claire miley](https://celebs.allwomenstalk.com/miley-sorry-for-not-being-a-better-role-model/)
 - [Kyle Richards Not Sure about Being a Housewife…](https://celebs.allwomenstalk.com/kyle-richards-not-sure-about-being-a-housewife/)
+- [Britney Tweets about Jason's Beatings ...](https://celebs.allwomenstalk.com/britney-tweets-about-jasons-beatings/)
+- [r patz](https://celebs.allwomenstalk.com/kristen-sucks-the-blood-out-of-r-patz/)
 - [Howard K Stern Freed by the Law ...](https://celebs.allwomenstalk.com/howard-k-stern-freed-by-the-law/)
+- [twitter leann rimes](https://celebs.allwomenstalk.com/leann-rimes-cibrian-tweets-her-happiness/)
+- [LeAnn & Eddie Not Allowed to Party....](https://celebs.allwomenstalk.com/leann-eddie-not-allowed-to-party/)
 - [Johnny Never to Marry Vanessa ...](https://celebs.allwomenstalk.com/johnny-never-to-marry-vanessa/)
 - [Britney Spears Won't Need Sheryl Crow's Help ...](https://allwomenstalk.com/britney-spears-wont-need-sheryl-crows-help/)
 

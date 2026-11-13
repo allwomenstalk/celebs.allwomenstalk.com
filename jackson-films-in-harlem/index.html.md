@@ -1,9 +1,9 @@
 ---
 title: "Behind the Scenes: Janet Jackson Films in Harlem"
-description: "Stay ahead, stay chic. Trusted guides on beauty, wellness, fashion, and everything that defines today's empowered woman."
+description: "Janet Jackson recently filmed a scene in Harlem for the Tyler Perry movie, \"For Colored Girls.\" It is always exciting to catch glimpses of film productions in…"
 url: "https://celebs.allwomenstalk.com/jackson-films-in-harlem/"
 category: "celebs"
-last_updated: "2026-09-03"
+last_updated: "2026-11-13"
 ---
 
 # Behind the Scenes: Janet Jackson Films in Harlem
@@ -18,16 +18,16 @@ Seeing icons like Janet Jackson work in such a historic neighborhood like Harlem
 
 ## Related Posts
 
-- [celebs in stockings and suspenders](https://celebs.allwomenstalk.com/momsen-looks-like-a-stripper/)
-- [pictures of heidi klum children](https://celebs.allwomenstalk.com/klum-vacations-with-the-kids/)
-- [49 Photos of Taste of Beverly Hills ...](https://celebs.allwomenstalk.com/taste-of-beverly-hills/)
-- [4 Photos of Barbara in the Village ...](https://celebs.allwomenstalk.com/barbara-in-the-village/)
-- [ashley bell atlanta](https://celebs.allwomenstalk.com/piranha-3d-premiere/)
 - [paris la palette maximalist eyeshadow blinged and ...](https://celebs.allwomenstalk.com/perry-leaves-for-letterman/)
+- [celebs in stockings and suspenders](https://celebs.allwomenstalk.com/momsen-looks-like-a-stripper/)
 - [@boobs](https://celebs.allwomenstalk.com/rihannas-boobs-and-barnet/)
+- [pictures of heidi klum children](https://celebs.allwomenstalk.com/klum-vacations-with-the-kids/)
+- [ashley bell atlanta](https://celebs.allwomenstalk.com/piranha-3d-premiere/)
 - [jessica biel mouth](https://celebs.allwomenstalk.com/biel-is-happy-in-london/)
-- [aew wardrobe malfunction](https://celebs.allwomenstalk.com/jades-revealing-moment/)
 - [1 Photos of Renee Leaves ...](https://celebs.allwomenstalk.com/renee-leaves/)
+- [4 Photos of Barbara in the Village ...](https://celebs.allwomenstalk.com/barbara-in-the-village/)
+- [49 Photos of Taste of Beverly Hills ...](https://celebs.allwomenstalk.com/taste-of-beverly-hills/)
+- [aew wardrobe malfunction](https://celebs.allwomenstalk.com/jades-revealing-moment/)
 - [9 Black and White Flicks You Should See ...](https://movies.allwomenstalk.com/black-and-white-flicks-you-should-see/)
 - [5 Photos of Screening of 'Twelve' ...](https://celebs.allwomenstalk.com/screening-of-twelve/)
 

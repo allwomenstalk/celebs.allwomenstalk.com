@@ -1,9 +1,9 @@
 ---
 title: "3 Photos of Kara Young's Poor Fit ..."
-description: "Stay ahead, stay chic. Trusted guides on beauty, wellness, fashion, and everything that defines today's empowered woman."
+description: "Model Kara Young gets animated while appearing to wear an ill-fitting bra in the West Village in New York . Ever heard of a t-shirt bra hun? Don't you just…"
 url: "https://celebs.allwomenstalk.com/karas-poor-fit/"
 category: "celebs"
-last_updated: "2026-09-03"
+last_updated: "2026-11-13"
 ---
 
 # 3 Photos of Kara Young's Poor Fit ...
@@ -20,16 +20,16 @@ Don't you just hate women wearing the wrong bra? I know I do!
 
 ## Related Posts
 
-- [selena gomez red lips](https://celebs.allwomenstalk.com/selenas-fashion-line/)
-- [Does Sofia Vergara Look Pretty in Blue?](https://celebs.allwomenstalk.com/vergaras-lunch-date/)
-- [kate bosworth skinny](https://celebs.allwomenstalk.com/kates-skinny-cargo-pants/)
-- [fox upfronts](https://celebs.allwomenstalk.com/fox-upfronts-in-central-park/)
-- [kristen stewart in the runaways](https://celebs.allwomenstalk.com/9-photos-of-kristen-arrives/)
-- [antonio banderas photoshoot](https://celebs.allwomenstalk.com/antonios-motorbike-team/)
 - [3 Photos of Ripa Works out ...](https://celebs.allwomenstalk.com/ripa-works-out/)
-- [in my sleep 2010](https://celebs.allwomenstalk.com/in-my-sleep-premiere/)
-- ["rebecca gayheart"](https://celebs.allwomenstalk.com/dane-and-gayheart-pass-through-paris/)
+- [kate bosworth skinny](https://celebs.allwomenstalk.com/kates-skinny-cargo-pants/)
+- [Does Sofia Vergara Look Pretty in Blue?](https://celebs.allwomenstalk.com/vergaras-lunch-date/)
+- [kristen stewart in the runaways](https://celebs.allwomenstalk.com/9-photos-of-kristen-arrives/)
+- [selena gomez red lips](https://celebs.allwomenstalk.com/selenas-fashion-line/)
 - [kylie minogue airport](https://celebs.allwomenstalk.com/kylie-lands-in-nice/)
+- [fox upfronts](https://celebs.allwomenstalk.com/fox-upfronts-in-central-park/)
+- [antonio banderas photoshoot](https://celebs.allwomenstalk.com/antonios-motorbike-team/)
+- ["rebecca gayheart"](https://celebs.allwomenstalk.com/dane-and-gayheart-pass-through-paris/)
+- [in my sleep 2010](https://celebs.allwomenstalk.com/in-my-sleep-premiere/)
 - [3 Photos of Camilla Gets a Push ...](https://celebs.allwomenstalk.com/camilla-gets-a-push/)
 - [4 Photos of Jessica Szohr in Soho ...](https://celebs.allwomenstalk.com/szohr-in-soho/)
 

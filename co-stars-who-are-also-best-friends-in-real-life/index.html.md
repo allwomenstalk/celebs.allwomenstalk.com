@@ -1,9 +1,9 @@
 ---
 title: "7 Co-stars Who Are Also Best Friends in Real Life ..."
-description: "Shay Mitchell & Ashley Benson; Laura Marano & Raini Rodriguez; Rowan Blanchard & Sabrina Carpenter; Zach Braff & Donald Faison; Tina Fey and Amy Poehler; More ..."
+description: "Shay Mitchell & Ashley Benson; Laura Marano & Raini Rodriguez; Rowan Blanchard & Sabrina Carpenter; Zach Braff & Donald Faison; Tina Fey and Amy Poehler"
 url: "https://celebs.allwomenstalk.com/co-stars-who-are-also-best-friends-in-real-life/"
 category: "celebs"
-last_updated: "2026-09-03"
+last_updated: "2026-11-13"
 ---
 
 # 7 Co\-stars Who Are Also Best Friends in Real Life ...
@@ -56,16 +56,16 @@ Well, there you have it. These are just seven (out of many) co-stars who've beco
 
 ## Related Posts
 
-- [famous ryans in hollywood](https://funny.allwomenstalk.com/watch-ryan-cabrera-rank-other-famous-ryans-including-gosling-and-reynolds/)
-- [actor that sings](https://celebs.allwomenstalk.com/celebs-who-went-from-singing-to-acting/)
-- [jim parson and rihanna](https://celebs.allwomenstalk.com/random-pair-of-celebrities-you-didnt-know-were-friends/)
-- [taylor swift favorite candle](https://music.allwomenstalk.com/celebrities-who-have-praised-taylor-swifts-new-album/)
-- [paleo celebrities](https://celebs.allwomenstalk.com/celebs-that-follow-the-paleo-diet/)
 - [best of mean tweets](https://funny.allwomenstalk.com/this-video-of-celebs-reacting-to-mean-tweets-is-the-funniest-thing-youll-see-today/)
 - [celebrities who love animals](https://celebs.allwomenstalk.com/celebrities-who-love-and-advocate-for-animals/)
-- [tahlia hoskins](https://celebs.allwomenstalk.com/celebrities-we-said-a-sad-goodbye-to-in/)
-- [kate upton movie with adam sandler](https://celebs.allwomenstalk.com/celebrities-who-went-from-modeling-to-acting/)
+- [famous ryans in hollywood](https://funny.allwomenstalk.com/watch-ryan-cabrera-rank-other-famous-ryans-including-gosling-and-reynolds/)
+- [taylor swift favorite candle](https://music.allwomenstalk.com/celebrities-who-have-praised-taylor-swifts-new-album/)
 - [sara ramirez on law and order svu](https://celebs.allwomenstalk.com/celebrities-who-guest-starred-on-law-order/)
+- [paleo celebrities](https://celebs.allwomenstalk.com/celebs-that-follow-the-paleo-diet/)
+- [tahlia hoskins](https://celebs.allwomenstalk.com/celebrities-we-said-a-sad-goodbye-to-in/)
+- [actor that sings](https://celebs.allwomenstalk.com/celebs-who-went-from-singing-to-acting/)
+- [kate upton movie with adam sandler](https://celebs.allwomenstalk.com/celebrities-who-went-from-modeling-to-acting/)
+- [jim parson and rihanna](https://celebs.allwomenstalk.com/random-pair-of-celebrities-you-didnt-know-were-friends/)
 - [7 of My Favorite Celebrities ...](https://celebs.allwomenstalk.com/7-of-my-favorite-celebrities/)
 - [7 Celebs Who'd Make a Fab BFF ...](https://allwomenstalk.com/7-celebs-whod-make-a-fab-bff/)
 

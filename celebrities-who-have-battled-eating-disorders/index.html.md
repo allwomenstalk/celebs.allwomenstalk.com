@@ -1,9 +1,9 @@
 ---
 title: "7 Celebrities Who Have Battled Eating Disorders ..."
-description: "Karen Carpenter; Tracy Gold; Portia De Rossi; Demi Lovato; Ke$ha; More ..."
+description: "Karen Carpenter; Tracy Gold; Portia De Rossi; Demi Lovato; Ke$ha"
 url: "https://celebs.allwomenstalk.com/celebrities-who-have-battled-eating-disorders/"
 category: "celebs"
-last_updated: "2026-09-03"
+last_updated: "2026-11-13"
 ---
 
 # 7 Celebrities Who Have Battled Eating Disorders ...
@@ -56,16 +56,16 @@ Having an eating disorder is a struggle, let alone putting yourself in the publi
 
 ## Related Posts
 
-- [celebrities then and now how they've changed](https://celebs.allwomenstalk.com/celebrities-who-changed-their-lives-drastically/)
-- [prom queen the homecoming](https://celebs.allwomenstalk.com/celebrities-who-were-homecoming-queens/)
 - [people that look like disney characters](https://celebs.allwomenstalk.com/celebrities-who-look-like-disney-characters-from-animated-movies/)
-- [who is a triple threat](https://celebs.allwomenstalk.com/of-the-biggest-triple-threats-in-hollywood/)
-- [celebrities downfall](https://celebs.allwomenstalk.com/things-we-can-learn-from-the-downfall-of-celebrities/)
+- [celebrities then and now how they've changed](https://celebs.allwomenstalk.com/celebrities-who-changed-their-lives-drastically/)
 - [celebrities that own companies](https://celebs.allwomenstalk.com/celebrities-who-started-their-own-companies/)
+- [who is a triple threat](https://celebs.allwomenstalk.com/of-the-biggest-triple-threats-in-hollywood/)
 - [most famous redheads](https://celebs.allwomenstalk.com/famous-redheads-and-their-amazing-careers/)
+- [celebrities downfall](https://celebs.allwomenstalk.com/things-we-can-learn-from-the-downfall-of-celebrities/)
 - [why did danny leave the mindy project](https://hair.allwomenstalk.com/celebrities-who-tried-a-pixie-cut/)
 - [roman josi hair](https://celebs.allwomenstalk.com/gorgeous-athletes-to-watch-for-at-the-olympics/)
 - [josh peck aging](https://celebs.allwomenstalk.com/hysterical-nickelodeon-actors-who-grew-up-to-be-hot/)
+- [prom queen the homecoming](https://celebs.allwomenstalk.com/celebrities-who-were-homecoming-queens/)
 - [7 Most Inspiring Celebrity Weight Loss Stories ...](https://weightloss.allwomenstalk.com/7-most-inspiring-celebrity-weight-loss-stories/)
 - [7 Celebrities with Addictions ...](https://celebs.allwomenstalk.com/celebrities-with-addictions/)
 

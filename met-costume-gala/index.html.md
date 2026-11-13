@@ -1,9 +1,9 @@
 ---
 title: "33 Photos of the Met Costume Institute Gala ..."
-description: "Stay ahead, stay chic. Trusted guides on beauty, wellness, fashion, and everything that defines today's empowered woman."
+description: "Check out photos from The Met Annual Costume Institute Gala at the Carlyle Hotel in New York . As expected stars were dressed in their finest and dazzled like…"
 url: "https://celebs.allwomenstalk.com/met-costume-gala/"
 category: "celebs"
-last_updated: "2026-09-03"
+last_updated: "2026-11-13"
 ---
 
 # 33 Photos of the Met Costume Institute Gala ...
@@ -24,14 +24,14 @@ Needless to say, don't forget to tell me who you thought was best dressed and wh
 
 - [twilight movie photos](https://celebs.allwomenstalk.com/the-twilight-saga-eclipse-premiere/)
 - [cannes film festival 2010](https://celebs.allwomenstalk.com/cannes-film-festival-the-tree-premiere/)
-- [cannes film festival 2010](https://celebs.allwomenstalk.com/cannes-film-festival-robin-hood-premiere/)
 - [newnownext awards](https://celebs.allwomenstalk.com/newnownext-awards/)
-- [2010 mtv movie awards](https://celebs.allwomenstalk.com/mtv-movie-awards/)
-- [cannes film festival 2010](https://celebs.allwomenstalk.com/cannes-film-festival-on-tour-premiere/)
-- [scott pilgrim pictures](https://celebs.allwomenstalk.com/scott-pilgrim-vs-the-world-premiere/)
-- [jane march clash of the titans](https://celebs.allwomenstalk.com/clash-of-the-titans-premieres-in-london/)
-- [10 Photos of "Raavan" Premiere ...](https://celebs.allwomenstalk.com/raavan-premiere/)
 - [Pick Best Dressed at the "Kick-Ass" Premiere in L....](https://celebs.allwomenstalk.com/kick-ass-premiere/)
+- [jane march clash of the titans](https://celebs.allwomenstalk.com/clash-of-the-titans-premieres-in-london/)
+- [scott pilgrim pictures](https://celebs.allwomenstalk.com/scott-pilgrim-vs-the-world-premiere/)
+- [cannes film festival 2010](https://celebs.allwomenstalk.com/cannes-film-festival-on-tour-premiere/)
+- [10 Photos of "Raavan" Premiere ...](https://celebs.allwomenstalk.com/raavan-premiere/)
+- [2010 mtv movie awards](https://celebs.allwomenstalk.com/mtv-movie-awards/)
+- [cannes film festival 2010](https://celebs.allwomenstalk.com/cannes-film-festival-robin-hood-premiere/)
 - [36 Photos of the "GLEE" Spring Premiere Soiree ...](https://celebs.allwomenstalk.com/glee-premiere/)
 - [27 Photos of 21st Annual GLAAD Media Awards ...](https://celebs.allwomenstalk.com/21st-annual-glaad-media-awards/)
 

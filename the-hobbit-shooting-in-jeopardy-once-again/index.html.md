@@ -1,9 +1,9 @@
 ---
 title: "The Hobbit Shooting in Jeopardy Once Again..."
-description: "Stay ahead, stay chic. Trusted guides on beauty, wellness, fashion, and everything that defines today's empowered woman."
+description: "The Hobbit has been a cursed project so far and looks like its spate of bad luck is yet to run out. Only a few weeks into filming, Rob Kazinsky who was to…"
 url: "https://celebs.allwomenstalk.com/the-hobbit-shooting-in-jeopardy-once-again/"
 category: "celebs"
-last_updated: "2026-09-03"
+last_updated: "2026-11-13"
 ---
 
 # The Hobbit Shooting in Jeopardy Once Again...
@@ -24,16 +24,16 @@ The first instalment of the film is set for release in late 2012 and will be fol
 
 ## Related Posts
 
+- [New Year Bash Wrap-up: Part 2 ...](https://celebs.allwomenstalk.com/new-year-bash-wrap-up-part-2/)
+- [dadt pink](https://celebs.allwomenstalk.com/stars-come-out-in-support-of-dadt-repeal/)
+- [New Year Bash Wrap-up: Part 1 ...](https://celebs.allwomenstalk.com/new-year-bash-wrap-up-part-1/)
+- [cool butterflies](https://gardening.allwomenstalk.com/5-cool-butterflies/)
+- [7 People Who Shouldn't Have Been Assassinated ...](https://celebs.allwomenstalk.com/7-people-who-shouldnt-have-been-assassinated/)
+- [Cook's Love for Mother Earth Revealed...](https://celebs.allwomenstalk.com/cooks-love-for-mother-earth-revealed/)
 - [mythbusters obama](https://celebs.allwomenstalk.com/obama-on-mythbusters/)
 - [favorite vines](https://gardening.allwomenstalk.com/5-of-my-favorite-vines/)
-- [dadt pink](https://celebs.allwomenstalk.com/stars-come-out-in-support-of-dadt-repeal/)
-- [Cook's Love for Mother Earth Revealed...](https://celebs.allwomenstalk.com/cooks-love-for-mother-earth-revealed/)
-- [7 People Who Shouldn't Have Been Assassinated ...](https://celebs.allwomenstalk.com/7-people-who-shouldnt-have-been-assassinated/)
-- [New Year Bash Wrap-up: Part 1 ...](https://celebs.allwomenstalk.com/new-year-bash-wrap-up-part-1/)
 - [best rags to riches stories](https://celebs.allwomenstalk.com/best-from-rags-to-riches-stories/)
-- [cool butterflies](https://gardening.allwomenstalk.com/5-cool-butterflies/)
 - [awesome birds](https://gardening.allwomenstalk.com/5-awesome-birds/)
-- [New Year Bash Wrap-up: Part 2 ...](https://celebs.allwomenstalk.com/new-year-bash-wrap-up-part-2/)
 - [Harry Potter to Cast a Spell in Southern Californi...](https://travel.allwomenstalk.com/could-it-be-magic-harry-potter-to-cast-a-spell-in-southern-california/)
 - [The Oscar Race is on...](https://celebs.allwomenstalk.com/the-oscar-race-is-on/)
 

@@ -1,9 +1,9 @@
 ---
 title: "Johnny Never to Marry Vanessa ..."
-description: "Stay ahead, stay chic. Trusted guides on beauty, wellness, fashion, and everything that defines today's empowered woman."
+description: "There are couples in Hollywood who made us all believe in the holy matrimony and then shattered those beliefs. We’ve seen it time and again from Tom & Nicole…"
 url: "https://celebs.allwomenstalk.com/johnny-never-to-marry-vanessa/"
 category: "celebs"
-last_updated: "2026-09-03"
+last_updated: "2026-11-13"
 ---
 
 # Johnny Never to Marry Vanessa ...
@@ -24,16 +24,16 @@ I wonder if he’d start a new trend there too by taking on her last name instea
 
 ## Related Posts
 
+- [Lionel Richie Calls Himself 'the Greatest Porn Sta...](https://allwomenstalk.com/lionel-richie-calls-himself-the-greatest-porn-star/)
 - [simon mills journalist](https://allwomenstalk.com/posh-spice-is-no-style-icon/)
+- [Ashley Judd Now Treads a Little More Carefully…](https://celebs.allwomenstalk.com/ashley-judd-rape-culture-apology/)
+- [elin nordegren pics](https://allwomenstalk.com/tiger-may-sue-irish-mag-for-elin-nordegren-nude-pics/)
+- [sara evans tattoo](https://allwomenstalk.com/kenny-chesney-denies-he-had-an-affair-with-sara-evans/)
+- [Constant Fighting Ended Richie and Jenner's Relati...](https://allwomenstalk.com/constant-fighting-ended-richie-and-jenners-relationship/)
+- [Elton John Surprised by His Royal Invite…](https://celebs.allwomenstalk.com/elton-john-surprised-by-his-royal-invite/)
 - [kate michelman](https://allwomenstalk.com/i-really-really-hope-that-kate-michelman-doesnt-run-for-the-senate-in-pennsylvania/)
 - ["Fuck You, Bitch"](https://allwomenstalk.com/fuck-you-bitch-2/)
-- [Constant Fighting Ended Richie and Jenner's Relati...](https://allwomenstalk.com/constant-fighting-ended-richie-and-jenners-relationship/)
-- [Ashley Judd Now Treads a Little More Carefully…](https://celebs.allwomenstalk.com/ashley-judd-rape-culture-apology/)
 - [britney spears sec tape](https://allwomenstalk.com/celebrity-porn-peddler-offers-100-million-for-britney-spears-sex-tape/)
-- [elin nordegren pics](https://allwomenstalk.com/tiger-may-sue-irish-mag-for-elin-nordegren-nude-pics/)
-- [Elton John Surprised by His Royal Invite…](https://celebs.allwomenstalk.com/elton-john-surprised-by-his-royal-invite/)
-- [sara evans tattoo](https://allwomenstalk.com/kenny-chesney-denies-he-had-an-affair-with-sara-evans/)
-- [Lionel Richie Calls Himself 'the Greatest Porn Sta...](https://allwomenstalk.com/lionel-richie-calls-himself-the-greatest-porn-star/)
 - [Justin and Jesse's Social Network Woes ...](https://celebs.allwomenstalk.com/justin-and-jesses-social-network-woes/)
 - [LeAnn & Eddie Not Allowed to Party....](https://celebs.allwomenstalk.com/leann-eddie-not-allowed-to-party/)
 

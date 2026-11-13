@@ -1,9 +1,9 @@
 ---
 title: "Does Sofia Vergara Look Pretty in Blue?"
-description: "Stay ahead, stay chic. Trusted guides on beauty, wellness, fashion, and everything that defines today's empowered woman."
+description: "Sofia Vergara walks with an unidentified man after having lunch at Bar Pitti restaurant in New York . I love that beautiful shade of blue on her. So pretty! I…"
 url: "https://celebs.allwomenstalk.com/vergaras-lunch-date/"
 category: "celebs"
-last_updated: "2026-09-03"
+last_updated: "2026-11-13"
 ---
 
 # Does Sofia Vergara Look Pretty in Blue?
@@ -14,15 +14,15 @@ I also like the earrings she has on. Have you noticed how celebrities are sporti
 ## Related Posts
 
 - [fox upfronts](https://celebs.allwomenstalk.com/fox-upfronts-in-central-park/)
-- [paris stylo primped previous](https://celebs.allwomenstalk.com/szohr-in-soho/)
-- [kylie minogue airport](https://celebs.allwomenstalk.com/kylie-lands-in-nice/)
+- [antonio banderas photoshoot](https://celebs.allwomenstalk.com/antonios-motorbike-team/)
 - ["rebecca gayheart"](https://celebs.allwomenstalk.com/dane-and-gayheart-pass-through-paris/)
+- [kylie minogue airport](https://celebs.allwomenstalk.com/kylie-lands-in-nice/)
+- [brooklyn decker just go with it bikini](https://celebs.allwomenstalk.com/brooklyns-bikini-bod/)
+- [3 Photos of McConaughey in a Shirt and Tie ...](https://celebs.allwomenstalk.com/mcconaughey-in-a-shirt-and-tie/)
 - [27 Photos of "the a-Team" Premiere ...](https://celebs.allwomenstalk.com/the-a-team-premiere/)
 - [in my sleep 2010](https://celebs.allwomenstalk.com/in-my-sleep-premiere/)
-- [3 Photos of McConaughey in a Shirt and Tie ...](https://celebs.allwomenstalk.com/mcconaughey-in-a-shirt-and-tie/)
 - [liv tyler tights](https://celebs.allwomenstalk.com/liv-hails-and-waits/)
-- [brooklyn decker just go with it bikini](https://celebs.allwomenstalk.com/brooklyns-bikini-bod/)
-- [antonio banderas photoshoot](https://celebs.allwomenstalk.com/antonios-motorbike-team/)
+- [paris stylo primped previous](https://celebs.allwomenstalk.com/szohr-in-soho/)
 - [Does Serena Williams Have a Hot Body?](https://celebs.allwomenstalk.com/serenas-day-at-the-beach/)
 - [Is Red a Good Color for Selena Gomez?](https://celebs.allwomenstalk.com/selenas-fashion-line/)
 

@@ -1,9 +1,9 @@
 ---
 title: "#TBT Wrap-up: What Celebrities Posted This Week!"
-description: "Aly & Aj; Ellie Goulding; Lucy Hale; Rumer Willis; Kat Dennings; More ..."
+description: "Aly & Aj; Ellie Goulding; Lucy Hale; Rumer Willis; Kat Dennings"
 url: "https://celebs.allwomenstalk.com/tbt-wrap-up-what-celebrities-posted-this-week/"
 category: "celebs"
-last_updated: "2026-09-03"
+last_updated: "2026-11-13"
 ---
 
 # \#TBT Wrap\-up: What Celebrities Posted This Week!
@@ -66,16 +66,16 @@ Are you following these celebs on Instagram?
 
 ## Related Posts
 
+- [Today's Roundup: What Celebrities Posted on Instag...](https://celebs.allwomenstalk.com/todays-roundup-what-celebrities-posted-on-instagram/)
+- [Weekend Wrap up: What Celebs Posted This Weekend ....](https://celebs.allwomenstalk.com/weekend-wrap-up-what-celebs-posted-this-weekend-2/)
+- [27 celebrities that everyone agrees are impossible...](https://celebs.allwomenstalk.com/these-celebs-are-just-impossible-to-hate/)
+- [15 Celebrity Posts You May Have Missed This Weeken...](https://celebs.allwomenstalk.com/celebrity-posts-you-may-have-missed-this-weekend/)
+- [Today's Wrap up: What Celebrities Posted on Instag...](https://celebs.allwomenstalk.com/todays-wrap-up-what-celebrities-posted-on-instagram/)
+- [Fan-girling Mania: Celebrities do It Too!](https://celebs.allwomenstalk.com/fan-girling-mania-celebrities-do-it-too/)
+- [vanessa hudgens ombre hair](https://hair.allwomenstalk.com/celebrity-hair-transformations-of/)
+- [TBT Wrap up: 10 Celeb Posts You Need to See ...](https://celebs.allwomenstalk.com/tbt-wrap-up-celeb-posts-you-need-to-see/)
 - [Happy Tuesday! Here's What Celebs Posted Today!](https://celebs.allwomenstalk.com/happy-tuesday-heres-what-celebs-posted-today/)
 - [Weekend Wrap up: What Celebs Posted at the Weekend...](https://celebs.allwomenstalk.com/weekend-wrap-up-what-celebs-posted-this-weekend/)
-- [27 celebrities that everyone agrees are impossible...](https://celebs.allwomenstalk.com/these-celebs-are-just-impossible-to-hate/)
-- [Today's Roundup: What Celebrities Posted on Instag...](https://celebs.allwomenstalk.com/todays-roundup-what-celebrities-posted-on-instagram/)
-- [vanessa hudgens ombre hair](https://hair.allwomenstalk.com/celebrity-hair-transformations-of/)
-- [Today's Wrap up: What Celebrities Posted on Instag...](https://celebs.allwomenstalk.com/todays-wrap-up-what-celebrities-posted-on-instagram/)
-- [15 Celebrity Posts You May Have Missed This Weeken...](https://celebs.allwomenstalk.com/celebrity-posts-you-may-have-missed-this-weekend/)
-- [Weekend Wrap up: What Celebs Posted This Weekend ....](https://celebs.allwomenstalk.com/weekend-wrap-up-what-celebs-posted-this-weekend-2/)
-- [TBT Wrap up: 10 Celeb Posts You Need to See ...](https://celebs.allwomenstalk.com/tbt-wrap-up-celeb-posts-you-need-to-see/)
-- [Fan-girling Mania: Celebrities do It Too!](https://celebs.allwomenstalk.com/fan-girling-mania-celebrities-do-it-too/)
 - [Fashion News: Weekly round up!](https://allwomenstalk.com/fashion-news-weekly-round-up/)
 - [Fashion News: Weekly round up!](https://allwomenstalk.com/fashion-news-weekly-round-up-bag-bliss/)
 

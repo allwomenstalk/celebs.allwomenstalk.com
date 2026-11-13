@@ -1,9 +1,9 @@
 ---
 title: "7 Celebrities Who Smoke Weed ..."
-description: "Lady Gaga; George Clooney; Brad Pitt; Jennifer Aniston; Harrison Ford; More ..."
+description: "Lady Gaga; George Clooney; Brad Pitt; Jennifer Aniston; Harrison Ford"
 url: "https://celebs.allwomenstalk.com/celebrities-who-smoke-weed/"
 category: "celebs"
-last_updated: "2026-09-03"
+last_updated: "2026-11-13"
 ---
 
 # 7 Celebrities Who Smoke Weed ...
@@ -62,16 +62,16 @@ Top Photo Credit: _SerieAdict@_
 
 ## Related Posts
 
-- [celebrity sez tapes](https://celebs.allwomenstalk.com/most-infamous-celebrity-sex-tapes/)
-- [series with hot male leads](https://celebs.allwomenstalk.com/hottest-actors-from-tv-shows/)
-- [alpha male example](https://celebs.allwomenstalk.com/adorable-and-incredibly-gorgeous-alpha-males-in-hollywood/)
-- [25 Most Unique Celebrity Baby Names ...](https://celebs.allwomenstalk.com/25-most-unique-celebrity-baby-names/)
-- [is mario lopez still married](https://celebs.allwomenstalk.com/extremely-short-celebrity-marriages/)
-- [celebrities with body parts insured](https://celebs.allwomenstalk.com/top-celebrity-insured-body-parts/)
 - [celebritytrends](https://celebs.allwomenstalk.com/awfully-outrageous-celebrity-trends-i-hate/)
+- [celebrity sez tapes](https://celebs.allwomenstalk.com/most-infamous-celebrity-sex-tapes/)
+- [iq actors](https://celebs.allwomenstalk.com/25-smartest-celebrities/)
 - [most scandalous celebrities](https://celebs.allwomenstalk.com/most-scandalous-celebrity-sex-tapes/)
 - [sexy men hollywood](https://celebs.allwomenstalk.com/hottest-men-in-hollywood/)
-- [iq actors](https://celebs.allwomenstalk.com/25-smartest-celebrities/)
+- [series with hot male leads](https://celebs.allwomenstalk.com/hottest-actors-from-tv-shows/)
+- [is mario lopez still married](https://celebs.allwomenstalk.com/extremely-short-celebrity-marriages/)
+- [celebrities with body parts insured](https://celebs.allwomenstalk.com/top-celebrity-insured-body-parts/)
+- [25 Most Unique Celebrity Baby Names ...](https://celebs.allwomenstalk.com/25-most-unique-celebrity-baby-names/)
+- [alpha male example](https://celebs.allwomenstalk.com/adorable-and-incredibly-gorgeous-alpha-males-in-hollywood/)
 - [7 of My Favorite Celebrities ...](https://celebs.allwomenstalk.com/7-of-my-favorite-celebrities/)
 - [7 Women Celebrities Who Smoke ...](https://celebs.allwomenstalk.com/women-celebrities-who-smoke/)
 

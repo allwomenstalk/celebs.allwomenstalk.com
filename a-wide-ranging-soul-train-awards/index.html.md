@@ -1,9 +1,9 @@
 ---
 title: "A Wide Ranging Soul Train Awards ..."
-description: "Stay ahead, stay chic. Trusted guides on beauty, wellness, fashion, and everything that defines today's empowered woman."
+description: "The Soul Train Awards aired tonight and it was Usher and Alicia Keys that ran away with the top honors for the night. Having been taped earlier on the 10th of…"
 url: "https://celebs.allwomenstalk.com/a-wide-ranging-soul-train-awards/"
 category: "celebs"
-last_updated: "2026-09-03"
+last_updated: "2026-11-13"
 ---
 
 # A Wide Ranging Soul Train Awards ...
@@ -34,15 +34,15 @@ Here's a complete list of the winners from the night:
 
 ## Related Posts
 
-- [katy perry smurfette dress](https://celebs.allwomenstalk.com/ugliest-celebrity-fashion-faux-pas-of/)
-- [vail bloom feet](https://celebs.allwomenstalk.com/easy-a-premiere/)
-- [golden globes 2011](https://celebs.allwomenstalk.com/golden-globe-nominations/)
 - [celebrity fashion mistakes](https://celebs.allwomenstalk.com/biggest-celebrity-fashion-faux-pas-of/)
+- [katy perry smurfette dress](https://celebs.allwomenstalk.com/ugliest-celebrity-fashion-faux-pas-of/)
 - [2010 Hollywood Style Awards ...](https://celebs.allwomenstalk.com/hollywood-style-awards/)
+- [golden globes 2011](https://celebs.allwomenstalk.com/golden-globe-nominations/)
+- [vail bloom feet](https://celebs.allwomenstalk.com/easy-a-premiere/)
 - [The Best Dressed Women of 2010 ...](https://celebs.allwomenstalk.com/the-best-dressed-women-of/)
+- [who wore it better celebrities](https://celebs.allwomenstalk.com/same-celebrity-outfits-who-wore-it-better/)
 - [celebrities who turned down knighthood](https://celebs.allwomenstalk.com/7-people-who-have-refused-a-major-award/)
 - [nf face makeup](https://celebs.allwomenstalk.com/celebrity-fashion-face-off-pick-your-winners/)
-- [who wore it better celebrities](https://celebs.allwomenstalk.com/same-celebrity-outfits-who-wore-it-better/)
 - [vma celebrities](https://celebs.allwomenstalk.com/best-dressed-celebrities-at-the-mtv-video-music-awards/)
 - [25 Oscar Nominees Who Should Win This Year ...](https://bilbr.com/25-oscar-nominees-who-should-win-this-year/)
 - [Live Blogging the 49th Annual Grammy Awards ...](https://allwomenstalk.com/live-blogging-the-49th-annual-grammy-awards/)

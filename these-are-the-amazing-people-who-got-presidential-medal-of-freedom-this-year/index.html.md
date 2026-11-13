@@ -1,9 +1,9 @@
 ---
 title: "These Are the Amazing People Who Got Presidential Medal of Freedom This Year ..."
-description: "Ellen DeGeneres; Tom Hanks; Michael Jordan; Robert De Niro; Bruce Springsteen; More ..."
+description: "Ellen DeGeneres; Tom Hanks; Michael Jordan; Robert De Niro; Bruce Springsteen"
 url: "https://celebs.allwomenstalk.com/these-are-the-amazing-people-who-got-presidential-medal-of-freedom-this-year/"
 category: "celebs"
-last_updated: "2026-09-03"
+last_updated: "2026-11-13"
 ---
 
 # These Are the Amazing People Who Got Presidential Medal of Freedom This Year ...
@@ -140,16 +140,16 @@ Which of these awesome award-winners is your favorite, and how do they inspire y
 
 ## Related Posts
 
-- [Full List of Leonardo DiCaprio’s Serious Girlfrien...](https://celebs.allwomenstalk.com/leonardo-dicaprio-girlfriends-list/)
-- [My Friends with Benefits Experience Part 1: the Ac...](https://love.allwomenstalk.com/friends-with-benefits-experience/)
-- [Celebrities Top Choice in 2019: Bum Lift ...](https://fitene.com/celebrities-top-choice-in-bum-lift/)
-- [20 Most Popular Ariana Grande Songs That Shaped He...](https://music.allwomenstalk.com/ariana-grande-most-popular-songs/)
 - [7 Hottest Hunks on the US Olympic Team 🥇 ...](https://celebs.allwomenstalk.com/hottest-athletes-on-the-us-winter-olympics-team/)
-- [15 Iconic New York City Socialites of the 20th Cen...](https://celebs.allwomenstalk.com/famous-new-york-city-socialites/)
-- [celebs who have cheated](https://celebs.allwomenstalk.com/celebs-who-have-cheated/)
-- [10 LGBTQ+ Icons Everyone Should Be Aware of ...](https://celebs.allwomenstalk.com/lgbt-icons-everyone-should-be-aware-of/)
 - [Why Are There No Huge Celebrities Anymore?](https://celebs.allwomenstalk.com/why-are-there-no-huge-celebrities-anymore/)
 - [teenage celeberties](https://allwomenstalk.com/15-hottest-teen-celebrities/)
+- [Full List of Leonardo DiCaprio’s Serious Girlfrien...](https://celebs.allwomenstalk.com/leonardo-dicaprio-girlfriends-list/)
+- [10 LGBTQ+ Icons Everyone Should Be Aware of ...](https://celebs.allwomenstalk.com/lgbt-icons-everyone-should-be-aware-of/)
+- [20 Most Popular Ariana Grande Songs That Shaped He...](https://music.allwomenstalk.com/ariana-grande-most-popular-songs/)
+- [My Friends with Benefits Experience Part 1: the Ac...](https://love.allwomenstalk.com/friends-with-benefits-experience/)
+- [celebs who have cheated](https://celebs.allwomenstalk.com/celebs-who-have-cheated/)
+- [15 Iconic New York City Socialites of the 20th Cen...](https://celebs.allwomenstalk.com/famous-new-york-city-socialites/)
+- [Celebrities Top Choice in 2019: Bum Lift ...](https://fitene.com/celebrities-top-choice-in-bum-lift/)
 - [Top Celebrity Philantrophists ...](https://celebs.allwomenstalk.com/top-celebrity-philantrophists/)
 - [Golden Globe 2011 Nominations ...](https://celebs.allwomenstalk.com/golden-globe-nominations/)
 

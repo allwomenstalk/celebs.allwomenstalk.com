@@ -1,9 +1,9 @@
 ---
 title: "11 Photos of Genevieve's Nip Slip ..."
-description: "Stay ahead, stay chic. Trusted guides on beauty, wellness, fashion, and everything that defines today's empowered woman."
+description: "Socialite and fashion designer Genevieve Jones grabs lunch at Sant Ambroeus in the West Village with a friend. Later they have fun hailing a cab and Jones…"
 url: "https://celebs.allwomenstalk.com/genevieves-nip-slip/"
 category: "celebs"
-last_updated: "2026-09-03"
+last_updated: "2026-11-13"
 ---
 
 # 11 Photos of Genevieve's Nip Slip ...
@@ -35,16 +35,16 @@ City: [New York](https://celebs.allwomenstalk.com/tag/new-york/)
 
 ## Related Posts
 
-- [kelly brook tight dress](https://celebs.allwomenstalk.com/kellys-tight-dress/)
-- [season 9 winner american idol](https://celebs.allwomenstalk.com/american-idol-finale-arrivals/)
 - [kimberly wyatt legs](https://celebs.allwomenstalk.com/wyatts-short-shorts/)
-- [kristen dunst](https://celebs.allwomenstalk.com/dunsts-bikini-body/)
 - [amy poehler pregnant?](https://celebs.allwomenstalk.com/pregnant-poehler-gets-groceries/)
-- [jonah hex makeup](https://celebs.allwomenstalk.com/premiere-of-jonah-hex/)
-- [8 Photos of Miley Makes an Appearance ...](https://celebs.allwomenstalk.com/miley-makes-an-appearance/)
+- [kristen dunst](https://celebs.allwomenstalk.com/dunsts-bikini-body/)
 - [gordon ramsay topless](https://celebs.allwomenstalk.com/ramsay-spots-a-nudist/)
-- [paris hilton soles](https://celebs.allwomenstalk.com/paris-gets-a-lift/)
+- [8 Photos of Miley Makes an Appearance ...](https://celebs.allwomenstalk.com/miley-makes-an-appearance/)
 - [peyton list short hair](https://celebs.allwomenstalk.com/ginnifer-and-peyton-head-to-work/)
+- [season 9 winner american idol](https://celebs.allwomenstalk.com/american-idol-finale-arrivals/)
+- [kelly brook tight dress](https://celebs.allwomenstalk.com/kellys-tight-dress/)
+- [paris hilton soles](https://celebs.allwomenstalk.com/paris-gets-a-lift/)
+- [jonah hex makeup](https://celebs.allwomenstalk.com/premiere-of-jonah-hex/)
 - [6 Photos of Niecy Nash Wears Yellow on "Live!" ...](https://celebs.allwomenstalk.com/nash-wears-yellow-on-live/)
 - [7 Photos of Megan Fox and Her Pink Underwear ...](https://celebs.allwomenstalk.com/megan-fox-and-her-pink-underwear/)
 

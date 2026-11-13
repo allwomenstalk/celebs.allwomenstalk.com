@@ -1,9 +1,9 @@
 ---
 title: "The Night Miley Cyrus Turned Heads at Vanity Fair..."
-description: "A Night of Fashion and Flair...; Glamorous Meets Groovy...; Capturing Connection and Elegance...; Behind the Scenes with Miley...; Embracing the Bold and Beautiful...; More ..."
+description: "A Night of Fashion and Flair...; Glamorous Meets Groovy...; Capturing Connection and Elegance...; Behind the Scenes with Miley..."
 url: "https://celebs.allwomenstalk.com/miley-cyrus-vanity-fair/"
 category: "celebs"
-last_updated: "2026-09-03"
+last_updated: "2026-11-13"
 ---
 
 # The Night Miley Cyrus Turned Heads at Vanity Fair...

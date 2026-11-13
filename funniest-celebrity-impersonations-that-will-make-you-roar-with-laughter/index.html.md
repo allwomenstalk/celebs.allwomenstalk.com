@@ -1,9 +1,9 @@
 ---
 title: "11 Funniest Celebrity Impersonations That Will Make You Roar with Laughter ..."
-description: "Jimmy Fallon Imitating, Well, Everybody; Vanilla Ice Impressions on in Living Color; Santino Rice Imitating Tim Gunn; Jimmy Fallon and Benedict Cumberbatch Imitating Alan Rickman; Richard Cheese; More ..."
+description: "Jimmy Fallon Imitating, Well, Everybody; Vanilla Ice Impressions on in Living Color; Santino Rice Imitating Tim Gunn"
 url: "https://celebs.allwomenstalk.com/funniest-celebrity-impersonations-that-will-make-you-roar-with-laughter/"
 category: "celebs"
-last_updated: "2026-09-03"
+last_updated: "2026-11-13"
 ---
 
 # 11 Funniest Celebrity Impersonations That Will Make You Roar with Laughter ...
@@ -58,15 +58,15 @@ I know I've left out some great celebrity impressions, but there are just too ma
 
 ## Related Posts
 
-- [90's celebrities](https://celebs.allwomenstalk.com/celebrities-who-were-in-90s-commercials/)
 - [famous actress in bikini](https://celebs.allwomenstalk.com/celebrities-bikini-ready-bodies/)
 - [does zac efron have a sister](https://celebs.allwomenstalk.com/celebrities-with-attractive-siblings/)
-- [instagram melinda shankar](https://celebs.allwomenstalk.com/degrassi-celebrities-to-follow-on-instagram/)
 - [julia roberts jon bon jovi](https://celebs.allwomenstalk.com/celebrities-who-are-terrible-to-work-with/)
 - [celebs board](https://celebs.allwomenstalk.com/celebrity-pinterest-boards-youll-want-to-follow/)
-- [actresses of the silver screen](https://movies.allwomenstalk.com/totally-ace-actors-from-scandinavia/)
-- [mickey mouse club mouseketeers list](https://celebs.allwomenstalk.com/former-disney-mouseketeers-who-now-made-names-for-themselves/)
+- [90's celebrities](https://celebs.allwomenstalk.com/celebrities-who-were-in-90s-commercials/)
 - [images of celebrities](https://celebs.allwomenstalk.com/stunning-celebrity-black-white-photos/)
+- [instagram melinda shankar](https://celebs.allwomenstalk.com/degrassi-celebrities-to-follow-on-instagram/)
+- [mickey mouse club mouseketeers list](https://celebs.allwomenstalk.com/former-disney-mouseketeers-who-now-made-names-for-themselves/)
+- [actresses of the silver screen](https://movies.allwomenstalk.com/totally-ace-actors-from-scandinavia/)
 - [celebrities with criminal records](https://celebs.allwomenstalk.com/celebrities-with-criminal-records-before-making-it-big/)
 - [10 Funniest Animals ...](https://allwomenstalk.com/10-funniest-animals/)
 - [8 Recent Funny Movies You Have to Watch ...](https://allwomenstalk.com/8-recent-funny-movies-you-have-to-watch/)

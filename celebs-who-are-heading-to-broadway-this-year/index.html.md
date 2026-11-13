@@ -1,9 +1,9 @@
 ---
 title: "7 Celebs Who Are Heading to Broadway This Year ..."
-description: "Carly Rae Jepsen; Zach Braff; Leighton Meester; Daniel Radcliffe; Neil Patrick Harris; More ..."
+description: "Carly Rae Jepsen; Zach Braff; Leighton Meester; Daniel Radcliffe; Neil Patrick Harris"
 url: "https://celebs.allwomenstalk.com/celebs-who-are-heading-to-broadway-this-year/"
 category: "celebs"
-last_updated: "2026-09-03"
+last_updated: "2026-11-13"
 ---
 
 # 7 Celebs Who Are Heading to Broadway This Year ...
@@ -56,16 +56,16 @@ Well, there you have it! These are just seven out of MANY celebs who are heading
 
 ## Related Posts
 
-- [dilligaf tattoo meaning](https://celebs.allwomenstalk.com/celebs-who-are-obsessed-with-tattoos/)
+- [best celebrity interviews](https://celebs.allwomenstalk.com/best-celebrity-interviews-on-ellen/)
+- [javier bardem and jeffrey dean morgan meet](https://celebs.allwomenstalk.com/celebrity-couples-who-look-alike/)
+- [brendan fraser sexiest man alive](https://celebs.allwomenstalk.com/celebrities-who-are-fading-quickly/)
 - [hollywood bachelors](https://celebs.allwomenstalk.com/of-hollywoods-hottest-bachelors-and-bachelorettes/)
 - [new york actresses over 50](https://celebs.allwomenstalk.com/actresses-over-50-who-are-still-fabulous/)
+- [dilligaf tattoo meaning](https://celebs.allwomenstalk.com/celebs-who-are-obsessed-with-tattoos/)
 - [alyson hannigan looks like](https://celebs.allwomenstalk.com/celebrities-who-look-like-they-never-age/)
-- [lauren jauregui weight gain](https://celebs.allwomenstalk.com/celebs-who-rock-bold-brows-and-look-fab/)
-- [brendan fraser sexiest man alive](https://celebs.allwomenstalk.com/celebrities-who-are-fading-quickly/)
 - [celebrities with non famous spouses](https://celebs.allwomenstalk.com/celebrities-who-married-non-celebrities/)
 - [zan efron](https://celebs.allwomenstalk.com/disney-celebs-whove-gone-on-to-do-big-things/)
-- [javier bardem and jeffrey dean morgan meet](https://celebs.allwomenstalk.com/celebrity-couples-who-look-alike/)
-- [best celebrity interviews](https://celebs.allwomenstalk.com/best-celebrity-interviews-on-ellen/)
+- [lauren jauregui weight gain](https://celebs.allwomenstalk.com/celebs-who-rock-bold-brows-and-look-fab/)
 - [7 of My Favorite Celebrities ...](https://celebs.allwomenstalk.com/7-of-my-favorite-celebrities/)
 - [8 Celebrities Who Live in NYC ...](https://celebs.allwomenstalk.com/celebrities-who-live-in-nyc/)
 

@@ -1,9 +1,9 @@
 ---
 title: "6 Photos of Happy Birthday Claire!"
-description: "Stay ahead, stay chic. Trusted guides on beauty, wellness, fashion, and everything that defines today's empowered woman."
+description: "A make-up free Claire Danes chats on her cell phone as she picks up some birthday treats from Dean & Delucca and Gourmet Garage. City: New York"
 url: "https://celebs.allwomenstalk.com/happy-birthday-claire-2/"
 category: "celebs"
-last_updated: "2026-09-03"
+last_updated: "2026-11-13"
 ---
 
 # 6 Photos of Happy Birthday Claire!
@@ -26,15 +26,15 @@ City: [New York](https://celebs.allwomenstalk.com/tag/new-york/)
 ## Related Posts
 
 - [cast of the backup plan movie](https://celebs.allwomenstalk.com/the-back-up-plan-premiere/)
-- [ringless finger](https://celebs.allwomenstalk.com/winslets-ringless-finger/)
+- [amandah dominic](https://celebs.allwomenstalk.com/amanda-and-dominic-check-in/)
 - [color le stylo emerald conquest](https://celebs.allwomenstalk.com/karas-poor-fit/)
-- [kourtney kardashian mude](https://celebs.allwomenstalk.com/kourtney-keeps-it-fashionable/)
 - [kristen stewart in the runaways](https://celebs.allwomenstalk.com/9-photos-of-kristen-arrives/)
+- [emma thompson photos](https://celebs.allwomenstalk.com/5-photos-of-emma-in-london/)
+- [kourtney kardashian mude](https://celebs.allwomenstalk.com/kourtney-keeps-it-fashionable/)
+- [serena william hot](https://celebs.allwomenstalk.com/serenas-day-at-the-beach/)
 - [yasmine zeroc](https://celebs.allwomenstalk.com/camilla-gets-a-push/)
 - [niecy nash photos](https://celebs.allwomenstalk.com/nash-wears-yellow-on-live/)
-- [amandah dominic](https://celebs.allwomenstalk.com/amanda-and-dominic-check-in/)
-- [emma thompson photos](https://celebs.allwomenstalk.com/5-photos-of-emma-in-london/)
-- [serena william hot](https://celebs.allwomenstalk.com/serenas-day-at-the-beach/)
+- [ringless finger](https://celebs.allwomenstalk.com/winslets-ringless-finger/)
 - [6 Amazing Wedding Cakes Too Pretty to Eat!](https://wedding.allwomenstalk.com/6-amazing-wedding-cakes-too-pretty-to-eat/)
 - [8 Presents for a Bride-to-Be ...](https://wedding.allwomenstalk.com/presents-for-a-bride-to-be/)
 

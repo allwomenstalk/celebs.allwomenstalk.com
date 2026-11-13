@@ -1,9 +1,9 @@
 ---
 title: "Obama on Mythbusters ..."
-description: "Stay ahead, stay chic. Trusted guides on beauty, wellness, fashion, and everything that defines today's empowered woman."
+description: "Looks like Barack Obama has found a way to lose his supporters even in the pre-teen section! He appeared on Mythbusters earlier today to try and promote math…"
 url: "https://celebs.allwomenstalk.com/obama-on-mythbusters/"
 category: "celebs"
-last_updated: "2026-09-03"
+last_updated: "2026-11-13"
 ---
 
 # Obama on Mythbusters ...
@@ -22,16 +22,16 @@ Popular or not, you must admit that this is one president who's sowing the seeds
 
 ## Related Posts
 
-- [amazing butterflies](https://gardening.allwomenstalk.com/5-amazing-butterflies/)
-- [rare and unusual types of phobias](https://health.allwomenstalk.com/extraordinary-rare-phobias-and-their-meaning/)
-- [7 Interesting YouTube Channels ...](https://7fun.net/interesting-youtube-channels/)
-- [awesome birds](https://gardening.allwomenstalk.com/5-awesome-birds/)
-- [7 Predictions That Might Come True ...](https://lifestyle.allwomenstalk.com/predictions-that-might-come-true/)
-- [charlie lifestyle](https://celebs.allwomenstalk.com/this-is-charlies-lifestyle-and-it-is-what-it-is/)
-- [bangles definition](https://jewelry.allwomenstalk.com/8-statement-bangles/)
-- [Larry King Live Ends after 25 Years ...](https://celebs.allwomenstalk.com/larry-king-live-ends-after-25-years/)
-- [Fat: a Love Story ...](https://health.allwomenstalk.com/fat-a-love-story/)
 - [7 People Who Shouldn't Have Been Assassinated ...](https://celebs.allwomenstalk.com/7-people-who-shouldnt-have-been-assassinated/)
+- [Fat: a Love Story ...](https://health.allwomenstalk.com/fat-a-love-story/)
+- [bangles definition](https://jewelry.allwomenstalk.com/8-statement-bangles/)
+- [awesome birds](https://gardening.allwomenstalk.com/5-awesome-birds/)
+- [amazing butterflies](https://gardening.allwomenstalk.com/5-amazing-butterflies/)
+- [Larry King Live Ends after 25 Years ...](https://celebs.allwomenstalk.com/larry-king-live-ends-after-25-years/)
+- [charlie lifestyle](https://celebs.allwomenstalk.com/this-is-charlies-lifestyle-and-it-is-what-it-is/)
+- [7 Interesting YouTube Channels ...](https://7fun.net/interesting-youtube-channels/)
+- [7 Predictions That Might Come True ...](https://lifestyle.allwomenstalk.com/predictions-that-might-come-true/)
+- [rare and unusual types of phobias](https://health.allwomenstalk.com/extraordinary-rare-phobias-and-their-meaning/)
 - [Ramsay's Trash Talk ...](https://celebs.allwomenstalk.com/ramsays-trash-talk/)
 - [Michael Brea Was Doing God's Bidding ...](https://celebs.allwomenstalk.com/michael-brea-was-doing-gods-bidding/)
 
